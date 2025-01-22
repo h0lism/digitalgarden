@@ -11,6 +11,8 @@ Similarly, we see in the **Jewish** tradition **cantillation**, a mode of intona
 
 Moving east, the mystical Islamic tradition of Sufism offers another compelling example. **Sufi Dhikr**, Dhikr meaning ”**the remembrance of God**,” involves the rhythmic repetition of God's names or sacred phrases. This practice is often accompanied by movement and breathwork. 
 
+https://www.youtube.com/watch?v=bjZqvy_aMRU
+
 We can also see examples within Native American cultures, different shamanistic traditions, and tribes across the world.
 
 Here we stumble upon a universal truth that transcends cultural boundaries - people are moved by sound and repetition has tremendous value. 
