@@ -5,7 +5,7 @@
 
 Table of Contents
 
-[[Archaeology of The Mind\|Archaeology of The Mind]]
+[[Archaeology of Mind\|Archaeology of Mind]]
 [[Complex Integration of Multiple Brain Systems\|Complex Integration of Multiple Brain Systems]]
 [[Internal Family Systems\|Internal Family Systems]]
 [[Kundalini & Chakra Lotuses\|Kundalini & Chakra Lotuses]]
@@ -17,5 +17,5 @@ Table of Contents
 [[The Sacred Secretion and Monthly Seed\|The Sacred Secretion and Monthly Seed]]
 [[EFT & Eco-Meditation\|EFT & Eco-Meditation]]
 [[Morphogenetic Fields\|Morphogenetic Fields]]
-[[Memory & Reconsolidation\|Memory & Reconsolidation]]
-[[Wetiko\|Wetiko]]
+[[Memory & Reconsolidating Roots\|Memory & Reconsolidating Roots]]
+[[Wetiko Virus\|Wetiko Virus]]
