@@ -48,7 +48,7 @@ The second cycle began around 50,000 years ago. During this time, humanity conti
 The third cycle, which we are currently completing, began around 25,000 years ago. This period has seen significant advancements in human consciousness, social structures, and spiritual understanding.
 "At the end of the third cycle, approximately 75,000 of your years, all are harvested regardless of their progress, for during that time the planet itself has moved through the useful part of that dimension and begins to cease being useful for the lower levels of vibration within that density." (Ra, Session 14.17)
 
-What have you been up to all these years? Do you think you're ready for the big transition? Lets see if you are up to standard and meet the qualifications to make it through.
+What have you been up to all these years? Do you think you're ready for the big transition? Lets see if you are up to standard and meet the qualifications.
 
  To complete the third-density harvest and graduate into the fourth density, an individual must make "The Choice". Service to others, This is the fundamental decision each entity makes in third density regarding their orientation towards others and is what determines whether or not they are harvestable. Harvest can occur in two distinct ways, positively or negatively. The direction you head in is determined by what you orient your life around. Your relationship to yourself, the world, and others is the core lesson of this 3rd density experience. 
  
@@ -71,9 +71,9 @@ What have you been up to all these years? Do you think you're ready for the big 
 
  The harvest is a process that occurs on a personal level, primarily at the end of one’s life. It's not a mass wipeout of the entire population via flood, meteors, or some sort of lethal solar flare. Instead, it could be thought of in the same light as the greek concept of Psychostasia, the weighing-of-the-soul found in Ancient Egyptian and Christian beliefs.
 
-![[Polyptyque_du_jugement_dernier_roger_van_der_Weyden_Beaune.jpg\|Polyptyque_du_jugement_dernier_roger_van_der_Weyden_Beaune.jpg]]
+![scales.jpg](/img/user/images/scales.jpg)
 
-Highly polarized beings can serve as catalysts for the rest of the society, but the overall result of the harvest still depends on the collective's readiness. We are given insight into the idea of "wanderers." These are beings that are of a higher evolutionary order, having already progressed through the 3rd density experience, that come back in order to aid in the evolutionary development of others. Way-showers that provide service to help get as many over the threshold as possible. Two examples they lay out include Nikola Tesla and Einstein. Think of just how profoundly each of these individuals changed the world. Their intellect was so beyond their time that their minds shaped the place we live today. Could
+Highly polarized beings can serve as catalysts for the rest of the society, but the overall result of the harvest still depends on the collective's readiness. We are given insight into the idea of "wanderers." These are beings that are of a higher evolutionary order, having already progressed through the 3rd density experience, that come back in order to aid in the evolutionary development of others. Way-showers that provide service to help get as many over the threshold as possible. Two examples they lay out include Nikola Tesla and Einstein. Think of just how profoundly each of these individuals changed the world. Their intellect was so beyond their time that their minds shaped the place we live today. 
 
 “The harvest truly is plenteous, but the labourers are few; pray ye therefore the Lord of the harvest, that he would send forth labourers into his harvest.” 
 	 Matthew 9:37-38
@@ -89,3 +89,6 @@ Highly polarized beings can serve as catalysts for the rest of the society, but 
 
 "...he who sleeps during harvest is a disgraceful son."
 	Proverbs 10:5
+
+
+One detail about the backstory that I wanted to make poignant, was that Don Elkins committed suicide shortly after these workings commenced. Throughout the entirety of the book, there is a consistent reference to a "negatively"
