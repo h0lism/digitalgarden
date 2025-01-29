@@ -10,8 +10,6 @@ Jaak Panksepp (1943–2017) wasn’t your typical lab scientist. Born in Estonia
 
 His work was revolutionary because it challenged a core assumption of modern psychology: that emotions are byproducts of thinking. Panksepp argued the opposite. Emotions, he said, are _primary_. They are the evolutionary software that allowed our ancestors to survive—to fight, flee, bond, and explore—long before the first human uttered a word.
 
-#### **The Big Idea: Emotions as Biological Instincts**
-
 Panksepp’s central insight was this: **Emotions are not just feelings—they are biological systems, hardwired into the brain.** These systems evolved over millions of years to help animals navigate a dangerous, unpredictable world. Fear keeps us alert to threats. Joy drives us to connect with others. Curiosity compels us to explore. These aren’t metaphors; they’re neural circuits, as real as the ones controlling your heartbeat or digestion.
 
 But here’s the twist: These systems don’t just operate in the background. They _shape_ our thoughts, our decisions, even our sense of self. When you feel a surge of anger, it’s not because you’ve “decided” to be angry—it’s because your brain’s **RAGE** circuit has been triggered. When you’re gripped by loneliness, it’s your **PANIC** system crying out for connection. Panksepp’s work reveals that much of what we call “mental health” depends on the balance of these ancient systems.
