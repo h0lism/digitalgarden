@@ -2,14 +2,11 @@
 {"dg-publish":true,"permalink":"/caroline-leaf/"}
 ---
 
-
 Dr. Caroline Leaf is a PhD communication pathologist and clinical neuroscientist who specializes in the intersection of psycho-neurobiology(mind-brain-body) and metacognitive(thinking about thinking) neuropsychology(brain activity and behavior). With the fancy jargon out of the way, what is it she actually does? Since the early 1980s, Mrs. Leaf has dived in the fascinating terrain of the mind-brain connection, the nature of mental health, and the formation of memory. Caroline was one of the first in her field to study how the brain can change (neuroplasticity) from directed mind input (managing your thinking). During her years of clinical practice and work with underprivileged teachers and students across South Africa, she developed her theory (called the Geodesic Information Processing theory) of how we think, build memory, and learn, into tools and processes. By sharing her findings with others, Caroline has helped to transform the lives of thousands of individuals suffering from learning disabilities: ADD, ADHD, autism, dementias, and mental ill-health issues such as PTSD, anxiety and depression. She’s assisted people with traumatic brain injury — those who other medical professionals had written off as permanently disabled — to not only recover from their injuries, but excel (in areas like academics, where highly functioning brain power is a prerequisite). 
 
-Her research explores the concept of "toxic thoughts" and their negative impact on brain health and wellbeing. She advocates for managing our thought life through techniques like mindfulness, cognitive reframing, self-reflection, and her 5 step Neurocycle process.
+Her research explores the concept of "toxic thoughts" and their negative impact on brain health and wellbeing. She advocates for managing our thought life through techniques like mindfulness, cognitive reframing, self-reflection, and most notably her 5 step Neurocycle process.
 
 A mind that is filled with toxic, depressing, or anxious thoughts - it’s in a messy state. In the same way that you manage your garden so it doesn’t get overwhelmed with weeds, we need to manage our mind so the flowers have room to get sunshine and blossom. When Lil John said, in 2010, "Get outta your mind," we seemed to, as a species, have taken this far too literally. Outrageously dangerous levels of crunk have perpetrated our world ever since. In turn, this has led to the disastrous worldly conditions we find ourselves in now. Luckily, Caroline has some neat information to help us get back *into* our mind, look around, see what is in there, and perhaps get started in cleaning up what we find.
-# “Most psychologists treat the mind as disembodied, a phenomenon with little or no connection to the physical body. Conversely, physicians treat the body with no regard to the mind or the emotions. But the body and mind are not separate, and we cannot treat one without the other.”
-— Candace Pert 
 
 What's in a Thought?
 
