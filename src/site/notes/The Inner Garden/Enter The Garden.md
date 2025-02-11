@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/the-inner-garden/enter-the-garden/"}
 ---
 
-
 Table of Contents
 
 [[Archaeology of Mind\|Archaeology of Mind]]
