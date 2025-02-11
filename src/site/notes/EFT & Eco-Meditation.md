@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/eft-and-eco-meditation/"}
 ---
 
-
 Dawson Church, PhD, is a pioneering figure in the field of energy psychology. He's renowned for his groundbreaking research on Emotional Freedom Techniques (EFT) and his exploration of the profound connection between mind, body, and health. He is also the founder of The National Institute for Integrative Healthcare, a leading-edge nonprofit evolving the worlds of psychology and medicine, having already discovered validated techniques shown to rehabilitate most cases of PTSD and drastically improve other mental health problems. (https://niih.org/ , I feel obligated to point out their Flower of Life logo.) 
 
 Some 300,000 US military personnel returning from the conflicts in Iraq and Afghanistan were estimated to be positive for posttraumatic stress disorder. In 2006 a study took place in efforts to find an efficacious way to handle this influx of needed mental care. 24 combat veterans diagnosed with PTSD received 12 sessions of cognitive restructuring and exposure therapy. 40% of the subjects in the study, after the sessions, no longer met the criteria for PTSD. Half showed no improvement, and comorbid symptoms such as behavioral avoidance, anxiety, and depression did not improve. This study produced some of the most hopeful results for treating the tricky nature of PTSD. Researchers and clinicians faced a clinical dilemma in that evoking combat memories during treatment risked retraumatizing subjects instead of releasing their negative affects and allowing healing. 
@@ -33,40 +32,36 @@ Meditations in the course are centered around harnessing you brain to release ne
 
 Here is a bit about the 7 key neurochemicals which silently shape your life. 
 
-1. **Dopamine:** the pleasure chemical
-	1. Dopamine is our motivation molecule. It plays a role in all cravings, from chocolate to YouTube shorts, alcohol, and cocaine. It releases around the anticipation of a reward, not necessarily in the act of getting it. Very prominent in addicts, dopamine can even release more through the anticipation of drug use vs. actually consuming the substance. When we focus on creating a “felt sense” of desire, by utilizing our imagination to go through the motions of each of the 5 senses(touch taste sight smell sound), we can stimulate parts of the brain that activate this reward system. The temporal lobe controls our ability to smell and hear. The parietal lobe controls taste and touch. Finally, the occipital lobe controls vision. Link all 5 sensory channels to create a vivid "felt sense,” and boom, your brain thinks you are in the appropriate conditions necessary for this chemicals release. Effective meditation can raise dopamine in the brain by upwards of 65%. 
-2. **Oxytocin:** the love chemical
-	3. Oxytocin is our love molecule - the cuddle chemical, or perhaps what you could refer to as the hug drug. Can also be thought of as you the tend and befriend hormone. It is found in all mammals. When a mother is holding her baby, both her and the infant are getting spikes of oxytocin. Released in concordance with intimacy, oxytocin plays a central role in relaxation, trust, empathy, sexual activity and relationship building. Touch, even something as small as shaking hands, begins to release oxytocin. In fact, there doesn’t even have to be any physical contact, emotional intimacy alone has the power to begin stimulating this hormones release. Oxytocin acts as both a neurotransmitter and a hormone, affecting our entire body. In men, oxytocin is linked with their ability to have an erection (it’s a hard drug.) In women, oxytocin levels may potentially be directly correlated to the intensity of their orgasm(s). Social groups, even virtual ones, begin to unlock the synthetization of oxytocin. 
-3. **Norepinephrine:** the focus chemical
-	1. Norepinephrine, also known as noradrenaline, is the neurochemical of alertness and focus. Similar to oxytocin, and as we will see next serotonin, it plays a dual role as a hormone as-well. You could think of norepinephrine like our bodies natural caffeine. Norepinephrine is one of the keys to high performance and when it dumps into our system it can hit like a triple espresso. It enhances attention and gives both brain and body the energy it needs to take action. Norepinephrine accentuates one’s alertness and cognitive function, helping to sharpen their focus. Playing a crucial role in the body's fight-or-flight response, you can see bursts of this neurochemical release due to certain conditions. Under stress, large amounts of norepinephrine will release into the body creating anxiety and provoking one to do something to aid their survival. Sustained moderate amounts of this molecule, however, can be related to heightened attention and even euphoria. Notice the paradox? Norepinephrine creates both anxiety and attentive focus. The key is to get the right amount. How do we do this? Surrendering. Chronic stress can lead to excessive norepinephrine production, which in turn will make us even more anxious and contribute to further stress, leading us on a rollercoaster fueled by adrenaline. Dawson recommends that we use this intense focus ability to direct attention towards surrender. Norepinephrine makes us alert, awake and focused. When we direct these elements of the psyche to simply watch the fast moving activity occurring within, and then furthermore to the process of surrendering to it, this counteracts the anxious wandering mind. From here, we can then directly focus our attention onto the feeling of unconditional love and wellbeing in the body, using our norepinephrine to create more oxytocin! 
-4. **Serotonin:** the satisfaction chemical
-	1.  Serotonin is the neurochemical/hormone responsible for our felt sense of satisfaction. It is what gives you that hit of happiness. Dopamine tells us "Go get it", while serotonin tells us - ahhhhhh, got it =). These two work hand in hand to help produce goal oriented behavior. Motivated by dopamine, we are then rewarded with serotonin. Serotonin helps modulate emotional responses and to regulate normal brain function. It contributes to our abilities for experiencing pleasure and maintaining a stable mood. High levels of serotonin lead to feelings of mental and physical well being. Low serotonin levels have been linked to irritability, aggression, impulsivity, and potentially violent behavior. Psilocybin is nearly identical in it's structure to serotonin. No wonder mushroom trips have tremendous effects on major depressive disorder symptoms. Cultivate this chemical consciously and begin to feel the magic naturally. 
-5. **Nitric oxide:** the intensity amplifier
-	1. Nitric oxide is the chemical of focused intensity. It is both a free radical and a gas, manufactured in the body from plant nitrates in your diet combined with antioxidants such as vitamin c. Nitrix Oxide is associated with alpha brain waves, where you’re feeling relatively calm and relaxed. It improves neuroplasticity by enhancing oxygen flow to the somatomotor cortex, a part of the brain that is vital for learning and memory. Nitric oxide is a by-product of oxytocin, so when we boost our oxytocin, the brain automatically synthesizes more. It promotes normal blood pressure, protects you from heart attacks, boosts immune function, is a broad-spectrum antibacterial agent, fights against inflammation, maintains fluid balance, protects against diabetes, improves athletic performance, and in men can help to promote bigger erections. Tiny molecule, big benefits.
-6. **Beta-endorphin:** the pain reliever
-	1. Beta endorphin is a powerful pain reliever produced by the pituitary gland. It is part of the endorphin family, molecules which dock onto opiate receptors in the brain to diminish or block the perception of pain. Under the influence of beta endorphin, physical distractions roll away and you feel good in your body. Brings you calming alpha and healing theta brainwaves. One study discovered that when injected directly into the brain, beta endorphin is over 17x more powerful a painkiller than synthetic morphine, and when injected via vein, is upwards of 3x stronger. The mystics brain feels no pain, and the good news is, you don't even need a prescription.
-7. **Anandamide:** the bliss chemical
-	1. Anandamide, the bliss molecule, has been associated with the feelings of ecstasy and joy. The name is taken from the Sanskrit word ānanda (आनन्द), which means “bliss, delight,” and amide, derived from its chemical structure. It is the brains own version of marijuana and fits into the same receptor sites as THC. Anandamide is part of the endocannabinoid system, a network of molecular docks throughout the brain and body. This system regulates many important bodily functions, including : pleasure and motivation, sleep, mood, appetite, digestion, metabolism, learning and memory, reproduction and fertility, inflammation and immunity, cardiovascular system function, and even the remodeling and growth of bone, nerves, muscle and skin. Anandamide is associated with high levels of theta and gamma brain waves. You don't have to wait for someone to pass you a doobie to get toasted, optimize your living and get stoned like a quarry au natural. 
+## Dopamine - the pleasure chemical
 
-Dopamine 
+Dopamine is our motivation molecule. It plays a role in all cravings, from chocolate to YouTube shorts, alcohol, and cocaine. It releases around the anticipation of a reward, not necessarily in the act of getting it. Very prominent in addicts, dopamine can even release more through the anticipation of drug use vs. actually consuming the substance. When we focus on creating a “felt sense” of desire, by utilizing our imagination to go through the motions of each of the 5 senses(touch taste sight smell sound), we can stimulate parts of the brain that activate this reward system. The temporal lobe controls our ability to smell and hear. The parietal lobe controls taste and touch. Finally, the occipital lobe controls vision. Link all 5 sensory channels to create a vivid "felt sense,” and boom, your brain thinks you are in the appropriate conditions necessary for this chemicals release. Effective meditation can raise dopamine in the brain by upwards of 65%. 
+#### How to get more? 
 
 Develop the feeling of “something amazing is about to happen!”, sinking deeply into the feeling of craving something you really want.
-- Cross an item off your to-do list
-	It doesn't have to be anything profound. Even crossing off something simple like fold the laundry or empty the dishwasher will stimulate you to release some dopamine. 
-	Celebrate one of your accomplishments with a victory dance
-	Identify and collect satisfying objects
-		Universal law states we all know at-least one woman that is obsessed with crystals. That's dopamine. Go bird watching. Collect yu-gi-oh cards. Get yourself some puzzles. Go thrifting. 
-Listen to music that is emotionally activating it gives you the chills
-Look at emotionally engaging art, maybe make it your screensaver for the week.
+Cross an item off your to-do list
+		It doesn't have to be anything profound. Even crossing off something simple like fold the laundry or empty the dishwasher will stimulate you to release some dopamine. 
+Celebrate one of your accomplishments with a victory dance
+Identify and collect satisfying objects
+		Universal law states we all know at-least one woman that is obsessed with crystals. That's dopamine. 
 
-Oxytocin
+Go bird watching. 
+Collect yu-gi-oh cards. 
+Get yourself some puzzles. 
+Go thrifting. 
+Listen to music that is emotionally activating it gives you the chills
+Look at emotionally engaging art, maybe make it your screensaver for the next week.
+
+## Oxytocin the love chemical
+
+Oxytocin is our love molecule - the cuddle chemical, or perhaps what you could refer to as the hug drug. Can also be thought of as you the tend and befriend hormone. It is found in all mammals. When a mother is holding her baby, both her and the infant are getting spikes of oxytocin. Released in concordance with intimacy, oxytocin plays a central role in relaxation, trust, empathy, sexual activity and relationship building. Touch, even something as small as shaking hands, begins to release oxytocin. In fact, there doesn’t even have to be any physical contact, emotional intimacy alone has the power to begin stimulating this hormones release. Oxytocin acts as both a neurotransmitter and a hormone, affecting our entire body. In men, oxytocin is linked with their ability to have an erection (it’s a hard drug.) In women, oxytocin levels may potentially be directly correlated to the intensity of their orgasm(s). Social groups, even virtual ones, begin to unlock the synthetization of oxytocin. 
+#### How to get more? 
 
 Say I love you to someone you love
 Spend time with friends 
 Pet an animal. Oxytocin goes up from gazing into the eyes of a dog (theirs rises too).
 Meditate with your focus on others through the lens of compassion or loving kindness.
 Share a meal
-Engage in positive social media usage
+Engage in _**positive**_ social media usage 
 Give someone a present
 Listen with full attention while making eye contact 
 Have Sex
@@ -74,7 +69,10 @@ Hug as much as possible
 Practice yoga
 Do random acts of kindness
 
-Norepinephrine 
+## Norepinephrine : the focus chemical
+
+Norepinephrine, also known as noradrenaline, is the neurochemical of alertness and focus. Similar to oxytocin, and as we will see next serotonin, it plays a dual role as a hormone as-well. You could think of norepinephrine like our bodies natural caffeine. Norepinephrine is one of the keys to high performance and when it dumps into our system it can hit like a triple espresso. It enhances attention and gives both brain and body the energy it needs to take action. Norepinephrine accentuates one’s alertness and cognitive function, helping to sharpen their focus. Playing a crucial role in the body's fight-or-flight response, you can see bursts of this neurochemical release due to certain conditions. Under stress, large amounts of norepinephrine will release into the body creating anxiety and provoking one to do something to aid their survival. Sustained moderate amounts of this molecule, however, can be related to heightened attention and even euphoria. Notice the paradox? Norepinephrine creates both anxiety and attentive focus. The key is to get the right amount. How do we do this? Surrendering. Chronic stress can lead to excessive norepinephrine production, which in turn will make us even more anxious and contribute to further stress, leading us on a rollercoaster fueled by adrenaline. Dawson recommends that we use this intense focus ability to direct attention towards surrender. Norepinephrine makes us alert, awake and focused. When we direct these elements of the psyche to simply watch the fast moving activity occurring within, and then furthermore to the process of surrendering to it, this counteracts the anxious wandering mind. From here, we can then directly focus our attention onto the feeling of unconditional love and wellbeing in the body, using our norepinephrine to create more oxytocin! 
+#### How to get more? 
 
 Exercise while giving full attention to your body and its movements.
 Jump into a cold shower/water. This can raise norepinephrine by as much as 2-3x in a matter of minutes.
@@ -87,8 +85,10 @@ Healthy sleep patterns make sure that these cycles are appropriate
 Play your favorite music with 100% full attention. With a beginners mind listen to every note, listen to every detail, every texture, the depth and movement of it all.
 Engage in an exhilarating activity that's pleasurable but requires you to focus a little bit. 
 Mountain biking, surfing, roller coasters, skydiving, kangaroo kick boxing. Drop in on a half-pipe. Steal a TV from your local Walmart (jk) etc.
+## Serotonin: the satisfaction chemical
 
-Serotonin 
+ Serotonin is the neurochemical/hormone responsible for our felt sense of satisfaction. It is what gives you that hit of happiness. Dopamine tells us "Go get it", while serotonin tells us - ahhhhhh, got it =). These two work hand in hand to help produce goal oriented behavior. Motivated by dopamine, we are then rewarded with serotonin. Serotonin helps modulate emotional responses and to regulate normal brain function. It contributes to our abilities for experiencing pleasure and maintaining a stable mood. High levels of serotonin lead to feelings of mental and physical well being. Low serotonin levels have been linked to irritability, aggression, impulsivity, and potentially violent behavior. Psilocybin is nearly identical in it's structure to serotonin. No wonder mushroom trips have tremendous effects on major depressive disorder symptoms. Cultivate this chemical consciously and begin to feel the magic naturally. 
+#### How to get more? 
 
 Get regular exercise
 Walk, run, dance, ice skate
@@ -98,15 +98,19 @@ Review happy memories. More serotonin is produced when you review happy memories
 Listen to music you love
 Hug someone for at-least 20 seconds
 Massage your body
+## Nitric oxide: the intensity amplifier
 
-Nitric Oxide 
+ Nitric oxide is the chemical of focused intensity. It is both a free radical and a gas, manufactured in the body from plant nitrates in your diet combined with antioxidants such as vitamin c. Nitrix Oxide is associated with alpha brain waves, where you’re feeling relatively calm and relaxed. It improves neuroplasticity by enhancing oxygen flow to the somatomotor cortex, a part of the brain that is vital for learning and memory. Nitric oxide is a by-product of oxytocin, so when we boost our oxytocin, the brain automatically synthesizes more. It promotes normal blood pressure, protects you from heart attacks, boosts immune function, is a broad-spectrum antibacterial agent, fights against inflammation, maintains fluid balance, protects against diabetes, improves athletic performance, and in men can help to promote bigger erections. Tiny molecule, big benefits.
+#### How to get more? 
 
 Go over moments in your life where you were intensely focused on a goal. Times where you were ferociously focused, dial the intensity up to the max. 
 Breathe mindfully through your nose instead of your mouth. 
 Go through very brief but very intense workout. In as little as 5 minutes you can get your body to dump nitric oxide. 
 Watch comedy movies and laugh. Horror movies can actually decrease nitric oxide.
+## Beta-endorphin: the pain reliever
 
-Beta Endorphins
+ Beta endorphin is a powerful pain reliever produced by the pituitary gland. It is part of the endorphin family, molecules which dock onto opiate receptors in the brain to diminish or block the perception of pain. Under the influence of beta endorphin, physical distractions roll away and you feel good in your body. Brings you calming alpha and healing theta brainwaves. One study discovered that when injected directly into the brain, beta endorphin is over 17x more powerful a painkiller than synthetic morphine, and when injected via vein, is upwards of 3x stronger. The mystics brain feels no pain, and the good news is, you don't even need a prescription.
+#### How to get more? 
 
 Focus on feeling really good. Give yourself permission to feel absolutely great. A lot of us are ambiguous about whether or not we are allowed to feel a bunch of pleasure, give yourself permission to feel full body ecstasy.
 Do any type of aerobic exercise, get yourself that runners high
@@ -126,7 +130,10 @@ Sniff lavender essential oil
 Get a massage
 Do yoga
 
-Anandamide
+## Anandamide: the bliss chemical
+
+ Anandamide, the bliss molecule, has been associated with the feelings of ecstasy and joy. The name is taken from the Sanskrit word ānanda (आनन्द), which means “bliss, delight,” and amide, derived from its chemical structure. It is the brains own version of marijuana and fits into the same receptor sites as THC. Anandamide is part of the endocannabinoid system, a network of molecular docks throughout the brain and body. This system regulates many important bodily functions, including : pleasure and motivation, sleep, mood, appetite, digestion, metabolism, learning and memory, reproduction and fertility, inflammation and immunity, cardiovascular system function, and even the remodeling and growth of bone, nerves, muscle and skin. Anandamide is associated with high levels of theta and gamma brain waves. You don't have to wait for someone to pass you a doobie to get toasted, optimize your living and get stoned like a quarry au natural. 
+#### How to get more? 
 
 Embrace the feeling of ecstasy. 
 Journal about peak bliss states and relive those memories. 
@@ -136,18 +143,21 @@ Do activities that get you into a flow state
 Dial up the intensity of your meditations
 Allow yourself to feel good. Dial it up to feel even better, and then dial it up some more. 
 
+
 Carry all these wonderful feelings into your daily life
 Deal with your trauma 
 Move on to more advanced practices when you're ready.
 
  I really love the way the course is structured. Dawson organizes your journey through learning about all of these neurochemicals by getting you to experience their effects first hand. The progression it follows gets you to stack neurochemicals optimally by sequencing what you do in the meditations. I would highly recommend it, but if you can't access Mindvalley you can find a free eco-meditation here, and everything you need to get started with tapping on his website. 
+ 
 [Eco Meditation - YouTube](https://www.youtube.com/watch?v=NWMTcpX4z2A)
-
 
 [EFT Tapping Tutorials - Tapping Guide - How to Do EFT Tapping Therapy](https://eftuniverse.com/tutorial/eft-tapping-tutorial-center/?_gl=1*eipdvc*_up*MQ..*_ga*ODM2NDU2MTAwLjE3MjMyMzg5Mzg.*_ga_GQXDZJWKRK*MTcyMzIzODkzNy4xLjAuMTcyMzIzODkzNy4wLjAuMA..)
 
-*Interestingly, Dawson Church lost both his home and office building in the Santa Rosa fire of 2017. This was a major portion of the beginning part of his book Bliss Brain. All of Dawson's research and theories on modeling the brain were put to the test and his ability to find happiness and peace throughout the incident would be indicative of their effectiveness. An expert on healing the wounds of psychological trauma just stumbled upon a chance to gain a little more experience in the field. The catastrophe not only took away both buildings he centered his life around, but triggered health issues and a financial disaster as-well. In the book he talks about how using and teaching the meditation techniques throughout the tragedy gave him the ability to handle what would have been a terrible blow to... everything, and turn it into an opportunity for transformation and a test of resilience. The only object that survived the fire at the ETF University office, symbolic of all that occurred, was a small ceramic Buddha statue. Unfortunately, he and his wife did lose their twin Siamese cats, Apple and Pierre(RIP). They were however very grateful to be alive themselves, with the fire having claimed 22 lives, and almost theirs.
-![[Screenshot 2024-05-04 153551.png\|Screenshot 2024-05-04 153551.png]]
+Interestingly, Dawson Church lost both his home and office building in the Santa Rosa fire of 2017. This was a major portion of the beginning part of his book Bliss Brain. All of Dawson's research and theories on modeling the brain were put to the test and his ability to find happiness and peace throughout the incident would be indicative of their effectiveness. An expert on healing the wounds of psychological trauma just stumbled upon a chance to gain a little more experience in the field. The catastrophe not only took away both buildings he centered his life around, but triggered health issues and a financial disaster as-well. In the book he talks about how using and teaching the meditation techniques throughout the tragedy gave him the ability to handle what would have been a terrible blow to... everything, and turn it into an opportunity for transformation and a test of resilience. The only object that survived the fire at the ETF University office, symbolic of all that occurred, was a small ceramic Buddha statue. Unfortunately, he and his wife did lose their twin Siamese cats, Apple and Pierre(RIP). They were however very grateful to be alive themselves, with the fire having claimed 22 lives, and almost their own.
+
+![Screenshot-2024-05-04-153551-768x539.png](/img/user/images/Screenshot-2024-05-04-153551-768x539.png)
+
 "The important things-love, connection, compassion, awareness, trust, faith-cannot be destroyed. When everything around them is burned away by the fires of life, their outlines stand out more boldly." (Bliss Brain) 
 
-One of the members of our group, someone I had met the night that I talked about in the introduction, ended up going through his own version of this scenario. In the two months between the original talk which inspired me to start writing this (Knock Knock, wow is this really taking that long(now 7+months)), and the following get together, he had lost everything. The house which he built for himself a little distance from the city, along with everything in it. The entirety of his greenhouse/farm, and around 70% of his skin. All uninsured. From full self-sufficiency and his own little plot of paradise, to forced dependency, and nothing, not even the flesh to keep you warm at night(they literally had to keep him on heaters for a while). Having spent a decent chunk of his days studying spiritual and metaphysical matters in the 7 years leading up to the incident, it was as if he had been preparing for this disaster the entire time. The lessons which he shared and the techniques he used to get through it all paralleled exactly what Dawson Church speaks about, and the work of Caroline Leaf as-well. His natural intuition, developed spiritual intelligence, and refined understanding of the mind-body connection guided him to handle things in the same way that neuroscience supports. By the time we all saw him he was already out of the hospital, had recovered most of his skin, and was optimistic about the whole ordeal. Having found meaning in it all, grateful and moved by the tremendous amount of love and support that came forth during what was a time of great turbulence, he was ready to get back out there and start building things anew. 
+One of the members of our group, someone I had met the night that I talked about in the introduction, ended up going through his own version of this scenario. In the two months between the original talk which inspired me to start writing this, and the following get together, he had lost everything. The house which he built for himself a little distance from the city, along with everything in it. The entirety of his greenhouse/farm, and around 70% of his skin. All uninsured. From full self-sufficiency and his own little plot of paradise, to forced dependency, and nothing, not even the flesh to keep you warm at night(they literally had to keep him on heaters for a while). Having spent a decent chunk of his days studying spiritual and metaphysical matters in the 7 years leading up to the incident, it was as if he had been preparing for this disaster the entire time. The lessons which he shared and the techniques he used to get through it all paralleled exactly what Dawson Church speaks about, and the work of Caroline Leaf as-well. His natural intuition, developed spiritual intelligence, and refined understanding of the mind-body connection guided him to handle things in the same way that neuroscience supports. By the time we all saw him he was already out of the hospital, had recovered most of his skin, and was optimistic about the whole ordeal. Having found meaning in it all, grateful and moved by the tremendous amount of love and support that came forth during what was a time of great turbulence, he was ready to get back out there and start building things anew. 

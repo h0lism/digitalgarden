@@ -13,7 +13,7 @@ Table of Contents
 [[The Secret of the Golden Flower\|The Secret of the Golden Flower]]
 [[Mantra & Bija Seed Sounds\|Mantra & Bija Seed Sounds]]
 [[The Ra Contact & Harvest\|The Ra Contact & Harvest]]
-[[Sacred Secretion and the Monthly Seed\|Sacred Secretion and the Monthly Seed]]
+[[Sacred Secretion and Your Monthly Seed\|Sacred Secretion and Your Monthly Seed]]
 [[EFT & Eco-Meditation\|EFT & Eco-Meditation]]
 [[Morphogenetic Fields\|Morphogenetic Fields]]
 [[Therapeutic Reconsolidation Process (Tilling the Soil)\|Therapeutic Reconsolidation Process (Tilling the Soil)]]
