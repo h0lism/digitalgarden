@@ -89,6 +89,3 @@ Highly polarized beings can serve as catalysts for the rest of the society, but 
 
 "...he who sleeps during harvest is a disgraceful son."
 	Proverbs 10:5
-
-
-One detail about the backstory that I wanted to make poignant, was that Don Elkins committed suicide shortly after these workings commenced. Throughout the entirety of the book, there is a consistent reference to a "negatively"
