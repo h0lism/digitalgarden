@@ -51,13 +51,21 @@ In the same way that Geologists use seismic surveys and other methods to locate 
 
 "When the mind becomes attuned, it becomes capable of hearing the voice of the unknown. The sounds which are heard in such a stage do not belong to any particular language, religion or tradition.” - Swami Rama
 
-The Sanskrit word Bīja (बीज), literally means ‘seed.’ Bija mantras are considered the most fundamental sounds of nature, and theorized to have been used for hundreds of years before ever being written down. Short seed form sounds which when practiced properly have that potential within them to grow and yield results, they are like power packed capsules of energy.
+The Sanskrit word Bīja (बीज), literally means ‘seed.’ Bija mantras are considered the most fundamental sounds of nature, and theorized to have been used for hundreds of years before ever being written down. Short seed form sounds which when practiced properly have that potential within them to grow and yield results, they are like power packed capsules of energy. Bija mantras are one-syllable noises, when spoken, sung, whispered, or internally contemplated upon, activate the energy of the chakras in order to purify and balance the mind/body.
+
+Chanting bija sounds is like tuning the strings of a musical instrument (our chakras) to ensure they’re playing the right notes. Once harmoniously in-tune, we can create the music of life. These sounds open us up to tremendous opportunities for personal growth. In principle, an acorn has the entire oak tree within it. We want to make sure that the chakra system, our system of self, is flowing optimally and that there are no blockages or overuse in any area. Imbalances create disharmony and neurosis. When functioning properly you are simply operating at your greatest potential. You are the most intelligent, compassionate, perceptive, loving, creative, discerning, balanced, powerful version of yourself. You see things clearly. Problems solve themselves. Opportunities begin to pop up and you know how to capitalize on them. Stressors don’t bog you down in the same way. You become in line with the will of the world. 
 
 
 
+- **Root Chakra (Muladhara)**: The bija sound **LAM** is used to promote groundedness and stability (lah-m, like the spitting animal without the uh at the end. Did you know they hum and chant mantra too? https://youtu.be/NEjihexVOrc?si=F4oUjE8acYWKUxcz)
+- **Sacral Chakra (Svadhisthana)**: **VAM** is chanted to enhance creativity and emotional balance. Vaaaaaaaaaammmmm ( vah-mmm )
+- **Solar Plexus Chakra (Manipura)**: **RAM** is associated with inner strength and confidence. Raaaaaaaaaammmmm ( rah-mmm )
+- **Heart Chakra (Anahata)**: **YAM** is used to open the heart to compassion and love. Yaaaaaaaaaammmmm ( yah-mmm, not the sweet spud look alike )
+- **Throat Chakra (Vishuddha)**: **HAM** supports clear communication and self-expression. Haaaaaaaaaammmmm ( hah-mmm, not the Black Forest kind. )
+- **Third Eye Chakra (Ajna)**: The bija sound **OM** or **AUM** is chanted to enhance intuition and insight. 
+- **Crown Chakra (Sahasrara)**: The bija sound **OM** or **AUM** is also used here to connect with higher consciousness and spiritual awakening.
 
-
-
+For Om, the “O” sounds like the “a” sound in the word “saw,” combined with the “u” sound in the word “put.” Blend the “m” into the end, and bam, you got it. Om, aum, spell it whatever way makes you feel at home, it doesn't matter all that much.
 
 
 
