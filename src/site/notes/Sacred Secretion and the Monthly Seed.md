@@ -14,3 +14,8 @@ The original Greek of Revelation 22.2
 it could be 12 fruits spread over a year; or it could be 12 fruits as an unqualified total.
 
 The next phrase is κατὰ μῆνα ἕκαστον ἀποδιδοῦν τὸν καρπὸν αὐτοῦ, “according to each month giving its fruit.” When we put the two phrases together the likely picture is of a twelve month cycle. The fruit has the sense of harvest, and the tree will produce a harvest every month, twelve harvests a year.
+
+
+Pornography is one of the ways the demonic presence lives in our world, incest as the fastest rising category shows us how this force operates and attempts to corrupt even the family unit, the most sacred of unions. 
+
+Masturbation in satanic circles is even referred to as child sacrifice.

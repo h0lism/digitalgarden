@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/kabbala-and-the-tree-of-life/"}
 ---
 
+Extremely rough, go AWAY!!! 
+
 Kabbala was kept secret sorta hush hush amongst the elites
 but it eventually begins to be taught in public...
 Why?
@@ -85,3 +87,5 @@ the system is so dynamic and it's it's almost like a fractal that the more you z
 
 dybbuk
 [Astral Fragments]
+
+Tikkun Olam

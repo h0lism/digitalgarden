@@ -9,8 +9,6 @@ It's an innate capacity and the birthright of every human being to know Kundalin
 
 This moving force is the motive power of every mystical/spiritual tradition, simply spoken about through different names.
 
-
-
 A complete awakening requires that the Kundalini rises into the brain through Sushumna, the middle channel, accompanied by Ida and Pingala, which fuse into one energy stream at Ajna Chakra(3rd eye). Once they have joined their masculine and feminine energies, they unite with Sushumna as One to rise to Sahasrara(crown chakra) and blow open the Cosmic Egg which holds the potential of your Body of Light, Golden Sun Center, your Cosmic Self.
 
 Ida and Pingala channel the feminine and masculine energies, but the Kundalini rises up the spinal column, which is the Sushumna Nadi.
@@ -21,3 +19,5 @@ having a full Kundalini awakening requires some conscious effort on your part to
 Kunda means coiled
 
 The yoga tantras deal with this energy of kundalini in the human body.
+
+Ramana Maharshi says that the kundalini energy is nothing but the natural energy of the Self, where the Self is the universal consciousness (Paramatma) present in every being, and that the individual mind of thoughts cloaks this natural energy from unadulterated expression.
