@@ -17,5 +17,5 @@ Table of Contents
 [[EFT & Eco-Meditation\|EFT & Eco-Meditation]]
 [[Morphogenetic Fields\|Morphogenetic Fields]]
 [[Therapeutic Reconsolidation Process (Tilling the Soil)\|Therapeutic Reconsolidation Process (Tilling the Soil)]]
-[[Wetiko Weed\|Wetiko Weed]]
+[[Wetiko (Weeds)\|Wetiko (Weeds)]]
 [[Caroline Leaf\|Caroline Leaf]]
