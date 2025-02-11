@@ -41,8 +41,8 @@ Within the tradition,
 We experience God as Shekinah, it’s feminine aspect. 
 
 
-
-
+"For at that time I will change the speech of the peoples to pure speech, that all of them may call upon the name of the Lord and serve him with one accord"
+	Zephaniah 3:9 
 
 In the Sefer Yetzirah(The Book of Formation), a foundational Kabbalistic text, it states that Being emerges from divine language. God used the 22 letters, along with the 10 _Sefirot_ (divine emanations), to create existence. The Hebrew letters are the DNA of the universe, the building blocks of reality. They are the physical representation of the divine energy intelligence that created everything, from the planets to the galaxies. Each month is represented by a sign of the zodiac, and by a planet, both created by a Hebrew letter. The Book of Formation explains that by meditating daily on the Hebrew letters specific to the month, you can influence how your month plays out. How one speaks becomes important. Because we hold the capacity for speech, if we speak correctly, we can bend reality to our will. We can see this near its upper bound within the concept of the golem. Perhaps you've heard of Frankenstein... The Sefer Yetzirah lays out a procedure by which one can bring to life an inanimate object. Rabbis were supposedly able to fashion and mold clay into a form, perform a ritual involving the recitation of divine names and specific letter combinations, and bring an object to life. This could be as a calf, a human being, birds, perhaps a gazelle, even plant life. In Midrash and Talmudic sources, Adam is initially created as a golem (גולם) when his dust is "kneaded into a shapeless husk," afterwards being fashioned into a body and then having the soul "breathed into him." No anthropogenic golem is fully human. Early on, the main disability of the golem was its inability to speak. 
 
@@ -89,3 +89,4 @@ dybbuk
 [Astral Fragments]
 
 Tikkun Olam
+
