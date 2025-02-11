@@ -2,8 +2,8 @@
 {"dg-publish":true,"permalink":"/kabbala-and-the-tree-of-life/"}
 ---
 
-Extremely rough, go AWAY!!! 
-I could spend the rest of my life going into this... 
+Early stages
+
 
 Kabbala was kept secret sorta hush hush amongst the elites
 but it eventually begins to be taught in public...

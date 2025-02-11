@@ -6,7 +6,7 @@ Table of Contents
 
 [[Archaeology of Mind\|Archaeology of Mind]]
 [[CIMBS\|CIMBS]]
-[[Internal Family Systems\|Internal Family Systems]]
+[[Internal Family Systems (Plants)\|Internal Family Systems (Plants)]]
 [[Kundalini (Fertilizer)\|Kundalini (Fertilizer)]]
 [[Kabbala & The Tree of Life\|Kabbala & The Tree of Life]]
 [[Marketing Environment\|Marketing Environment]]
@@ -16,6 +16,6 @@ Table of Contents
 [[Sacred Secretion and Your Monthly Seed\|Sacred Secretion and Your Monthly Seed]]
 [[EFT & Eco-Meditation\|EFT & Eco-Meditation]]
 [[Morphogenetic Fields\|Morphogenetic Fields]]
-[[Therapeutic Reconsolidation Process (Tilling the Soil)\|Therapeutic Reconsolidation Process (Tilling the Soil)]]
+[[TRP (Tilling the Soil)\|TRP (Tilling the Soil)]]
 [[Wetiko (Weeds)\|Wetiko (Weeds)]]
 [[Caroline Leaf\|Caroline Leaf]]
