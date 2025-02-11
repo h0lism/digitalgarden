@@ -16,7 +16,7 @@ We can also see examples within Native American cultures, different shamanistic 
 
 Here we stumble upon a universal truth that transcends cultural boundaries - people are moved by sound and repetition has tremendous value. 
 
-Many religious and spiritual traditions utilize mantras and daily recitations—often short, distilled phrases that are easy to recall and repeat daily. These become the tiny anchoring points that help one to deal with the fluid vicissitudes of life. What is spoken automatically and subliminally sinks its way into the non-conscious mind, where it begins to shape and reinforce our underlying **schemas**—the cognitive frameworks through which we perceive and interpret the world. Often these religious mantras are designed to step one out of the limited self-perspective into something transcendent, one which integrates existing concepts of God, reformatting the experience of the physical and our emotional experience by viewing it all from the lens of spiritual truths. Repetition makes our feet sink deeper into the sand, akin to the way repeated experiences solidify the development of schemas. As one explores traditional spiritual principles, they recognize the truth inherent within them, gathering self-proving evidence to continually reinforce the neuronal structure. This repetition, supported by the principle of neuroplasticity, allows us to more readily connect to the feeling state of whatever you are repeating after it has become engrained in your brain's wiring over time. The conscious mind utilizes the mantra as an anchor point, and the non-conscious mind then begins to organize itself around this anchor, strengthening related neural networks and associated schemas at faster and faster speeds. Over time, these reinforced schemas can influence our conscious thoughts, beliefs, and behaviors, eventually allowing us to bring the ideas and intentions embedded within the mantra into the conscious mind on a whim. You begin to, as you chant, step into mental and then energetic resonance with what you are repeating, a resonance that reflects the gradual reshaping of your internal cognitive landscape. Eventually, one has wired within them the perspectives, the spiritual truths, which the mantras hold. These become a part of the schemas which one uses to understand life. 
+Many religious and spiritual traditions utilize mantras and daily recitations—often short, distilled phrases that are easy to recall and repeat daily. These become the tiny anchoring points that help one to deal with the fluid vicissitudes of life. What is spoken automatically and subliminally sinks its way into the non-conscious mind, where it begins to shape and reinforce our underlying **schemas**—the cognitive frameworks through which we perceive and interpret the world. Often these religious mantras are designed to step one out of the limited self-perspective into something transcendent, one which integrates existing concepts of God, reformatting the experience of the physical and our emotional experience by viewing it all from the lens of spiritual truths. Repetition makes our feet sink deeper into the sand, akin to the way repeated experiences solidify the development of schemas. As one explores traditional spiritual principles, they recognize the truth inherent within them, gathering self-proving evidence to continually reinforce the neuronal structure(be careful of confirmation bias). This repetition, supported by the principle of neuroplasticity, allows us to more readily connect to the feeling state of whatever you are repeating after it has become engrained in your brain's wiring over time. The conscious mind utilizes the mantra as an anchor point, and the non-conscious mind then begins to organize itself around this anchor, strengthening related neural networks and associated schemas at faster and faster speeds. Over time, these reinforced schemas can influence our conscious thoughts, beliefs, and behaviors, eventually allowing us to bring the ideas and intentions embedded within the mantra into the conscious mind on a whim. You begin to, as you chant, step into mental and then energetic resonance with what you are repeating, a resonance that reflects the gradual reshaping of your internal cognitive landscape. Eventually, one has wired within them the perspectives, the spiritual truths, which the mantras hold. These become a part of the schemas which one uses to understand life. 
 
 Delving deeper into the origins of mantras, we find that the earliest known instances appear in a the Vedas, ancient Indian scriptures written in Sanskrit dating back to 1500-1200 BCE. These sacred texts contain hymns and verses that were chanted during religious rituals and ceremonies. Over time, mantras evolved beyond their Vedic origins and became integral to various Asian religions, including Hinduism, Buddhism, Jainism, and Sikhism. This is no mere coincidence, but a testament to the fundamental power inherent in vibration itself. Sound, at its core, is energy, and specific frequencies have the capacity to resonate with our physical, emotional, and spiritual being. From this understanding arises the concept of mantra – carefully constructed sounds and syllables that, when repeated with intention, can harness this vibrational power to effect profound transformation within and around us.
 
@@ -73,32 +73,32 @@ In the documentary _Mantra: Sounds into Silence_, you can see how mantra has cha
 
 This study conducted in 2022, [Immediate Effects of OM Chanting on Heart Rate Variability Measures Compared Between Experienced and Inexperienced Yoga Practitioners - PMC](https://pmc.ncbi.nlm.nih.gov/articles/PMC9015091/#sec1-4) highlights to potential benefits of chanting for the Vagus nerve. Although the inexperienced participants in the study exhibited some changes in heart rate variability after a brief OM chanting session, these changes were minimal and paled in comparison to the pronounced benefits observed in experienced practitioners. The experienced group's significantly higher baseline HF power serves as a testament to the cumulative effects of long-term practice. While beginners may experience a subtle shift in physiological state, the study strongly suggests that mastery and the profound benefits of vagal regulation through OM chanting are achieved through dedicated, repeated practice.
 
-Here is another study I found which also demonstrates the added-benefit that experienced practitioners have over beginners. 
+Here is another study I found which also demonstrates the added-benefit that experienced practitioners gain over beginners as an accumulation of their practice.
 
-##### Long-term practice of intuitive inquiry meditation modulates EEG dynamics during self-schema processing
+_Long-term practice of intuitive inquiry meditation modulates EEG dynamics during self-schema processing_
 
 https://www.cell.com/heliyon/fulltext/S2405-8440(23)07283-3?_returnURL=https%3A%2F%2Flinkinghub.elsevier.com%2Fretrieve%2Fpii%2FS2405844023072833%3Fshowall%3Dtrue
 
 
-# More studies worth checking out, 
+### More studies worth checking out 
 
 
-##### Repetitive Religious Chanting Invokes Positive Emotional Schema to Counterbalance Fear: A Multi-Modal Functional and Structural MRI Study 
+_Repetitive Religious Chanting Invokes Positive Emotional Schema to Counterbalance Fear: A Multi-Modal Functional and Structural MRI Study_ 
 
 https://pmc.ncbi.nlm.nih.gov/articles/PMC7732428/
 
-##### Modulation of the Neurophysiological Response to Fearful and Stressful Stimuli Through Repetitive Religious Chanting ((( This one is a video )))
+_Modulation of the Neurophysiological Response to Fearful and Stressful Stimuli Through Repetitive Religious Chanting_ (This one is a video)
 
 https://app.jove.com/v/62960/modulation-neurophysiological-response-to-fearful-stressful-stimuli
 
-##### Om chanting modulates the processing of negative stimuli: Behavioral and electrophysiological evidence
+_Om chanting modulates the processing of negative stimuli: Behavioral and electrophysiological evidence_
 
 https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2022.943243/full
 
-##### Religious Chanting and Self-Related Brain Regions: A Multi-Modal Neuroimaging Study
+_Religious Chanting and Self-Related Brain Regions: A Multi-Modal Neuroimaging Study_
 
 https://app.jove.com/t/66221/religious-chanting-self-related-brain-regions-multi-modal
 
-##### The Neurophysiological Correlates of Religious Chanting
+_The Neurophysiological Correlates of Religious Chanting_
 
 https://www.nature.com/articles/s41598-019-40200-w
