@@ -96,7 +96,7 @@ However ...  we aren't always perfect.
 It's normal for us to have a difficult time with the hands we are dealt, in some cases it would be abnormal not to.. 
 The good news is that our biology is equipped to handle this.
 Stress is normal and can be catalyst for us to learn new things and grow, but distress is just downright uncomfortable.
-If we stay in this pain, where stress is severe and prolonged, the negative energy it holds will eat us from the inside out. Accumulatively over time, the vulnerability of our brain and body will become impaired right down to the level of our DNA. [[Roots of Illness\|Roots of Illness]]
+If we stay in this pain, where stress is severe and prolonged, the negative energy it holds will eat us from the inside out. Accumulatively over time, the vulnerability of our brain and body will become impaired right down to the level of our DNA. --> [[Roots of Illness\|Roots of Illness]]
 Knowing the ways in which neuroplasticity works empowers us with the ability to clean things up and improve our situation.
 We aren't broken or cursed to a fragmented experience of life. We don't have to sit in a garden drowning in weeds. A pill, in most circumstances, is a band-aid. 
 As long as we embrace, process, and reconceptualize our challenges, we can navigate our way through them. 
