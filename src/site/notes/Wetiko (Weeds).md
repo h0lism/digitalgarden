@@ -2,6 +2,15 @@
 {"dg-publish":true,"permalink":"/wetiko-weeds/"}
 ---
 
-You just wait...... this one will be 🔥
+Soon to come
 
-[Astral Fragments]
+Rene Girard's Mimetic theory
+- Summary of this lecture series https://www.youtube.com/watch?v=5Qu6vBebwwg&list=PL_xn3B6eWvGsILrh5v5nq0rMp6OjuBOo9
+
+Lower Astral Entities
+
+Archons
+
+Shadow Projection
+
+Astral Fragments

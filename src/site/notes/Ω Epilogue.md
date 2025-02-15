@@ -39,5 +39,4 @@ Your physical body is a biological piece of matter that expanded outwardly from 
 
 Your soul grows like a flower within God’s Garden. In a vast meadow, we stand side by side. Growing in a unified field(of consciousness), we are all pulling nutrients out from the same soil, drinking the same water, and receiving sunlight from the same source(Ohr Ein Sof, “The Infinite Light”). Blessed with a greater degree of freedom than plan(e)t(ary) counterparts, we are gifted the opportunity to direct and influence our growth in the moment as its happening so as to affect what our seeds blossom into. We get the choice, this is our free-will. We also have the ability to greatly impact other plants around us. We exist simultaneously as both the gardener and the garden. We are here to learn to balance that dance. We are here to learn what to grow and how to grow it.
 
-Cheers to us having a bountiful harvest.
 

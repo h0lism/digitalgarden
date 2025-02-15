@@ -42,6 +42,8 @@ Within the tradition,
 We experience God as Shekinah, it’s feminine aspect. 
 
 
+
+
 "For at that time I will change the speech of the peoples to pure speech, that all of them may call upon the name of the Lord and serve him with one accord"
 	Zephaniah 3:9 
 
@@ -55,7 +57,7 @@ Bat-Kol (בת קול) Literally means "daughter of a voice" in Hebrew, and is ge
 
 
 
-They would summon beings to teach you thinks rapidly 
+They would summon beings to teach you things rapidly 
 -Downloading information 
 
 
