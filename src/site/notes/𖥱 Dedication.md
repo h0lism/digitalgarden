@@ -33,11 +33,11 @@ To be continued …
 
 Now lets rewind a moment. 
 
-In the months prior to this situation with Susan, I had my own, quite profound, exploration into the concept of Kali and began to dedicate myself to the Kali Mantra. 
+In the months prior to this situation with Susan, I had my own, quite profound exploration into the concept of Kali. From this point I began to dedicate myself to the Kali Mantra. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HgH_7ZA9Hnc?si=xxi9RVm2Py-z7Ftr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-This video popped up in my suggestions on YouTube about 1 week after it was uploaded. When I began to watch it, and discovered that he went by the name [[Babaji\|Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. The first being that the man was inspired to go up the mountain and begin his life of Sadhana only after a strange figure, Sri Babaji, suddenly appeared and delivered the message that it was time. After he decided to follow the instructions and trek his way up the mountain to serve .
+This video popped up in my suggestions on YouTube about 1 week after it was uploaded. When I began to watch it, and discovered that he went by the name [[𓂀Prequel/Babaji\|Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. The first being that the man was inspired to go up the mountain and begin his life of Sadhana only after a strange figure, Sri Babaji, suddenly appeared and delivered the message that it was time. After he decided to follow the instructions and trek his way up the mountain to serve .
 
 Having had my own "UFO" experience, when he began to describe a powerful buzzing force that came up the mountain and was, what seemed like, zapping his energy from him, my interest was further amplified. The extraterrestrial phenomenon has always been a spiritual matter to me, aspects of the deeper levels of the reality one can touch upon through the exploration of the mind. My personal experiences with Babaji were tied to the period where I had my little UFO scenario occur. Lastly, listening to the message he is delivering, there is an immense importance that he places on the Kali mantra. Claiming it to be the most important mantra that we could be doing at this time, given we are in the tail end of the age of Kali. It felt as though somehow I had been guided to this video, that it was some sort of initiation, a nudge for me to begin doing the Kali mantra myself. 
 

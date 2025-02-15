@@ -13,7 +13,7 @@ He calls it the therapeutic reconsolidation process (trp)
 
 they saw the well defined sequence of experiences, or set of experiences 
 that always were there right before a major breakthrough
-where the clients major longstanding symptom or problem pattern dissapears
+where the clients major longstanding symptom or problem pattern disappears
 and the underlying distressed schema - or version of reality/core beliefs
 also are fully depotentiated 
 no longer feel real at all
