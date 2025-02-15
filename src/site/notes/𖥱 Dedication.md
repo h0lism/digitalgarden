@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/dedication/"}
 ---
 
-
 One of the main inspirations for me to put this together was the recent death of Susan Jane Hall. She was a yoga instructor at the studio I frequent and someone I got to know a little bit over the last 3 years. 
 
 She had a band called “Bijaa,” and they were quite musically talented. Going to one of their kirtan events was my original introduction to mantra. Chanting those sounds, as silly and weird and foolish as I felt in the moment, completely evolved my life and brought me to a place unrecognizable to the situation I was in originally. Susan played a critical role, whether she knew it or not, in helping me along my kundalini awakening journey. 
@@ -34,7 +33,7 @@ To be continued …
 
 Now lets rewind a moment. 
 
-In the months prior to this situation with Susan, I had a profound introduction the the Kali Mantra. 
+In the months prior to this situation with Susan, I had my own, quite profound, exploration into the concept of Kali and began to dedicate myself to the Kali Mantra. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HgH_7ZA9Hnc?si=xxi9RVm2Py-z7Ftr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
@@ -55,7 +54,7 @@ Now, I was totally fine and so was the person that I ran into. It was really suc
 
 
 
-
+Susan was the only person I knew that was really into Kali. I don't think that she was even diagnosed before 
 
 
 
