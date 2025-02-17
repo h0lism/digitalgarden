@@ -89,3 +89,22 @@ Highly polarized beings can serve as catalysts for the rest of the society, but 
 
 "...he who sleeps during harvest is a disgraceful son."
 	Proverbs 10:5
+
+
+The Confederation entities began working with Carla in 1974
+
+In 1974, the most powerful broadcast ever deliberately beamed into space was made from Puerto Rico. The [Arecibo Message](https://www.scientificamerican.com/article/the-arecibo-message-earths-first-interstellar-transmission-turns-50/)
+
+Don Elkins commits suicide shortly after they finished their work with Ra.
+
+https://www.lawofone.info/Epilogue
+
+Let's not ignore the extensive discussion on "psychic attack" which they continuously reference and are having to deal with throughout the book. 
+
+May Don's death be a demonstration of the potential truth that this lesser known aspect of reality holds, heeding caution to those who seek to perform similar spiritual work - knocking on the doors of wonder. 
+
+The Kabbalistic notion of the Qlippoth, specifically the rigorous torture which one whom has a bright inner light radiating from their being must endure, explains this. 
+
+[[Wetiko (Weeds)\|Wetiko (Weeds)]]
+
+Rest in peace

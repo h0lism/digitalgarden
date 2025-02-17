@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/kundalini-fertilizer/"}
 ---
 
+
+
 Kundalini is a Sanskrit word, which means "coiled one"—it refers to a
 form of primal energy called Shakti
 
