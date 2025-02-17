@@ -37,9 +37,53 @@ In the months prior to this situation with Susan, I had my own, quite profound e
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HgH_7ZA9Hnc?si=xxi9RVm2Py-z7Ftr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-This video popped up in my suggestions on YouTube about 1 week after it was uploaded. When I began to watch it, and discovered that he went by the name [[𓂀Prequel/Babaji\|Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. The first being that the man was inspired to go up the mountain and begin his life of Sadhana only after a strange figure, Mahavatar Babaji(ah, okay that's what I was looking for), suddenly appeared and delivered the message that it was time for him to do so. He wasn't aware at the time that this was the man whom had instructed him to leave his 3 children and wife to go begin ascetic practices, but obviously he must have sensed something special given that he adhered to the advice(or he was simply eager to abandon his responsibilities as a husband and father.) The strange man with a bundle of sticks claimed that the family would be taken care of and everything would be fine, it was time for him to clear his karmas. I wasn't fully sure how I feel about a man whom decides to do such a thing, I'm not sure I would ever be able to leave my family like that, but I, if I'm being honest with myself, have no ability to truly conceptualize what it is that's going on here. After 1 month he decided to follow the instructions and abandoned his life as a householder, becoming a Sadhu. 
+This video popped up in my suggestions on YouTube about 1 week after it was uploaded.
 
-Having had my own "UFO" experience, when he began to describe a powerful buzzing force that came up the mountain and was, what seemed like, zapping his energy from him, my interest was further amplified. The extraterrestrial phenomenon has always been a spiritual matter to me, aspects of the deeper levels of the reality one can touch upon through the exploration of the mind. My personal experiences with Babaji were tied to the period where I had my little UFO scenario occur. Lastly, listening to the message he is delivering, there is an immense importance that he places on the Kali mantra. Claiming it to be the most important mantra that we could be doing at this time, given we are in the tail end of the age of Kali. It felt as though somehow I had been guided to this video, that it was some sort of initiation, a nudge for me to begin doing the Kali mantra myself. 
+
+  
+The interview takes place at Vālākhilya Mountain in the Gangotri Himalayas, a remote, snowbound region where snowfall, 3 years ago reached 1, but now reaches up to 2–3 feet. The area is largely uninhabited except during a fair that takes place 1-2 months a year. Swamiji, a Telugu-speaking ascetic from Andhra Pradesh, has lived here for three years post-pandemic, surviving on minimal food (often a single biscuit for days), rainwater, and relentless spiritual practice (sādhana). 
+
+Claims his body has adapted to minimal sustenance—no illness, pain, or medicine in 20 years. Collects rainwater for drinking, avoids ground/river water, and attributes his health to Devi’s grace.
+
+Swamiji insists Kāli alone dissolves all karma—past, present, and future—in one stroke. Unlike other deities, she requires no rebirth cycles. Chanting her mantras or reading the Devi Bhāgavatam purifies the soul, even for householders.
+
+Calls human birth in Kali Yuga a “crime” due to rampant materialism. Wealth, lies, and ambition bind souls to suffering. Even sādhus chasing donations or comforts accumulate karma. Refuses donations (even 50,000₹ offers), planes, or comforts. Calls saffron robes irrelevant unless paired with genuine detachment. True sādhus “carry nothing, desire nothing.”
+
+Describes his practice as spontaneous, “electric”: currents surge through his body. These waves of energy wake him up. At times the distinction between sleep and 
+
+Swamiji briefly describes an encounter with a mysterious sādhu, later identified by a devotee as **Mahāvatāra Bābāji**, the immortal Himalayan yogi
+While farming in Karnataka, a wandering sādhu (whom he did not recognize at the time) appeared at his home, with a massive bundle of sticks on his back. 
+"This is your last month with your family. Go to the Himalayas."
+The sādhu assured him his children would thrive and urged him to renounce worldly life immediately.
+
+
+While gathering firewood in the forest, Swamiji encountered a massive tiger. Instead of attacking, the animal calmly walked away as if "called" by an unseen force.
+“Mā showed me her teeth, then her mercy. The beast walked as goats follow a herdsman’s call. Who am I to question her games?”
+
+During the Kedārnāth disaster of 2013, Swamiji endured extreme deprivation: eating snow/ice, urinating blood, and hallucinating from starvation. A voice in his head eventually guided him to Kedārnāth’s ruins, where he found 2 ripe bananas (which he was barely able swallow) near a partially buried Ganesha idol -miraculously preserved despite the devastation(which he was barely able swallow). Rescuers later found him skeletal but alive, declaring him “fine” despite his ordeal.
+
+
+During intense phases of his sādhana, Swamiji claims worms began emerging from his body -specifically from his eyes and hair. In one instance, 10–15 worms crawled out of his eyes; later, while in Pushkar, he says 200–300 worms poured from his scalp daily for a period. He treated the eye worms with “medicine” (unspecified) but let the scalp infestation resolve on its own.
+He attributes this to karmic purification. As he deepened his worship of Kāli, he believes the “karmas of all lifetimes” began physically exiting the body. 
+
+In his words
+
+_“As we start doing Mā Kāli sādhana, the karmas of all life come out of this body in this way… Daily, one karma. I have to bear each karma for 3–4 months.”_
+
+
+During a heavy snowfall, Swamiji witnessed a bright, pulsating light hovering above the mountain. It emitted a low hum and drained his energy as it approached. He retreated to his hut, and by dawn, the light vanished without a trace.
+
+
+Another night, there was a snowstorm at 3 AM, and Swamiji was in deep meditation when he heard Kāli’s voice shout, _“Get up!”_ He jerked his head down just as lightning struck the ground where he’d been sitting, incinerating a 40-foot radius.
+
+
+
+
+When I began to watch it, and discovered that this Sadhu went by the name [[𓂀Prequel/Babaji\|Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. 
+
+The first being that the man was inspired to go up the mountain and begin his life of Sadhana only after a strange figure, Mahavatar Babaji(ah, okay that's what I was looking for), suddenly appeared and delivered the message that it was time for him to do so. He wasn't aware that this was the figure whom instructed him to leave his 3 children and wife to go begin ascetic practices, but obviously he must have sensed something special given that he adhered to the advice(or he was simply eager to abandon his responsibilities as a husband and father.) The strange man with a bundle of sticks claimed that the family would be taken care of and everything would be fine, it was time for him to clear his karmas. I wasn't fully sure how I felt about someone that decides to do such a thing, I'm not sure I would ever be able to leave my family like that, but I, if I'm being honest with myself, have no ability to truly conceptualize what it is that's going on here. After 1 month he decided to follow the instructions and abandoned his life as a householder, becoming a Sadhu. 
+
+Having had my own "UFO" experience, when he began to describe a powerful buzzing force that came up the mountain and was, what seemed like, zapping his energy from him, my interest was further amplified. The extraterrestrial phenomenon has always been a spiritual matter to me, aspects of the deeper levels of the reality one can touch upon through the exploration of the mind. My personal experiences with Mahavatar Babaji were tied to the period where I had my own little UFO scenario occur. Listening to the message he is delivering, there is an immense importance that he places on the Kali mantra. Claiming it to be the most important mantra that we could be doing at this time, given we are in the tail end of the age of Kali. It felt as though somehow I had been guided to this video, that it was some sort of initiation, a nudge for me to begin doing the Kali mantra myself. 
 
 That night I did, for 10 minutes. It felt quite powerful, but of course, perhaps that is just my excitement and the novelty of it all. I'm still not certain whether or not I am feeling into different energies or my mind was making things up. 
 
@@ -47,7 +91,7 @@ The next morning, on my way to work, I decided to do a second round of the mantr
 
 I totaled my car. 
 
-Now, I was totally fine and so was the person that I ran into. It was really such a minor crash, but it had devastating consequences on my vehicle. The romanian woman I crashed into did not speak English very well and was terrified of me. She got out of her car and was fine, but upset with me and calling her husband/son, someone that spoke English. A little while later, her husband got there, talked to her for a moment, and then she got back into her car. The police got there, and then an ambulance. Oh boy. Weren't you fine just a moment ago? Now the theatrics are coming out, they're really going to try and milk this thing. This is hilarious. The paramedics get there and usher this poor woman into an ambulance. She is obviously in a tremendous amount of pain.... right. I remember one of the paramedics giving me a dirty side eye.
+Now, I was totally fine and so was the person that I ran into. It was really such a minor accident, but it had devastating consequences on my vehicle. The Romanian woman I crashed into did not speak English very well and was terrified of me. She got out of her car and was fine, but upset, calling her husband/son, someone that spoke English. A little while later, her husband got there, talked to her for a moment, and then she got back into her car. The police got there, and then an ambulance. Oh boy. Weren't you fine just a moment ago? Now the theatrics are coming out, they're really going to try and milk this thing. This is hilarious. The paramedics get there and usher this poor woman into an ambulance. She is obviously in a tremendous amount of pain.... right. I remember one of the paramedics giving me a dirty side eye.
 
 
 

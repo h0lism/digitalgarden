@@ -21,3 +21,10 @@ In a world where anxiety, depression, and trauma are at all-time highs, Panksepp
 Panksepp’s work suggests that to truly heal, we need to engage the brain’s emotional core. This means therapies that go beyond words—practices that use touch, movement, play, and connection to calm the primal storms of fear, rage, and despair. It means recognizing that emotions aren’t just “in your head”—they’re in your body, your instincts, your evolutionary heritage.
 
 
+• SEEKING  
+• FEAR  
+• RAGE  
+• LUST  
+• CARE  
+• GRIEF  
+• PLAY

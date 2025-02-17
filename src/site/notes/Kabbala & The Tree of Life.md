@@ -2,7 +2,9 @@
 {"dg-publish":true,"permalink":"/kabbala-and-the-tree-of-life/"}
 ---
 
-Early stages
+Early stages summarization of everything throughought this lecture series, amongst other sources I've dabbled in
+
+https://www.youtube.com/watch?v=ABeeKCygNlw&list=PLZ__PGORcBKxYbdXhBJuaF-C01syNssZZ
 
 
 Kabbala was kept secret sorta hush hush amongst the elites
@@ -71,15 +73,11 @@ Shattered Vessels
 Isaac Luria believed that when God created the world, he did so by forming vessels to hold the Divine Light. The 10 _Sefirot_, the archetypal values through which the cosmos was created, were developed. As the light began to fill these vessels, there came a point where they were unable to contain all of the divinity... they shattered. Sparks of Divine light were trapped in the different shards of these vessels as they scattered throughout the cosmos and formed our world. The job which humanity is tasked to accomplish is reunite the scattered sparks of Light, to repair the broken world, and thus participate in finishing God’s work. 
 
 
-
-[  
-](https://findingourwayhome.blog/wp-content/uploads/2013/11/light-in-hemlock-dsc05517.jpg)
-
-According to Luria, the ten vessels that were originally meant to contain the emanation of God's light were unable to contain that light and were hence either displaced or shattered. As a result of this cosmic catastrophe, the _Sefirot_, the archetypal values through which the cosmos was created, are shattered and out of place, and the world within which we reside, is composed of the shards of the these broken values.
+According to Luria, the ten vessels that were originally meant to contain the emanation of God's light were unable to contain that light and were hence either displaced or shattered. As a result of this cosmic catastrophe, the Sefirot, the archetypal values through which the cosmos was created, are shattered and out of place, and the world within which we reside, is composed of the shards of the these broken values.
 
 Luria's Kabbala was both a refusal and an extension of the reigning kabbalistic ideas during his time. His system is a fully developed, although not always coherent, analysis of the seder hishtalshelut, aka the order of development, or the order of evolution, as a spiraling cycle of hitpashtut (egression) and histallekut (regression). 
 
-The heart of the system is this dialectical structure where everything is happening all at once, yet at the same time everything is also being erased. There is this constant movement to and fro where the world is on one hand becoming exiled, but simultaneously on the other, it is being redeemed. You don't know quite where you are in time and space.
+The heart of the system is this dialectical structure where everything is happening all at once, yet at the same time everything is also being erased. There is this constant movement to and fro where the world is on one hand becoming exiled, but simultaneously on the other, it is being redeemed. You don't know quite where you are in time and space. 
 
 
 
@@ -95,3 +93,6 @@ dybbuk
 
 Tikkun Olam
 
+ruach ha-kodesh
+
+Tikkun Olam

@@ -9,9 +9,9 @@ https://www.youtube.com/watch?v=ei6PZoxx9tA&t=535s
 These could potentially be linked to the different planetary structures of our galaxy. Within 
 
 
-The "Christ-field," the field of unity - oneness and unconditional love.
+The "Buddhic-field," the field of unity - oneness and unconditional love.
 What we think of as Christ, unconditional love, could this simply be a field of vibration, one of a higher dimensional origin, of which we attune to internally, and perhaps even originally stem from?
-This may very difficult, especially in our world which offers so many opportunities to disconnect from it, but perhaps that's part of the challenge, and also the reward for spiritual work. 
+This may be a very difficult perspective, especially in our world which offers so many opportunities to disconnect from, but perhaps that's part of the challenge, and also the reward for spiritual work. 
 
 One unified field of consciousness
 
