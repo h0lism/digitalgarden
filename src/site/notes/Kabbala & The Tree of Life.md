@@ -167,6 +167,10 @@ but once he's undergone both radical evil and radical good he dialectically rise
 
 Evil is tricked into enabling its own undoing, and the mystic becomes a divine double agent, navigating paradox to heal a broken world. 
 
+a cosmic warrior who
+Deliberately enters spiritual darkness, risking personal corruption to redeem the whole.
+the mission remains hidden from both the uninitiated and the Qlippoth.
+
 ![qbl_flamingsword.jpg](/img/user/images/qbl_flamingsword.jpg)
 
 
