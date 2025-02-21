@@ -18,6 +18,11 @@ The 1492 Alhambra Degree was the beginning of the end of the world and  in order
 
 The Tree of Life 
 
+
+The tree is made up of ten spiritual principles, or sefirot, that are united in a mystical state called Da'at. In Da'at, all sefirot are one, sharing and revealing the Divine Light.
+
+The middle pillar of the tree symbolizes cosmic forces flowing invisibly beneath the surface - like sap flowing through its trunk and branches
+
 "In brief, the Tree of Life is a compendium of science, psychology,
 philosophy, and theology." — Dion Fortune
 
@@ -26,6 +31,17 @@ Kabbalah literally means “reception” or “receiving.”
 
 
 The word Kabbalah is a feminine noun and comes from the Hebrew root Qof-Beit-Lamed (קבל), which means "to receive" or "to accept."
+
+The creator is constantly giving. 
+And giving at 100%, withholding nothing 
+Why am I not receiving?
+I don’t have the vessel
+I don’t have the capacity 
+There is negativity, blockages which are in the way - preventing us from receiving the beneficence that is always there - always present. 
+Slowly  we come to the place where we can overcome ourselves.
+Where we can overcome bad habit
+Overcome our negative judgement
+and make the blessings more constant.  
 
 The word, Qabalah, originates from the Hebrew "QBL," meaning "an oral
 tradition." The Qabalah is the esoteric component of Judaism, referred to
@@ -96,3 +112,76 @@ Tikkun Olam
 ruach ha-kodesh
 
 Tikkun Olam
+
+Bhagavad Gita 15:1-5
+
+The Blessed Lord said: There is a banyan tree which has its roots upward and its branches down and whose leaves are the Vedic hymns. One who knows this tree is the knower of the Vedas.
+
+The branches of this tree extend downward and upward, nourished by the three modes of material nature. The twigs are the objects of the senses. This tree also has roots going down, and these are bound to the fruitive actions of human society.
+
+The real form of this tree cannot be perceived in this world. No one can understand where it ends, where it begins, or where its foundation is. But with determination one must cut down this tree with the weapon of detachment. So doing, one must seek that place from which, having once gone, one never returns, and there surrender to that Supreme Personality of Godhead from whom everything has begun and in whom everything is abiding since time immemorial.
+
+One who is free from illusion, false prestige, and false association, who understands the eternal, who is done with material lust and is freed from the duality of happiness and distress, and who knows how to surrender unto the Supreme Person, attains to that eternal kingdom.
+
+![0-nn-cosmictree_sm.jpg](/img/user/images/0-nn-cosmictree_sm.jpg)
+
+![58b1c2f89d43a8bae47a1bb6d4459cbf (1).jpg](/img/user/images/58b1c2f89d43a8bae47a1bb6d4459cbf%20(1).jpg)
+
+"Thou art the tree of the world (whose roots extend upwards and branches hang downwards). Thou art the banian"
+-Mahabarata (Page 1,950)
+
+
+Odin's self-sacrifice. He sacrificed his eye in Mimir's well and he threw himself on his spear Gungnir in a kind of symbolic, ritual suicide. He then **hanged himself in Yggdrasil, the tree of life, for nine days and nine nights in order to gain knowledge of other worlds and be able to understand the runes**.
+
+Nathan of Gaza - The Tortured Soul of the Messiah
+
+Plunged into the deepest depths of the Qlippoth, into the hellish torment of the parasitism at the
+very abyss of non-existence is the tortured soul of the Messiah, wrestling with the horrid Dragon of the depths. In some of the more extreme passages it appears that the soul of the Messiah even began as an aspect of this horrid Dragon of the depths, although Nathan of Gaza never seems to fully commit to this idea. 
+
+the fuel upon which the parasitic qlippoth feed, being so far from the Divine Light these righteous souls are actually necessary for the Demonic husks to maintain any existence at all - plunged into the very abyss, near non-being, these bright sparks are like fuel cells which prevent the qlippoth from tattering off into pure non-existence
+
+those settled into the depths of the tahiru could only be released from the
+clutches of the qlippoth by an act of cunning or Divine trickery or fraud to trick the forces of evil into releasing those really righteous Souls
+
+this was primarily done by the Divine destining those souls to undergo or commit a deed in their life so awful or morally outrageous that the forces of the qlippoth thought that that this would actually allow them to both feed off of them in this primeval period but also because such horrible deeds will eventually be committed they could also recapture these various powerful souls and thus return them to the depths of the Abyss having committed such Dreadful misdeeds to feed on them forever
+
+However
+
+Engagement with the Qlippoth (evil forces) was actually a divine plan to redeem(Tikkun) the trapped sparks, thereby tricking the Qlippoth into allowing their own undoing.
+
+Resolution of evil into good through the process of redemption
+
+The Messiah’s apparent transgressions were reinterpreted as sacred actions, necessary to dismantle evil from within. 
+
+Minor sins relatively speaking would be overcome by a huger Arc of redemption the Divine had planned - hese apparent sins would actually allow these very powerful Souls a kind of escape velocity from the forces of the qlippoth by engaging in a higher degree of Redemptive work
+
+the talmud has it the more righteous a person is the more tortured by sin they are
+
+ struggling with the worst of the forces of the qlippoth would eventually emerge from those depths but the clepotic influence will remain so profound that he would undergo the heights of divine illumination followed by the depths of soul-crushing sorrow
+
+initial sin giving way to a greater Arc of redemption but they're tortured sojourn in the realm of the clepote leaves it behind a kind of Scar upon their very being such they have a tendency towards such sins and actually Delight in them are are indifferent to such devilish Behavior
+
+but once he's undergone both radical evil and radical good he dialectically rises above both and ascends to the very Realm of the Divine itself
+
+ in transcending his soul as the suffering job the Messiah becomes the chief power over the abyss itself
+
+
+
+![qbl_flamingsword.jpg](/img/user/images/qbl_flamingsword.jpg)
+
+
+
+
+In Kabbalah, a "lightning flash" symbolizes the sudden, powerful flow of divine energy, often represented as light, that moves through the Sefirot (divine emanations) on the Tree of Life. Signifying the rapid transmission of spiritual illumination and insight; it is typically depicted as a lightning bolt.
+
+
+
+72 Names of God: Technology for the Soul
+
+The 72 Names are each 3-letter sequences that act like an index to specific, spiritual frequencies; believed to possess certain spiritual powers as combinations of divine energies that can help with healing, protection, and other spiritual endeavors as they help us focus and use the gifts of the Spirit.
+
+Within the Torah, we find that there are three consecutive verses from Exodus, each with 72 letters, found in chapter 14, verses 19-21. 
+
+
+
+Shem HaMephorash

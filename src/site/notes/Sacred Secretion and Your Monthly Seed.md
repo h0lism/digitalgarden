@@ -19,3 +19,5 @@ The next phrase is κατὰ μῆνα ἕκαστον ἀποδιδοῦν τ�
 Pornography is one of the ways the demonic presence lives in our world, incest as the fastest rising category shows us how this force operates and attempts to corrupt even the family unit, the most sacred of unions. 
 
 Masturbation in satanic circles is even referred to as child sacrifice.
+
+The Ra Contact 
