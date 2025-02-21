@@ -171,6 +171,22 @@ a cosmic warrior who
 Deliberately enters spiritual darkness, risking personal corruption to redeem the whole.
 the mission remains hidden from both the uninitiated and the Qlippoth.
 
+[17](https://www.lawofone.info/s/17).[19](https://www.lawofone.info/s/17#19) **Questioner:** How did **Jesus** learn this during his incarnation?
+
+**Ra:** I am Ra. This entity learned the ability by a natural kind of remembering at a very young age. Unfortunately, this entity first discovered his ability to penetrate intelligent infinity by becoming the distortion you call “angry” at a ****playmate****. This entity was touched by the entity known as **Jesus** to you and was fatally wounded.  
+  
+Thus the one known as **Jesus** became aware that there dwelt in him a terrible potential. This entity determined to discover how to use this energy for the good, not for the negative. This entity was extremely positively polarized and remembered more than most Wanderers do.
+
+[17](https://www.lawofone.info/s/17).[20](https://www.lawofone.info/s/17#20) **Questioner:** How did this aggressive action against a ****playmate**** affect **Jesus** in his spiritual growth? Where did he go after his physical death?
+
+**Ra:** I am Ra. The entity you call **Jesus** was galvanized by this experience and began a lifetime of seeking and searching. This entity studied first day and night in its own religious constructs which you call Judaism and was learned enough to be a rabbi, as you call the teach/learners of this particular rhythm or distortion of understanding, at a very young age.  
+  
+At the age of approximately thirteen and one-half of your years, this entity left the dwelling place of its earthly family, as you would call it, and walked into many other places seeking further information. This went on sporadically until the entity was approximately twenty-five, at which time it returned to its family dwelling, and learned and practiced the art of its earthly father.  
+  
+When the entity hpad become able to integrate or synthesize all experiences, the entity began to speak to other-selves and teach/learn what it had felt during the preceding years to be of an worthwhile nature. The entity was absolved karmically of the destruction of an other-self when it was in its last portion of lifetime and spoke upon what you would call a cross saying, “Father, forgive them for they know not what they do.” In forgiveness lies the stoppage of the wheel of action, or what you call karma.
+
+
+
 ![qbl_flamingsword.jpg](/img/user/images/qbl_flamingsword.jpg)
 
 
