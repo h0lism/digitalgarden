@@ -165,7 +165,7 @@ but once he's undergone both radical evil and radical good he dialectically rise
 
  in transcending his soul as the suffering job the Messiah becomes the chief power over the abyss itself
 
-
+Evil is tricked into enabling its own undoing, and the mystic becomes a divine double agent, navigating paradox to heal a broken world. 
 
 ![qbl_flamingsword.jpg](/img/user/images/qbl_flamingsword.jpg)
 
