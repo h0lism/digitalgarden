@@ -13,4 +13,7 @@ Archons
 
 Shadow Projection
 
-Astral Fragments
+Astral Fragments 
+
+The Qlippoth
+

@@ -43,7 +43,7 @@ No figure looms larger in the history of Sanskrit than the grammarian Panini(who
 "The descriptive grammar of Sanskrit, which Pāṇini brought to its perfection, is one of the greatest monuments of human intelligence and an indispensable model for the description of languages."
 - Leonard Bloomfield, American Linguist
 
-"..those who have tested Panini's work will readly admit, that there is no Grammar in any language, that could vie with the wonderful mechanism of his eight books of Grammatical rules." 
+"..those who have tested Panini's work will readily admit, that there is no Grammar in any language, that could vie with the wonderful mechanism of his eight books of Grammatical rules." 
 - Max Müller, German Philogist
 
 "Modern linguistics acknowledges it as the most complete generative grammar of any language yet written, and continues to adopt technical ideas from it."

@@ -183,7 +183,7 @@ Thus the one known as **Jesus** became aware that there dwelt in him a terribl
   
 At the age of approximately thirteen and one-half of your years, this entity left the dwelling place of its earthly family, as you would call it, and walked into many other places seeking further information. This went on sporadically until the entity was approximately twenty-five, at which time it returned to its family dwelling, and learned and practiced the art of its earthly father.  
   
-When the entity hpad become able to integrate or synthesize all experiences, the entity began to speak to other-selves and teach/learn what it had felt during the preceding years to be of an worthwhile nature. The entity was absolved karmically of the destruction of an other-self when it was in its last portion of lifetime and spoke upon what you would call a cross saying, “Father, forgive them for they know not what they do.” In forgiveness lies the stoppage of the wheel of action, or what you call karma.
+When the entity had become able to integrate or synthesize all experiences, the entity began to speak to other-selves and teach/learn what it had felt during the preceding years to be of an worthwhile nature. The entity was absolved karmically of the destruction of an other-self when it was in its last portion of lifetime and spoke upon what you would call a cross saying, “Father, forgive them for they know not what they do.” In forgiveness lies the stoppage of the wheel of action, or what you call karma.
 
 
 
