@@ -16,3 +16,13 @@ These are parts of our personality that have been hurt in some way (usually in o
 Managers are the parts of us that handle day-to-day operations. Proactive protectors, they attempt to keep the individual in control of every situation and every relationship, in an effort to keep parts from having to feel any sort of hurt or rejection. This can show up in any number of ways, even combining parts through controlling, striving, caretaking, evaluating/judging, constant planning, self-criticism, terrorizing others etc.
 3. Firefighters
 Firefighters are reactive parts, or groups of parts, which activate in response to exiles that are activated. They seek to control and ‘extinguish’ their overwhelming feelings. This can show up as drug or alcohol abuse, self mutilation(cutting), binge-eating, sex binges, pornography etc. Firefighters have the same goals as managers(keeping exiles at bay), but they have different methods of accomplishing that task. 
+
+More insights to come soon, already finished all of these 
+
+No Bad Parts: Healing Trauma and Restoring Wholeness with the Internal Family Systems Model
+
+Somatic Internal Family Systems Therapy: Awareness, Breath, Resonance, Movement and Touch in Practice
+
+You Are the One You've Been Waiting For: Applying Internal Family Systems to Intimate Relationships
+
+Internal Family Systems Therapy 2nd Edition
