@@ -17,7 +17,7 @@ Managers are the parts of us that handle day-to-day operations. Proactive protec
 3. Firefighters
 Firefighters are reactive parts, or groups of parts, which activate in response to exiles that are activated. They seek to control and ‘extinguish’ their overwhelming feelings. This can show up as drug or alcohol abuse, self mutilation(cutting), binge-eating, sex binges, pornography etc. Firefighters have the same goals as managers(keeping exiles at bay), but they have different methods of accomplishing that task. 
 
-More insights to come soon, already finished all of these 
+More insights to come soon from
 
 No Bad Parts: Healing Trauma and Restoring Wholeness with the Internal Family Systems Model
 
