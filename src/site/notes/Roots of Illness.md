@@ -66,3 +66,8 @@ Why do we not hear more about this? *cough* big pharma *cough*
 
 
 
+I wasn't sure whether to add a bit about Iokera to this. Not fully certain if I was overreaching my theories and potentially being insensitive, it was something I kept on the backburner for a bit. Eventually I got to thinking, if my little experience with the Orb des
+
+Eventually I decided to think this out a bit more to my favorite piece of his. I had listened to this one countless times in the past, when I first discovered it I was playing it repeatedly, even shedding a few tears at one point as some part of me resonated so deeply with the soundscape, its profound capture of emotional discord, intense grief, unrelenting anguish, and feeling as though one were broken. 
+
+His music is really quite impressive. A lot of it is also quite heavy. 
