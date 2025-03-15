@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/dedication/"}
 ---
 
-One of the main inspirations for me to put this together was the recent death of Susan Jane Hall. She was a yoga instructor at the studio I frequent and someone I got to know a little bit over the last 3 years. 
+![Screenshot 2025-03-11 061007.png](/img/user/images/Screenshot%202025-03-11%20061007.png)One of the main inspirations for me to put this together was the recent death of Susan Jane Hall. She was a yoga instructor at the studio I frequent and someone I got to know a little bit over the last 3 years. 
 
 She had a band called “Bijaa,” and they were quite musically talented. Going to one of their kirtan events was my original introduction to mantra. Chanting those sounds, as silly and weird and foolish as I felt in the moment, completely evolved my life and brought me to a place unrecognizable to the situation I was in originally. Susan played a critical role, whether she knew it or not, in helping me along my kundalini awakening journey. 
 
@@ -25,6 +25,20 @@ There is evidence linking certain personality traits to an increased risk of col
 
 At the memorial I attended, there was a very common theme amongst individuals sharing their experiences with Susan – that she was a pretty intense person. Many people were initially overwhelmed by, in conflict with, or intimidated by her. Dr. Gabor Mate, a leading expert on trauma and its correlation with illness, describes in his latest book “The Myth of Normal,” that he began to see the linkages between different illnesses and what was being said about individuals in their obituaries, particularly what was being said about their personalities.
 
+"In synthesis, we can state that among personality factors the constructs of emotional regulation and relational style gathered the most part of the studies. The role of anger regulation received a consistent attention across different studies, and it might be related to CRC incidence. However, the small number of studies, the different methods of assessment and direction of the findings do not allow any clear conclusion. However, the involvement of a dysregulation of the anger control system warrant further study in the field of CRC. Anger means a cascade of events through multiple communication pathways, including autonomic and immune system, neurotransmitters, and an inflammatory cascade via the gut-brain axis potentially influencing intestinal microbiota (Huanga et al., 2021). We still do not know if long-lasting abnormal anger control may lead to gut dysbiosis-mediated inflammation which may affect colon epithelium influencing carcinogenesis (Otegbeye et al., 2021)."
+
+"Moreover, we underline a likely role for dimensions related to conflict aspects on the incidence of CRC."
+\
+Post-chemotherapy patients often experience lingering immunosuppression. A significant stressor during this period could exacerbate immune dysfunction, creating a window of vulnerability where latent cancer cells might escape dormancy and metastasize to the bones
+
+Stress may indirectly contribute to bone metastasis by affecting osteoclast activity. High levels of stress-related hormones, such as norepinephrine, can enhance osteoclast function, potentially creating a more conducive environment for metastatic cancer cells in the bone.
+
+
+https://pmc.ncbi.nlm.nih.gov/articles/PMC8595914/pdf/fpsyg-12-590320.pdf
+
+The connection between psychological factors and cancer recurrence is complex and multifaceted.
+
+
 To be continued …
 
 
@@ -33,12 +47,13 @@ To be continued …
 
 Now lets rewind a moment. 
 
-In the months prior to this situation with Susan, I had my own, quite profound exploration into the concept of Kali. From this point I began to dedicate myself to the Kali Mantra. 
+In the months prior to this situation with Susan,
+I had a quite profound, intimate introduction to the energies of Kali. 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HgH_7ZA9Hnc?si=xxi9RVm2Py-z7Ftr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 This video popped up in my suggestions on YouTube about 1 week after it was uploaded.
-
+I was particular curious about the 
 
   
 The interview takes place at Vālākhilya Mountain in the Gangotri Himalayas, a remote, snowbound region where snowfall, 3 years ago reached 1, but now reaches up to 2–3 feet. The area is largely uninhabited except during a fair that takes place 1-2 months a year. Swamiji, a Telugu-speaking ascetic from Andhra Pradesh, has lived here for three years post-pandemic, surviving on minimal food (often a single biscuit for days), rainwater, and relentless spiritual practice (sādhana). 
@@ -58,6 +73,7 @@ The sādhu assured him his children would thrive and urged him to renounce world
 
 
 While gathering firewood in the forest, Swamiji encountered a massive tiger. Instead of attacking, the animal calmly walked away as if "called" by an unseen force.
+
 “Mā showed me her teeth, then her mercy. The beast walked as goats follow a herdsman’s call. Who am I to question her games?”
 
 During the Kedārnāth disaster of 2013, Swamiji endured extreme deprivation: eating snow/ice, urinating blood, and hallucinating from starvation. A voice in his head eventually guided him to Kedārnāth’s ruins, where he found 2 ripe bananas (which he was barely able swallow) near a partially buried Ganesha idol -miraculously preserved despite the devastation(which he was barely able swallow). Rescuers later found him skeletal but alive, declaring him “fine” despite his ordeal.
@@ -71,7 +87,7 @@ In his words
 _“As we start doing Mā Kāli sādhana, the karmas of all life come out of this body in this way… Daily, one karma. I have to bear each karma for 3–4 months.”_
 
 
-During a heavy snowfall, Swamiji witnessed a bright, pulsating light hovering above the mountain. It emitted a low hum and drained his energy as it approached. He retreated to his hut, and by dawn, the light vanished without a trace.
+During a heavy snowfall, Swamiji witnessed a bright, pulsating light hovering above the mountain. It emitted a low hum and supposedly began to "drain" his energy as it approached. He retreated to his hut, and by dawn, the light vanished without a trace.
 
 
 Another night, there was a snowstorm at 3 AM, and Swamiji was in deep meditation when he heard Kāli’s voice shout, _“Get up!”_ He jerked his head down just as lightning struck the ground where he’d been sitting, incinerating a 40-foot radius.
@@ -79,7 +95,7 @@ Another night, there was a snowstorm at 3 AM, and Swamiji was in deep meditation
 
 
 
-When I began to watch it, and discovered that this Sadhu went by the name [[𓂀Prequel/Babaji\|Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. 
+When I began to watch it, and discovered that this Sadhu went by the name [[𓂀Prequel/3. Babaji\|3. Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. 
 
 The first being that the man was inspired to go up the mountain and begin his life of Sadhana only after a strange figure, Mahavatar Babaji(ah, okay that's what I was looking for), suddenly appeared and delivered the message that it was time for him to do so. He wasn't aware that this was the figure whom instructed him to leave his 3 children and wife to go begin ascetic practices, but obviously he must have sensed something special given that he adhered to the advice(or he was simply eager to abandon his responsibilities as a husband and father.) The strange man with a bundle of sticks claimed that the family would be taken care of and everything would be fine, it was time for him to clear his karmas. I wasn't fully sure how I felt about someone that decides to do such a thing, I'm not sure I would ever be able to leave my family like that, but I, if I'm being honest with myself, have no ability to truly conceptualize what it is that's going on here. After 1 month he decided to follow the instructions and abandoned his life as a householder, becoming a Sadhu. 
 
@@ -91,11 +107,36 @@ The next morning, on my way to work, I decided to do a second round of the mantr
 
 I totaled my car. 
 
-Now, I was totally fine and so was the person that I ran into. It was really such a minor accident, but it had devastating consequences on my vehicle. The Romanian woman I crashed into did not speak English very well and was terrified of me. She got out of her car and was fine, but upset, calling her husband/son, someone that spoke English. A little while later, her husband got there, talked to her for a moment, and then she got back into her car. The police got there, and then an ambulance. Oh boy. Weren't you fine just a moment ago? Now the theatrics are coming out, they're really going to try and milk this thing. This is hilarious. The paramedics get there and usher this poor woman into an ambulance. She is obviously in a tremendous amount of pain.... right. I remember one of the paramedics giving me a dirty side eye.
 
 
 
+Av in the Jewish calendar in 2023 was from ==July 19 to August 2==.
+- The name "Av" literally means "father"
 
+
+The Hebrew name Azazel (ʿĂzāʾzēl) means =="scapegoat"==![Screenshot 2025-03-11 050653.png](/img/user/images/Screenshot%202025-03-11%20050653.png)
+
+- In the Book of Enoch, Azazel is described as a leader of rebellious angels who taught forbidden knowledge to humans
+
+https://alastairadversaria.com/2014/04/27/jesus-the-goat-for-azazel/
+
+[7](https://www.biblestudytools.com/bbe/leviticus/16-7.html) And he is to take the two goats and put them before the Lord at the door of the Tent of meeting.
+
+[8](https://www.biblestudytools.com/bbe/leviticus/16-8.html) And Aaron will make selection from the two goats by the decision of the Lord, one goat for the Lord and one for Azazel.
+
+[9](https://www.biblestudytools.com/bbe/leviticus/16-9.html) And the goat which is marked out for the Lord, let Aaron give for a sin-offering.
+
+[10](https://www.biblestudytools.com/bbe/leviticus/16-10.html) But the goat for Azazel is to be placed living before the Lord, for the taking away of sin, that it may be sent away for Azazel into the waste land.
+
+[  
+21](https://www.biblestudytools.com/bbe/leviticus/16-21.html) And Aaron, placing his two hands on the head of the living goat, will make a public statement over him of all the evil doings of the children of Israel and all their wrongdoing, in all their sins; and he will put them on the head of the goat and send him away, in the care of a man who will be waiting there, into the waste land.
+
+[22](https://www.biblestudytools.com/bbe/leviticus/16-22.html) And the goat will take all their sins into a land cut off from men, and he will send the goat away into the waste land.
+
+![Screenshot 2025-03-11 061007.png](/img/user/images/Screenshot%202025-03-11%20061007.png)
+
+![Screenshot 2025-03-11 050653.png](/img/user/images/Screenshot%202025-03-11%20050653.png)
+Strong's Lexicon - 1001. bira
 
 
 Susan was the only person I knew that was really into Kali. I don't think that she was even diagnosed before 
