@@ -21,3 +21,9 @@ Pornography is one of the ways the demonic presence lives in our world, incest a
 Masturbation in satanic circles is even referred to as child sacrifice.
 
 The Ra Contact 
+
+
+
+
+"One of the fastest ways to destroy the stability of families and societies is through promiscuity, mental and/or physical, and the best way to maintain stability is through self control. Stability for society is based on morality. Morality is based on harnessing and controlling sexuality."
+
