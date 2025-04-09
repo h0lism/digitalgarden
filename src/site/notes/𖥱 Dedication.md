@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/dedication/"}
 ---
 
-![Screenshot 2025-03-11 061007.png](/img/user/images/Screenshot%202025-03-11%20061007.png)One of the main inspirations for me to put this together was the recent death of Susan Jane Hall. She was a yoga instructor at the studio I frequent and someone I got to know a little bit over the last 3 years. 
+One of the main inspirations for me to put this together was the recent death of Susan Jane Hall. She was a yoga instructor at the studio I frequent and someone I got to know a little bit over the last 3 years. 
 
 She had a band called “Bijaa,” and they were quite musically talented. Going to one of their kirtan events was my original introduction to mantra. Chanting those sounds, as silly and weird and foolish as I felt in the moment, completely evolved my life and brought me to a place unrecognizable to the situation I was in originally. Susan played a critical role, whether she knew it or not, in helping me along my kundalini awakening journey. 
 
@@ -38,8 +38,7 @@ https://pmc.ncbi.nlm.nih.gov/articles/PMC8595914/pdf/fpsyg-12-590320.pdf
 
 The connection between psychological factors and cancer recurrence is complex and multifaceted.
 
-
-To be continued …
+rdhtfjygkuhilujokl;
 
 
 
@@ -52,8 +51,7 @@ I had a quite profound, intimate introduction to the energies of Kali.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/HgH_7ZA9Hnc?si=xxi9RVm2Py-z7Ftr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-This video popped up in my suggestions on YouTube about 1 week after it was uploaded.
-I was particular curious about the 
+
 
   
 The interview takes place at Vālākhilya Mountain in the Gangotri Himalayas, a remote, snowbound region where snowfall, 3 years ago reached 1, but now reaches up to 2–3 feet. The area is largely uninhabited except during a fair that takes place 1-2 months a year. Swamiji, a Telugu-speaking ascetic from Andhra Pradesh, has lived here for three years post-pandemic, surviving on minimal food (often a single biscuit for days), rainwater, and relentless spiritual practice (sādhana). 
@@ -110,11 +108,12 @@ I totaled my car.
 
 
 
-Av in the Jewish calendar in 2023 was from ==July 19 to August 2==.
-- The name "Av" literally means "father"
 
 
-The Hebrew name Azazel (ʿĂzāʾzēl) means =="scapegoat"==![Screenshot 2025-03-11 050653.png](/img/user/images/Screenshot%202025-03-11%20050653.png)
+
+The Hebrew name Azazel (ʿĂzāʾzēl) means "scapegoat"
+
+![Screenshot 2025-03-11 050653.png](/img/user/images/Screenshot%202025-03-11%20050653.png)
 
 - In the Book of Enoch, Azazel is described as a leader of rebellious angels who taught forbidden knowledge to humans
 
@@ -135,8 +134,10 @@ https://alastairadversaria.com/2014/04/27/jesus-the-goat-for-azazel/
 
 ![Screenshot 2025-03-11 061007.png](/img/user/images/Screenshot%202025-03-11%20061007.png)
 
+![Untitled design 2.png](/img/user/images/Untitled%20design%202.png)
+
+
 ![Screenshot 2025-03-11 050653.png](/img/user/images/Screenshot%202025-03-11%20050653.png)
-Strong's Lexicon - 1001. bira
 
 
 Susan was the only person I knew that was really into Kali. I don't think that she was even diagnosed before 
