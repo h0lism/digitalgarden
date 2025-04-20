@@ -26,3 +26,9 @@ Somatic Internal Family Systems Therapy: Awareness, Breath, Resonance, Movement 
 You Are the One You've Been Waiting For: Applying Internal Family Systems to Intimate Relationships
 
 Internal Family Systems Therapy 2nd Edition
+
+
+
+Parts that are burdened with extreme roles, either protectors or exiles, can be likened the Kabbalistic notion of the Qlippoth, resultant from the my catastrophic event known as the shattering of the vessels. These vessels would shatter into divine shards which fell through the metaphysical void, entrapping a portion of the divine light, seemingly separating themselves the primordial light of their source.
+
+The Qlippoth were likened to husks or shells that imprisoned within themselves the divine light of God, being estranged from their Source, becoming the source of evil and personal suffering. 

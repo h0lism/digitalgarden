@@ -103,7 +103,7 @@ Let's not ignore the extensive discussion on "psychic attack" which they continu
 
 May Don's death be a demonstration of the potential truth that this lesser known aspect of reality holds, heeding caution to those who seek to perform similar spiritual work - knocking on the doors of wonder. 
 
-The Kabbalistic notion of the Qlippoth, specifically the rigorous torture which one whom has a bright inner light radiating from their being must endure, explains this. 
+The Kabbalistic notion of the Qlippoth, specifically the rigorous torture which one whom has a bright inner light radiating from their being must endure, may provide for us some sort of theoretical lens to understand why something like this. 
 
 [[Wetiko (Weeds)\|Wetiko (Weeds)]]
 
