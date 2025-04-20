@@ -11,9 +11,11 @@ body {
     //   color: black;
     //  }
 
+/* custom-style.scss */
 
-
-/* --- Define Color Palette Variables --- */
+/* ======================================== */
+/* === 1. DEFINE COLOR PALETTE VARIABLES === */
+/* ======================================== */
 :root {
   --bg-primary: #100b22;       /* Very Dark Purple/Near Black - Main Background */
   --bg-secondary: #2b1e56;    /* Darker Purple - Secondary Backgrounds (code, quotes?) */
@@ -21,6 +23,39 @@ body {
   --text-secondary: #b8b2c9;  /* Grey/Light Lavender - Subtle text, borders? */
   --accent-primary: #6e49e1;   /* Lighter Purple - Links, buttons, highlights */
 }
+
+
+/* ================================== */
+/* === 2. APPLY CORE PALETTE      === */
+/* ================================== */
+body {
+  background-color: var(--bg-primary);
+  color: var(--text-primary); /* Use the variable name */
+}
+
+main.content.cm-s-obsidian {
+   color: var(--text-primary); /* Use the variable name */
+}
+
+h1, h2, h3, h4, h5, h6 {
+   color: var(--text-primary); /* Use the variable name (or --text-secondary) */
+}
+
+main.content.cm-s-obsidian a {
+  color: var(--accent-primary); /* Use the variable name */
+  text-decoration: none;
+}
+
+main.content.cm-s-obsidian a:hover {
+   filter: brightness(1.3);
+}
+
+
+/* ============================================= */
+/* === 3. ADD STYLES FOR OTHER ELEMENTS BELOW === */
+/* ============================================= */
+/* (Continue adding rules for code blocks, etc., */
+/* using the var() syntax as needed)          */
     
     
 }
