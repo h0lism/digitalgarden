@@ -11,22 +11,16 @@ body {
     //   color: black;
     //  }
 
-  /* --- Main Font Color --- */
-main.content.cm-s-obsidian {
-  color: #FDFBD4;
+
+
+/* --- Define Color Palette Variables --- */
+:root {
+  --bg-primary: #100b22;       /* Very Dark Purple/Near Black - Main Background */
+  --bg-secondary: #2b1e56;    /* Darker Purple - Secondary Backgrounds (code, quotes?) */
+  --text-primary: #FFF9E9;     /* Cream - Main Body Text (as you suggested) */
+  --text-secondary: #b8b2c9;  /* Grey/Light Lavender - Subtle text, borders? */
+  --accent-primary: #6e49e1;   /* Lighter Purple - Links, buttons, highlights */
 }
-
-    /* --- Header Title Color --- */
-h1 {
-  color: ##6e49e1;
-}
-
-/* --- Link Color (Global) --- */
-a {
-  color: #6e49e1;
-}
-
-
     
     
 }
