@@ -93,7 +93,7 @@ Another night, there was a snowstorm at 3 AM, and Swamiji was in deep meditation
 
 
 
-When I began to watch it, and discovered that this Sadhu went by the name [[Prequel/3. Babaji\|3. Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. 
+When I began to watch it, and discovered that this Sadhu went by the name [[Prequel𓂀/3. Babaji\|3. Babaji]], my interest was caught. As I watched this little interview, a few things stood out to me. 
 
 The first being that the man was inspired to go up the mountain and begin his life of Sadhana only after a strange figure, Mahavatar Babaji(ah, okay that's what I was looking for), suddenly appeared and delivered the message that it was time for him to do so. He wasn't aware that this was the figure whom instructed him to leave his 3 children and wife to go begin ascetic practices, but obviously he must have sensed something special given that he adhered to the advice(or he was simply eager to abandon his responsibilities as a husband and father.) The strange man with a bundle of sticks claimed that the family would be taken care of and everything would be fine, it was time for him to clear his karmas. I wasn't fully sure how I felt about someone that decides to do such a thing, I'm not sure I would ever be able to leave my family like that, but I, if I'm being honest with myself, have no ability to truly conceptualize what it is that's going on here. After 1 month he decided to follow the instructions and abandoned his life as a householder, becoming a Sadhu. 
 
