@@ -14,7 +14,7 @@ and also about a book that opened his eyes to things years prior,
 
 I had never heard of anything about the number 23 before, except for the movie featuring Jim Carrey. At first, paranoia struck in(good product), and for a moment I thought that maybe this man was subtly attempting to diss me -  referencing the film and mocking my obsession with a silly number directly to my face. I did get in there kinda close to closing.... but no, that couldn't be right. I looked it up and saw there was in fact quite some legitimate obsession with the number, what I'm sure inspired the script for the blockbuster. 
 
-This all reminded me of a song which I used to listen too years prior, titled "23".
+This all reminded me of a song which I used to listen to years prior, titled "23".
 I had gone to look it up, and the individual with the username 23 on Soundcloud was sitting at exactly 7777 followers. How interesting, 4 7s.
 
 
@@ -96,8 +96,7 @@ The thickening of the plot here is absolutely astounding.
 When Apophis was first discovered in 2004, initial observations indicated a small chance, 2.4%, that it would collide with Earth in 2029. This sparked great concern, and Apophis was placed on the highest level of the Torino scale, a method for evaluating impact hazards. Later observations opened this possibility to 2036 or 2068(given it were to have its trajectory continuously altered by Earths gravitational orbit on each passing). Preliminary observations in January 2013 allowed them to predict that this would ultimately not happen, and we would be safe. In March 2021, new radar observations allowed astronomers to precisely recalculate Apophis's orbit. These refined measurements definitively ruled out any risk of the asteroid hitting Earth for at least the next 100 years. As a result, Apophis was removed from international impact hazard lists, alleviating previous concerns about a potential collision, what would have been devastating, the reason why the asteroid was named after the Egyptian god of chaos and destruction. It would have caused a cataclysm unlike anything else our species has ever seen in recorded history. Not on the level of what wiped out the dinosaurs, but still, it would drastically affect the systemic global ecosystem. 
 
 The average diameter of Apophis is estimated to be between 330 and 340 meters (around 1,100 feet). Due to its elongated and possibly peanut-like shape, its longest side stretches to approximately 450 meters (nearly 1,500 feet). To put this into perspective, Apophis is often described as being taller than the Eiffel Tower, or comparable in length to about five NFL football fields.
-
-![apophis-in-new-york-city.jpg.jpeg](/img/user/images/apophis-in-new-york-city.jpg.jpeg)
+![40081662-9329825-image-a-1_1614947641180.jpg](/img/user/images/40081662-9329825-image-a-1_1614947641180.jpg)
 
 The average distance between Earth and the Moon is about 238,855 miles (384,400 kilometers). We have Geostationary satellites that orbit Earth at an altitude of 22,236 miles (35,786 kilometers).
 
@@ -128,8 +127,9 @@ Gareth Collins, a professor in the Department of Earth Science and Engineering a
 
 10,000,000,000,000,000,000  (10 billion billion) Joules
 
-For those of us with no capacity to comprehend such a numbers meaning other than,
-big, 
+For those of us with no capacity to comprehend such a numbers meaning,
+other than,
+# big, 
 he then goes on to say,
 
 "This is equivalent to the explosive yield of the global nuclear arsenal," and further, 
@@ -139,13 +139,20 @@ and a million times more energy than the bombs dropped on Hiroshima."
 Thankfully we're safe though.
 Right?
 
+![apophis-in-new-york-city.jpg.jpeg](/img/user/images/apophis-in-new-york-city.jpg.jpeg)
+	realistic image from The Planetary Society
+
 Some recent studies (in 2024) have explored the very low-probability scenario of Apophis being struck by another, smaller asteroid, which could theoretically alter its path. All it would take would be a simple meteoroid, approximately 1 meter in diameter, to hit Apophis at the wrong place, wrong time. This would be enough to knock Apophis from its current trajectory, putting it on a collision course with Earth. This may have even already happened, Apophis being outside of our line of vision currently, and we would have absolutely no idea until 2027 (at the earliest). However, these studies concluded that the chances of such an event deflecting Apophis into a collision course with Earth are exceedingly remote, on the order of one in a million or less.
 
-As I was putting this together, about a week after my experience, admiring Bladee's subtle references to the scarlet thread theme, I saw this...
+As I was putting this together, about a week after my experience, admiring Bladee's subtle references to the scarlet thread(Shani) theme, I saw this...
 
 ![Pasted image 20250520140011.png| 400](/img/user/images/Pasted%20image%2020250520140011.png)
 
-Who knows..... maybe some aliens have decided that we've got it coming to us, and they decide to pull it in a little closer at the last second? Maybe its a mothership itself, the Annunaki God's which seeded the globe, returning to the planet once again(have you seen Alien vs Predator). 
+and then a few weeks after, I went to listen to it on Soundcloud, for the first time, and was like 1,111.  🫣😦😳😵
+
+![image2 1.png| 400](/img/user/images/image2%201.png)
+
+Who knows..... maybe some aliens have decided that we've got it coming to us, and they decide to pull it in a little closer at the last second? Maybe its a mothership itself, the Annunaki God's which seeded the globe, returning to the planet once again(have you seen Alien vs Predator?). 
 Genuinely, I know its a bit sci-fi and absurd, but could these things be a possibility if we really consider the conditions of our planet today?  
 
 Good thing is, is that on May 15th, the Trump administration decided to propose a plan which would slash NASA's overall budget by 24%. This would include a steep, wait for it, _47%_ cut to NASA's Science Mission Directorate (SMD). This department is responsible for planetary defense efforts, including; detecting, tracking, and characterizing Near-Earth Objects (NEOs) such as asteroids and comets, managing programs and missions aimed at understanding the risk of impacts(developing mitigation strategies), as-well as overseeing crucial planetary defense missions, like the Near-Earth Object (NEO) Surveyor space telescope, which was designed to detect potentially hazardous asteroids. It would be the largest single-year cut to NASA in U.S. history.
@@ -166,13 +173,14 @@ Have you seen the movie Don't Look Up?
 
 Is it possible that some of what was to come was leaked in this screenplay, released to the public without their awareness of the coming Apophis? A sort of humorous ploy, they let the working class watch the film as though it were simply entertainment, and not a warning for what to come, hiding in plain sight what only those who are on the in know? At the very end of the movie, a certain select group of elites, the ultra-rich, escape on a unique spaceship, making it away from the destroyed Earth and arriving on another planet(22,740 years later). They emerge naked, paralleling the Garden of Eden. Discussing the success rate of the cryochambers, the president gets out and remarks that “We only had 47 dead in our section,” right before... well.. you should just see for yourself...
 
+https://www.youtube.com/watch?v=36CZJWgFfHY
 ![[What is it bronteroc  Dont Look Up-1920x1080-avc1-mp4a.mp4]]
 
 What about the movie Melancholia?
 Released November 11th, 2011
 11-11-11
-Its a film showing the different ways in which people are coping with the coming planet, Melancholia, which is flying into Earth. Now, it's a god awful movie, incredibly boring, at-least for me, maybe if I had some mushrooms or something I might get a little out of it(now we're onto something), but it is so inline with the times. In-fact 1hour and 11minutes in, one of the main characters begins describing how scientists have said this thing is just going to fly by and it is not going to hit the planet, trying to calm down his wife as though she was becoming senile. The science seems to debunk things, in the same way science has debunked Apophis. The charts and diagrams, all of it is essentially very similar to Apophis.
-I'm not saying this is some in your face illuminati film, but I mean, the repeating 1's.... I think God leaves little breadcrumbs through the creative work of different people. As art comes through someone, big man upstairs can drop little pieces of the celestial puzzle inside without them having any awareness.
+Its a film showing the different ways in which people are coping with a coming planet, Melancholia, which is flying directly into the Earth. Now, it's a god awful movie, incredibly boring, at-least for me, maybe if I had some mushrooms or something I might get a little out of it(now we're onto something), but it is so inline with the times. In-fact 1hour and 11minutes in, one of the main characters begins describing how scientists have said this thing is just going to fly by and it is not going to hit the planet, trying to calm down his wife as though she was becoming senile. The science seems to debunk things, in the same way science has debunked Apophis. The charts and diagrams, all of it is essentially very similar to Apophis.
+I'm not saying this is some in your face illuminati film, but I mean, the repeating 1's.... I think God leaves little breadcrumbs through the creative work of different people. As art comes through someone, big man upstairs can drop little pieces of the celestial puzzle inside without them having any awareness. Do this on a mass scale, across time and with all the different little humans, and you got yourself a game that only those with 3 eyes can participate it. 
 
 ![melancholia.jpeg](/img/user/images/melancholia.jpeg)
 
@@ -188,16 +196,16 @@ In 2022 their DART mission (Double Asteroid Redirection Test) was a success.
 Flying a 200 million dollar spaceship into an asteroid, they successfully redirected it's course, 
 proving the efficiency of the use of a kinetic impactor. 
 There is a plan to meet to flying rock in space, face to face, kamikazi-ing into the object.  
-We theoretically have the capacity to alter its course, and, if we are lucky, divert it directly into Florida.
+We theoretically have the capacity to alter its course, and, if we are lucky, divert it directly into Florida(304's... YOU ARE BANISHED TO TARTARUS).
 
 "The third angel blew his trumpet, and a great star fell from heaven, blazing like a torch, and it fell on a third of the rivers and on the springs of water. The name of the star is Wormwood. A third of the waters became wormwood, and many died from the water, because it was made bitter. 
 	Revelation 8:10–11
 
 We should consider the fact that this impact would throw a substantial amount of dirt and debris into the upper atmosphere, debris which would not clear for a considerable amount of time. 
 
-In 1816, the largest eruption in recorded history occurred at Mount Tambora, a volcano located in what is now Indonesia. The eruption caused so much Sulphur to fly into the atmosphere that global temperatures dropped, leading to cold weather and food shortages. The reason for the suns absence was unknown to the world at the time, causing mass panic. They did not know that volcanic ash and debris was thrown up into the stratosphere and had blocked the sun, causing a gradual lowering of temperatures. This time was infamously dubbed as the "The Year Without a Summer." This led to famines all across the Northern hemisphere, one of the darkest periods in human history. 
+In 1816, the largest eruption in recorded history occurred at Mount Tambora, a volcano located in what is now Indonesia. The eruption caused so much Sulphur to fly into the atmosphere (sorry I had eggs for breakfast) that global temperatures dropped, leading to cold weather and food shortages. The reason for the suns absence was unknown to the world at the time, causing mass panic. They did not know that volcanic ash and debris was thrown up into the stratosphere and had blocked the sun, causing a gradual lowering of temperatures. This time was infamously dubbed as the "The Year Without a Summer." This led to famines all across the Northern hemisphere, quite literally one of the darkest periods in human history. 
 
-Coincidentally, sun spots (temporary dark areas from strong magnetic fields) appeared (on the sun) that were large enough to be seen by the human eye. This gave seeking scientists a potential cause for the absence of light which used to rain upon the land. 
+Coincidentally, sun spots (temporary dark areas from strong magnetic fields) appeared (on the sun) that were large enough to be seen by the human eye. This gave seeking scientists a potential cause for the absence of light which used to rain upon and nourish the land. 
 
 "The large spots which may now be seen upon the sun's disk have given rise to ridiculous apprehensions and absurd predictions. These spots are said to be the cause of the remarkable and wet weather we have had this Summer; and the increase of these spots is represented to announce a general removal of heat from the globe, the extinction of nature, and the end of the world."
 	from the _London Chronicle_
@@ -206,7 +214,7 @@ A scientist in Italy predicted that the Sun would go out on the 18th of July 181
 
 "A Bath girl woke her aunt and shouted at her that the world was ending, and the woman promptly plunged into a coma. In Liege, a huge cloud in the shape of a mountain hovered over the town, causing alarm among the "old women" who expected the end of the world on the eighteenth. In Ghent, a regiment of cavalry passing through the town during a thunderstorm blew their trumpets, causing "three-fourths of the inhabitants" to rush forth and throw themselves on their knees in the streets, thinking they had heard the seventh trumpet."
 
-That was the context of the month which Lord Byron wrote his poem, the whole of it could be seen as a reference to Matthew 24:29
+That was the context of the month which Lord Byron wrote his poem, the whole of it could be seen as a reference to Matthew 24:29 (which is heavily apocalyptic)
 "the sun shall be darkened."
 
 ![DarknessByron1816.jpg| 500](/img/user/images/DarknessByron1816.jpg)
