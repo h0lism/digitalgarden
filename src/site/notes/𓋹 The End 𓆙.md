@@ -168,6 +168,14 @@ Is it possible that some of what was to come was leaked in this screenplay, rele
 
 ![[What is it bronteroc  Dont Look Up-1920x1080-avc1-mp4a.mp4]]
 
+What about the movie Melancholia?
+Released November 11th, 2011
+11-11-11
+Its a film showing the different ways in which people are coping with the coming planet, Melancholia, which is flying into Earth. Now, it's a god awful movie, incredibly boring, at-least for me, maybe if I had some mushrooms or something I might get a little out of it(now we're onto something), but it is so inline with the times. In-fact 1hour and 11minutes in, one of the main characters begins describing how scientists have said this thing is just going to fly by and it is not going to hit the planet, trying to calm down his wife as though she was becoming senile. The science seems to debunk things, in the same way science has debunked Apophis. The charts and diagrams, all of it is essentially very similar to Apophis.
+I'm not saying this is some in your face illuminati film, but I mean, the repeating 1's.... I think God leaves little breadcrumbs through the creative work of different people. As art comes through someone, big man upstairs can drop little pieces of the celestial puzzle inside without them having any awareness.
+
+![melancholia.jpeg](/img/user/images/melancholia.jpeg)
+
 In every single movie that has ever involved this scenario, the government never admits that the world is coming to an end until the last 72 hours or so.... 
 What if they do end up seeing that this thing was heading right towards Earth?
 Would they tell us?
@@ -412,15 +420,6 @@ which I had actually listened to 3 months before any of this began to take place
 
 ![wizard-conjure-cylinder-magicians-hat-600nw-2292822833.jpeg](/img/user/images/wizard-conjure-cylinder-magicians-hat-600nw-2292822833.jpeg)
 
-
-
-
-
-
-
-
-
-
 Later that night I discovered that a music producer I am a fan of had dropped a new project. Listening to it, I found myself navigating to their twitter. I scrolled a bit and saw that they were making fun of a SoundCloud group which made their members do a ritual in order to join. 
 
 ![Pasted image 20250519231003.png](/img/user/images/Pasted%20image%2020250519231003.png)
@@ -451,10 +450,6 @@ The next day I went to Trader Joes. I ended up seeing someone that I had became 
 
 ![image0.jpeg| 400](/img/user/images/image0.jpeg)
 
-
-
-
-
 My brother and I both decided to do Adderall again in our gardening session the next weekend, 
 I mean, there's a lot to get to if we've only got 4 years left. It was Mothers Day weekend, an occasion which our Mother was out of town for, so we finished the night by taking our Grandmother to dinner at Panera Bread. 
 I checked the receipt.
@@ -462,7 +457,7 @@ How interesting...
 
  ![image1.jpeg| 400](/img/user/images/image1.jpeg)
 
-On that night, the last time I probably ever take Adderall, Two Shane's came face to face and were conversing with one another.
+On that night, the last time I probably ever take Adderall, Two Shane's came face to face and were conversing with one another. 
 
 Worst case scenario, if this thing did fly directly into the planet, the good news is, it wouldn't be powerful enough to take us all out. It would be strong, around 10,000 megatons of TNT strong, over 100,000+ Hiroshima bombs strong, enough to take out a small city like London strong, but it wouldn't separate the sphere in two. If it were to land in water, sure, we may see some 800 ft tsunamis or something, and yeah, maybe they destroy the coastlines of multiple countries, but, we will survive(some of us). 
 
