@@ -321,6 +321,37 @@ Dee records the angel Raphael saying of the book that it contains: _"The Mysteri
 
 “What I speak hath not byn reuealed, no not in these last tymes, of the second last world. But I begynne new worldes, new people, new kings, & new knowledge of a new Gouernment.” “New worlds, shall spring of these. New manners: strange men:” “The old ways cease, the new begin.”
 
+At one point, during the transmission of the first key, Nalvage even tries showing John Dee that the book has its own form of gematria going on, by breaking down the word for truth. 
+
+"N (The number must needs go to) the sixth, descending 309.
+A The 7th ascending 360.
+o The 9th ascending 1000.
+o The 13th ascending 1050.
+V The 17th ascending 2004. It is Vooan. It may be sounded Vaoan.
+NaIvage: Add those last numbers.
+Dee: 309
+360
+1000
+]050
+2004
+4723
+They make 4723
+Nalvage: It is called the Mystical root in the highest ascendant of trans-
+mutation.
+Dee: These phrases are dark. When it shall please God they may be
+made plain.
+Nalvage: It is the square of the Philosophers work.
+Dee: You said it was a root.
+Nalvage: So it is a root square.
+Dee: The square thereof is 22306729 ."
+
+Interesting, so.... 4723 is supposedly the "mystical root in the highest ascendant transmutation?"
+and also "the square of the Philosophers work?"
+
+Not only did the journey begin with a journey centered around the number 47 and 23, but also, the phaoroh dude I have mentioned a few times, that man was born June 23 47 B.C..
+
+![Pasted image 20250610051931.png](/img/user/images/Pasted%20image%2020250610051931.png)
+
 The "language" of _Liber Loagaeth_ was not translated by the angels for Dee, unlike the later Enochian Calls. Its dense, patterned tables of letters appeared chaotic and incomprehensible. Dee himself wrote that the first leaf shown to him was so mysterious that it seemed to contain all knowledge but in an unformed, ungraspable state.
 
 In 1587, while Dee and Kelley were living in Třeboň (in what is now the Czech Republic), Kelley claimed to have received a communication from angels named Madimi and Ill. This angelic message reportedly instructed Dee and Kelley to **exchange wives** as a means of furthering their philosophical and spiritual partnership. John Dee, however hesitant, seemed to be able to confirm that this was the order. Could this have been a test of sorts, or had they been working with demons/fallen angels all along? Dee from all counts drove this man for hours and hours, scrying as though he were an addicted, deranged task master. Perhaps this was a sort of 
