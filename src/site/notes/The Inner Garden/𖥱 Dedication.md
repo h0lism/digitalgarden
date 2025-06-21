@@ -136,7 +136,9 @@ https://alastairadversaria.com/2014/04/27/jesus-the-goat-for-azazel/
 
 
 ![Screenshot 2025-03-11 050653.png](/img/user/images/Screenshot%202025-03-11%20050653.png)
+ "and there were sealed an hundred and forty and four thousand of all the tribes of the children of Israel."
 
+Revelation 7:4
 
 Susan was the only person I knew that was really into Kali. I don't think that she was even diagnosed before 
 
@@ -147,7 +149,7 @@ Susan was the only person I knew that was really into Kali. I don't think that s
 
 
 
-
+Here's a poem I wrote with ChatGPT
 
 In the soil of silence, a mantra is sown,
 A seed of sound, in the mind's fertile loam.

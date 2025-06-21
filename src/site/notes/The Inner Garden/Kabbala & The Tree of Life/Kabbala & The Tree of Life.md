@@ -10,8 +10,9 @@ https://www.youtube.com/watch?v=ABeeKCygNlw&list=PLZ__PGORcBKxYbdXhBJuaF-C01syNs
 Kabbala was kept secret sorta hush hush amongst the elites
 but it eventually begins to be taught in public...
 Why?
-Because they think the world is coming to an end
-The 1492 Alhambra Degree was the beginning of the end of the world and  in order to usher in the messiah, Kabbala began to be taught widespread. 
+Because they began to think that the world was coming to an end.
+The 1492 Alhambra Degree, also known as the Edict of Expulsion, ordered the expulsion of Jews from the kingdom of Spain, giving them until the end of July to leave or convert to Catholicism.
+For apocalyptically minded Kabbalists, this was seen as the beginning of the end of the world. In order to help prepare humanity for this period of tribulation, and to usher in the messiah, rigid holdings to the way things were already being done loosened, and Kabbala began to be taught widespread. 
 
 "By faith we understand that the universe was formed at God's command, so that what is seen was not made out of what was visible."
 
@@ -47,7 +48,6 @@ The word, Qabalah, originates from the Hebrew "QBL," meaning "an oral
 tradition." The Qabalah is the esoteric component of Judaism, referred to
 by Dion Fortune as the "Yoga of the West."
 
-
 A person who studies Kabbalah is called a mekubal, which means "one who receives."
 
 “My brain is only a receiver, in the Universe there is a core from which we obtain knowledge, strength and inspiration. I have not penetrated into the secrets of this core, but I know that it exists.”  
@@ -65,7 +65,7 @@ We experience God as Shekinah, it’s feminine aspect.
 "For at that time I will change the speech of the peoples to pure speech, that all of them may call upon the name of the Lord and serve him with one accord"
 	Zephaniah 3:9 
 
-In the Sefer Yetzirah(The Book of Formation), a foundational Kabbalistic text, it states that Being emerges from divine language. God used the 22 letters, along with the 10 _Sefirot_ (divine emanations), to create existence. The Hebrew letters are the DNA of the universe, the building blocks of reality. They are the physical representation of the divine energy intelligence that created everything, from the planets to the galaxies. Each month is represented by a sign of the zodiac, and by a planet, both created by a Hebrew letter. The Book of Formation explains that by meditating daily on the Hebrew letters specific to the month, you can influence how your month plays out. How one speaks becomes important. Because we hold the capacity for speech, if we speak correctly, we can bend reality to our will. We can see this near its upper bound within the concept of the golem. Perhaps you've heard of Frankenstein... The Sefer Yetzirah lays out a procedure by which one can bring to life an inanimate object. Rabbis were supposedly able to fashion and mold clay into a form, perform a ritual involving the recitation of divine names and specific letter combinations, and bring an object to life. This could be as a calf, a human being, birds, perhaps a gazelle, even plant life. In Midrash and Talmudic sources, Adam is initially created as a golem (גולם) when his dust is "kneaded into a shapeless husk," afterwards being fashioned into a body and then having the soul "breathed into him." No anthropogenic golem is fully human. Early on, the main disability of the golem was its inability to speak. 
+In the Sefer Yetzirah(The Book of Formation), a foundational Kabbalistic text, it states that Being emerges from divine language. God used the 22 letters, along with the 10 _Sefirot_ (divine emanations), to create existence. The Hebrew letters are the DNA of the universe, the building blocks of reality. They are the physical representation of the divine energy intelligence that created everything, from the planets to the galaxies. Each month is represented by a sign of the zodiac, and by a planet, both created by a Hebrew letter. The Book of Formation explains that by meditating daily on the Hebrew letters specific to the month, you can influence how your month plays out. How one speaks becomes important. Because we hold the capacity for speech, if we speak correctly, we can bend reality to our will. We can see this near its upper bound within the concept of the golem. Perhaps you've heard of Frankenstein... The Sefer Yetzirah lays out a procedure by which one can bring to life an inanimate object. Rabbis were supposedly able to fashion and mold clay into a form, perform a ritual involving the recitation of divine names and specific letter combinations, and bring that object to life. This could be as a calf, a human being, birds, perhaps a gazelle, even plant life. In Midrash and Talmudic sources, Adam is initially created as a golem (גולם) when his dust is "kneaded into a shapeless husk," afterwards being fashioned into a body, and then finally having the soul "breathed into him." No anthropogenic golem is fully human. Early on, the main disability of the golem was its inability to speak. 
 
 Sufism, a mystical form of Islam, has a tradition of attributing significance to letters as-well. Ilm al-Huruf (عِلْم الْحُرُوف) (the science of letters), lays out the science of the special qualities of each of the 28 letters of the Arabic alphabet, as well as their diverse qualities when combined with one another, similar to what is described in the Sepher Yetzirah. What is very interesting is that both the Arabic language and the Hebrew language start with alif/alef.
 
@@ -112,6 +112,7 @@ Tikkun Olam
 ruach ha-kodesh
 
 Tikkun Olam
+
 
 Bhagavad Gita 15:1-5
 
