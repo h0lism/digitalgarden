@@ -142,6 +142,7 @@ Revelation 7:4
 
 Susan was the only person I knew that was really into Kali. I don't think that she was even diagnosed before 
 
+Shiva getting stepped on by Kali story here.... 
 
 
 

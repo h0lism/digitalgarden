@@ -525,8 +525,7 @@ the words of poet to ponder as their annihilation is unfolding...
 ![Pasted image 20250513040405.png](/img/user/images/Pasted%20image%2020250513040405.png)
 ![Screenshot 2025-05-06 035606.png](/img/user/images/Screenshot%202025-05-06%20035606.png)
 
-
-
+![[Timeline 1.mov]]
 
 ![Screenshot 2025-04-16 015939.png](/img/user/images/Gematria/Screenshot%202025-04-16%20015939.png)
 
