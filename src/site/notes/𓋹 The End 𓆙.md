@@ -174,7 +174,7 @@ Have you seen the movie Don't Look Up?
 Is it possible that some of what was to come was leaked in this screenplay, released to the public without their awareness of the coming Apophis? A sort of humorous ploy, they let the working class watch the film as though it were simply entertainment, and not a warning for what to come, hiding in plain sight what only those who are on the in know? At the very end of the movie, a certain select group of elites, the ultra-rich, escape on a unique spaceship, making it away from the destroyed Earth and arriving on another planet(22,740 years later). They emerge naked, paralleling the Garden of Eden. Discussing the success rate of the cryochambers, the president gets out and remarks that “We only had 47 dead in our section,” right before... well.. you should just see for yourself...
 
 https://www.youtube.com/watch?v=36CZJWgFfHY
-![[What is it bronteroc  Dont Look Up-1920x1080-avc1-mp4a.mp4]]
+<blockquote class="bluesky-embed" data-bluesky-uri="at://did:plc:vb6jimdt27o2hnobsqhferuc/app.bsky.feed.post/3lsspl5nrc42z" data-bluesky-cid="bafyreiavqfwwvai3h7dmh6ztoaamldklzrymlustwhvt722rzmaigmp3jq" data-bluesky-embed-color-mode="system"><p lang="en"><br><br><a href="https://bsky.app/profile/did:plc:vb6jimdt27o2hnobsqhferuc/post/3lsspl5nrc42z?ref_src=embed">[image or embed]</a></p>&mdash; thorn2000.bsky.social (<a href="https://bsky.app/profile/did:plc:vb6jimdt27o2hnobsqhferuc?ref_src=embed">@thorn2000.bsky.social</a>) <a href="https://bsky.app/profile/did:plc:vb6jimdt27o2hnobsqhferuc/post/3lsspl5nrc42z?ref_src=embed">June 30, 2025 at 12:57 AM</a></blockquote><script async src="https://embed.bsky.app/static/embed.js" charset="utf-8"></script>
 
 What about the movie Melancholia?
 Released November 11th, 2011
@@ -521,11 +521,11 @@ the words of poet to ponder as their annihilation is unfolding...
 
 ![giphy.gif](/img/user/images/giphy.gif)
 
+Please don't think I'm taking this form of gematria too seriously, it's mostly just for fun.. or is it..
+
 ![Screenshot 2025-05-06 035824.png](/img/user/images/Screenshot%202025-05-06%20035824.png)
 ![Pasted image 20250513040405.png](/img/user/images/Pasted%20image%2020250513040405.png)
 ![Screenshot 2025-05-06 035606.png](/img/user/images/Screenshot%202025-05-06%20035606.png)
-
-![[Timeline 1.mov]]
 
 ![Screenshot 2025-04-16 015939.png](/img/user/images/Gematria/Screenshot%202025-04-16%20015939.png)
 
