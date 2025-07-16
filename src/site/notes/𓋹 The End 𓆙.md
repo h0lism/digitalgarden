@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/the-end/"}
 ---
 
+(still a lot of work to do here check back in a month)
+
 I had gone to the dispensary, 
 and, as I was checking out, 
 began in conversation with the cashier. 
@@ -485,9 +487,6 @@ I came across this...
 
 ![Pasted image 20250520003116.png](/img/user/images/Pasted%20image%2020250520003116.png)
 
-The next day I went to Trader Joes. I ended up seeing someone that I had became friends with there, and got into a conversation. Eventually he was called to work register and told me he'd see me over there. I finished my shopping and navigated over to the open stand he was posted up at. We talked about a smoked gouda quesadilla which he had created earlier that week, how the idea for it was inspired by first recommending the tasty dairy product to a customer(give and you shall receive). Before you know it, he was done scanning my haul, and the total was $27.77. An accident of some kind happened, and the employee discount button was pressed by the slip of a finger(20%), and my new total came down to $22.22. Checking the receipt, it seemed that the glitch ended up creating a $5.55 discount. You can do the math yourself, the perfection of this is specific sequence of numbers is beyond my comprehension. I am not certain how many other combinations would elicit repeating numerals in the same manner. 
-
-![image0.jpeg| 400](/img/user/images/image0.jpeg)
 
 My brother and I both decided to do Adderall again in our gardening session the next weekend, 
 I mean, there's a lot to get to if we've only got 4 years left. It was Mothers Day weekend, an occasion which our Mother was out of town for, so we finished the night by taking our Grandmother to dinner at Panera Bread. 
@@ -522,6 +521,8 @@ the words of poet to ponder as their annihilation is unfolding...
 ![giphy.gif](/img/user/images/giphy.gif)
 
 Please don't think I'm taking this form of gematria too seriously, it's mostly just for fun.. or is it..
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MAgsFCC7I8c?si=bEFy4xPjff5cSk8I" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ![Screenshot 2025-05-06 035824.png](/img/user/images/Screenshot%202025-05-06%20035824.png)
 ![Pasted image 20250513040405.png](/img/user/images/Pasted%20image%2020250513040405.png)
