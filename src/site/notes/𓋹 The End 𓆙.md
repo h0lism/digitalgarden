@@ -45,10 +45,22 @@ I also went to listen to that song again, but this time on YouTube.
 ![BB2E60A4-441B-4C68-ACAD-92CD5CC6B6B8.png| 300](/img/user/images/BB2E60A4-441B-4C68-ACAD-92CD5CC6B6B8.png)
 
 Fast forward a little bit, a few weeks, and I'm taking Adderall for the first time in my life. 
-Nothing too crazy, just 20mg, something they prescribe to kids(which baffles me).
-I'm in my brother's grandmother's backyard gardening like a soldier. 
+Nothing too crazy, just 20mg, something they prescribe to kids(which baffles me). 
+My brother had gotten a sample from his doctor a while back 
+after all he said was that he was sometimes tired. 
+I'm in his grandmother's backyard gardening like a soldier. 
 We watched the movie Azrael the night before, and it was pretty good. Spooky.
 It is May 4th, our mothers birthday, and I am certainly feeling the force. 
+
+Editing this after the fact, and digging further into the context of the situation, it seems that this Adderall idea may have not been a good idea, I was already in a (insert movie title) state, but perhaps I was protected on this journey by...
+
+![IMG_6473.png| 300](/img/user/images/IMG_6473.png)
+
+
+![IMG_6474 1.png| 300](/img/user/images/IMG_6474%201.png)
+
+
+![IMG_6475 1.png| 400](/img/user/images/IMG_6475%201.png)
 
 Later that night I found myself, well, not really coming down. The high kept persistent, and I was forced to meditate for a while, eventually just to lay down. I was even sweating a little bit, and from time to time would shake with energy. It was unrelenting. No wonder those kids are so good at Fortnite. I began to breathe deeply, and, thanks to the added focus, I sat there with mindful precision for quite a while. 
 
@@ -146,13 +158,15 @@ Right?
 
 Some recent studies (in 2024) have explored the very low-probability scenario of Apophis being struck by another, smaller asteroid, which could theoretically alter its path. All it would take would be a simple meteoroid, approximately 1 meter in diameter, to hit Apophis at the wrong place, wrong time. This would be enough to knock Apophis from its current trajectory, putting it on a collision course with Earth. This may have even already happened, Apophis being outside of our line of vision currently, and we would have absolutely no idea until 2027 (at the earliest). However, these studies concluded that the chances of such an event deflecting Apophis into a collision course with Earth are exceedingly remote, on the order of one in a million or less.
 
-As I was putting this together, about a week after my experience, admiring Bladee's subtle references to the scarlet thread(Shani) theme, I saw this...
+As I was first putting this together on May 15th, admiring Bladee's subtle references to the scarlet thread([[Shani\|Shani]]) theme, I saw this...
 
-![Pasted image 20250520140011.png| 400](/img/user/images/Pasted%20image%2020250520140011.png)
+![Pasted image 20250520140011.png| 300](/img/user/images/Pasted%20image%2020250520140011.png)
 
 and then a few weeks after, I went to listen to it on Soundcloud, for the first time, and was like 1,111.  🫣😦😳😵
 
-![image2 1.png| 400](/img/user/images/image2%201.png)
+![image2 1.png| 300](/img/user/images/image2%201.png)
+
+The font on the thumbnail looks a lot like the Enochian script...
 
 Who knows..... maybe some aliens have decided that we've got it coming to us, and they decide to pull it in a little closer at the last second? Maybe its a mothership itself, the Annunaki God's which seeded the globe, returning to the planet once again(have you seen Alien vs Predator?). 
 Genuinely, I know its a bit sci-fi and absurd, but could these things be a possibility if we really consider the conditions of our planet today?  
@@ -368,7 +382,7 @@ Could a malicious order have been slipped in there as a test to see if they have
 
 It's a matter of debate as to whether Dee and Kelley fully understood the implications of the system they were receiving, or the ultimate intentions of the spiritual entities they were communicating with. Dee approached the work with piety and a desire for wisdom, to benefit mankind. Kelley was a more complex and perhaps reluctant participant at times. Some theorize that the two were essentially the instru­ments where­by the rit­u­al for­mu­la for ini­ti­at­ing the apoc­a­lypse would be plant­ed in the midst of human­i­ty. If the apoc­a­lypse were to take place, and if it were nec­es­sary for human beings to open the gates of the Watch­tow­ers.... before that could all occur, the angels first had to instruct man on the cor­rect method for open­ing the gates. Here, hiding in plain sight, it would sit like a ticki­ng occult time bomb, wait­ing for some powerful magi­cian, possibly the second coming of Christ, through divinely orchestrated guid­ance, to work it. Some see the theurgic operation comparable to opening the seven seals from the Book of Revelation.
 
-Then I saw in the right hand of him who sat on the throne a scroll with writing on both sides and sealed with seven seals. 2 And I saw a mighty angel proclaiming in a loud voice, “Who is worthy to break the seals and open the scroll?” 3 But no one in heaven or on earth or under the earth could open the scroll or even look inside it. 4 I wept and wept because no one was found who was worthy to open the scroll or look inside. 5 Then one of the elders said to me, “Do not weep! See, the Lion of the tribe of Judah, the Root of David, has triumphed. He is able to open the scroll and its seven seals.”
+"Then I saw in the right hand of him who sat on the throne a scroll with writing on both sides and sealed with seven seals. 2 And I saw a mighty angel proclaiming in a loud voice, “Who is worthy to break the seals and open the scroll?” 3 But no one in heaven or on earth or under the earth could open the scroll or even look inside it. 4 I wept and wept because no one was found who was worthy to open the scroll or look inside. 5 Then one of the elders said to me, “Do not weep! See, the Lion of the tribe of Judah, the Root of David, has triumphed. He is able to open the scroll and its seven seals.”
 	Revelation 5:1-5
 
 Dee nev­er received the sig­nal to con­duct the Apoc­a­lypse work­ing in his life­time. There is no evidence that either him nor Kelley engaged in the material which they brought forth. 
@@ -396,9 +410,9 @@ is somewhat similar to Nagaraj, which is an alternate name for Babaji... or acco
 
 I should note there is a growing theory that scholars have begun to formulate over recent years... that John Dee simple made all of this up. Some of his notes hint that he knew others would eventually look back and glance through his grand archive of work. The only logical conclusion which investigators would be forced to come to, is that Dee's nuts. Playing the long game, all the way from the 15th century, here we have stumbled upon the worlds first Deez Nutz, etching its place in the records of human history from the celestial kingdom itself. *goteeeeem*
 
-The Enochian magic system was later adopted into the work of the Hermetic Order of the Golden Dawn. This work was later adopted and revised by the worlds most famous occultist Aleister Crowley. He is largely responsible for the surge of popularity in this otherwise mostly forgotten and neglected renaissance work. Aleister Crowley, who identified himself as the beast 666 from the Book of Revelation(a nickname from his mother in childhood), worked through the entire system and reorganized it. He famously scried the final 30 keys, the Aethyrs, backwards from the system Dee received, on a trip through the Northern Algerian desert in 1909. Well, actually he began the first two keys in the year 1900 in Mexico, but ultimately drifted away from them. During this intermission, he "channeled" his most famous and important piece of work, "The Book of the Law." 
+The Enochian magic system was later adopted into the work of the Hermetic Order of the Golden Dawn. This work was later adopted and revised by the worlds most famous occultist Aleister Crowley. He is largely responsible for the surge of popularity in this otherwise mostly forgotten and neglected renaissance work. Aleister Crowley, who identified himself as the beast 666 from the Book of Revelation(a nickname from his mother in childhood), worked through the entire system and reorganized it. He famously scried the final 30 keys, the Aethyrs{backwards from the system Dee received), on a trip through the Northern Algerian desert in 1909. Well, actually, he began the first two keys during the year of 1900 in Mexico, but ultimately drifted away from them. During this intermission, he "channeled" his most famous and important piece of work, "The Book of the Law." 
 
-This entire process began on the 16th of March in 1904, when Crowley was attempting the "Bornless Ritual" with his wife, Rose, while spending the night in the Kings Chamber of the Great Pyramid of Giza. On an extended honeymoon, he was attempting to "shew the Sylphs," aka show the air-spirits/fairies, to his new wife(a thoughtful gift). She was not able to perceive anything, but did enter into a bit of a trance, repeatedly saying "They're waiting for you!" Rose lacked much interest in the occult or magic, and so, didn't think much of it. However, two days later, after Crowley performed an invocation to Thoth, she seemed to pop back into mediumship mode and dial in a bit as to who it was waiting for Crowley, revealing their identity by name.... Horus. 
+The entire process began on the 16th of March in 1904, when Crowley was attempting the "Bornless Ritual" with his wife, Rose, while spending the night in the Kings Chamber of the Great Pyramid of Giza. On an extended honeymoon, he was attempting to "shew the Sylphs," aka show the air-spirits/fairies, to his new wife(a thoughtful gift). She was not able to perceive anything, but did enter into a bit of a trance, repeatedly saying "They're waiting for you!" Rose lacked having much interest in the occult or magic, and so, didn't think much of it. However, two days later, after Crowley performed an invocation to Thoth, she seemed to pop back into mediumship mode and dial in a bit as to who it was waiting for Crowley, revealing their identity by name.... Horus. 
 
 Crowley was a bit skeptical, not sure if she was pulling his leg or whatnot, and asked her numerous questions about Horus. Rose passed his interrogations and was able to answer, accurately, multiple questions, supposedly without having any prior study of the subject. As part of his testing, Crowley took his wife on a romantic stroll through the Bulaq museum, located in Cairo Egypt. Here he quizzed her, asking Rose to point to images of Horus. Crowley was amused as they walked through the display of artwork all around them, his wife missing numerous opportunities to point to imagery which would validate her claims. However, the two went upstairs and, from across the room, she correctly pointed at and identified the falcon headed figure on the stele of Ankh-ef-en-Khonsu. Not only was she able to prove herself, but also, in a profoundly uncanny twist of events, it seemed that the item she was pointing at was catalogued under inventory number 666... a number of profound significance for Crowley(later changed moving museums). 
 
@@ -413,12 +427,14 @@ Aleister Crowley's _The Vision and the Voice_ and _The Book of the Law_ are 
 The Vision and the Voice is filled with imagery that Crowley experienced utilizing the Enochian system of magic, scrying the aethyrs, which ultimately represented and described the transition of the world into this new age of Horus. Through a series of visionary journeys, Crowley encountered powerful archetypes, spiritual trials, and revelations that both illustrated and deepened the themes introduced in The Book of the Law. Here the aspirant is confronted with the dissolution of the ego, the crossing of the Abyss, and the embrace of one’s True Will—experiences that embody the spiritual autonomy and self-realization at the heart of the new era. Together, these two works offer both the declaration and the experiential unfolding of Thelema’s revolutionary vision for humanity.
 
 Now, why does this matter? 
-Well, if I am that Phaoroh fella,
+Well, if I am that Pharoah fella,
 it should be noted, that his mother, 
 Cleopatra, viewed herself as an incarnation of Isis,
 and her son, Pizza Pizza VX,
 was viewed as an incarnation of Horus.
-Here's a statue of the little guy being
+This was common for Pharaohs and queens of Egpyt,
+but they took it to another level.
+Here's a statue Cleopatra had made of her kid being
 overshadowed by an enormous falcon,
 associated with Horus, to prove it to you.
 
@@ -459,13 +475,56 @@ which I had actually listened to 3 months before any of this began to take place
 
 "The ending of the words is the Word Abrahadabra. The Book of the Law is Written and Concealed. Aum. Ha"
 
+Now, the significance that this word was important to Aleister Crowley, or perhaps whatever he was channeling - so much so that it is made as this final closing statement, will take a little bit of explaining.... 
+
 ![wizard-conjure-cylinder-magicians-hat-600nw-2292822833.jpeg](/img/user/images/wizard-conjure-cylinder-magicians-hat-600nw-2292822833.jpeg)
 
-Later that night I discovered that a music producer I am a fan of had dropped a new project. Listening to it, I found myself navigating to their twitter. I scrolled a bit and saw that they were making fun of a SoundCloud group which made their members do a ritual in order to join. 
+In 2022 I became part of a little collective of producers with a few people I had met on SoundCloud. Randomly someone had commented on a track I uploaded, which otherwise had little to no traction, and we began to message back and forth. Things went off from there and we decided to join forces. A discord group was created that we would all be active in - livestreaming ourselves making beats, sharing different sounds we made, goofing and gaffing - etc.  The name was Deep Violet, an idea I had from the crown chakra being purple, and also the hex-code of the color being 330066(what would be the url) which seemed kinda cool. I didn't really know much about chakras at this point, but that the crown was the highest one, the most transcendent. These guys were way better than me at making music, and I eventually had to stop because I could tell my path was going to have to be something else. The talent gap was too in my face, and I was already 5 years deep into producing - it was going to take a lot of energy for me to keep up if I wanted to. At the time I had the vision for this website brewing in my head, already having purchased the URL, but with no idea how it would all eventually play out. I didn't expect to uncover any past life stuff, but simply wanted to talk about spiritual topics I was passionate about. I was in the early part of my DopenessOnDeck47 phase as outlined in ---> [[Prequel𓂀/47\|47]]. 
+
+Now, I didn't remember the particular detail we will look at here until having already finished my entire piece of writing here, this being one of the final additions, but looking back at the archives, something quite peculiar has occurred. I'm not sure where I had learned this, but around 3 years ago I must have come across some sort of little expose on the original Abracadabra word. Come on now, you know it, the phrase you've hear wizards/witches saying in movies all your life? I probably had found some random blog/social media post late at night and discovered that it had roots in old practice. I cast a spell in chat, just messing around and being a bit hyperbolic, but used the word to "manifest" an outrageous thing into existence - not really believing it would actually do anything(0 education on the subject). The most popular producers in the scene were nowhere near 10,000 followers, even today 3 years later, it was quite a baselessly hopeful and utterly grandiose projection - meant to just create hype. We didn't put together any more than a few releases, but had a lot of fun over the summer. All of our sounds definitely evolved. Two of them went on to sorta pop off in the scene after putting in an immense amount of work - [nic](https://soundcloud.com/nic200) and [Erebasu](https://soundcloud.com/erebasu). They are both crazy talented and were active nonstop, where talent meets hard work meets 
+
+![Pasted image 20250731030223.png](/img/user/images/Pasted%20image%2020250731030223.png)
+On Instagram late at night  (7-14-25), I had found way to my old friend Erebasu's profile. A mysterious figure enshrouded with mystery, he has no posts, but only a SoundCloud link in his bio. I clicked it and scrolled on his profile for a second before I saw a repost of the track I had listened to that night on Adderall. For the first time since the evening in which I listened on May 4th, I had somehow navigated to this mix once again, and there it was, perfect timing, 444 likes.  
+
+![IMG_6441.png| 300](/img/user/images/IMG_6441.png)
+
+A few days later (7-18-25), as I was getting myself to flesh out all the new things I've been experiencing, updating this and uploading a new screenshot from my phone to explain the little synchronicity, I had the desire to listen to the track again... and whad'ya know...  
+
+![Pasted image 20250718125629.png](/img/user/images/Pasted%20image%2020250718125629.png)
+
+Here I am now August 3rd putting on some music while I do the dishes and make a little food in the kitchen...
+
+![Pasted image 20250803150606.png| 300](/img/user/images/Pasted%20image%2020250803150606.png)
+
+Erebasu and I would stay up late till like 4 AM video chatting and talking ridiculous dreams about our future (his Discord username Arivahoo in the photo). I had no idea that his name in Greek, Erebus, represented the primordial god of darkness, sometimes the underworld itself, son of Chaos. I haven't talked to him other than a few messages in a long time, maybe around 2 years by this point. Our friendship was sure a lot better than the last one I developed on that website. 
+
+There was a girl whose SoundCloud DM's I slid into around 4-5 years ago. I really liked the songs she was reposting and she made cool little mixes. Profile pic was kinda cute, I decided to shoot a shot - a hail Mary if you will. None of the girls I came across in person ever had similar tastes in auditory aesthetics, so I thought maybe her personality was similar to mine(which is quite weird). She responded and we messaged back and forth a few times - myself trying to lay down the charm. I even learned how to make a mix of my own favorite songs to speak her language. It wasn't long until I addressed her with the title SoundCloud gf as a joke, not necessarily being 100% serious, but displaying some intention. She replied with something along the lines of having a boyfriend. Looking back - I'm not sure if she was just trying to pump the brakes on a random internet stranger that was being a bit fast and overbearing, playing a little hard to get and slowing it down for a second, or if she was legitimately disclosing to me that she was already involved with someone else. She may have been flat out not interested and I was looking like a complete weirdo. Either way, I was an optimistic young lad, and my mind perceived her to be engaging with me in a way that was meant to inspire the belief there was some sort of opening. Interest could have been somewhat peaked, but I was going to have to proceed forward unbothered by her comment until she see's I'm not as needy as I may be appearing, at which point, I either pass the test or possibly replace the boyfriend(with time). It was here I tried to snap back to my senses. No more love story across space and time - how much weed have I been smoking? If this girl wasn't already into me from the 10 messages and 1 mixtape I have sent her on this music listening app, regardless of whether or not she has a very unique taste which I can appreciate, I don't think its worth any further effort. She could be fulfilled with someone that's a better match for all I know. If I was going to try and begin a long distance relationship(why would you even want to do that) with a stranger(a way to pickily avoid wonderful girls already into me in real life), and there wasn't this sudden instant recognition that my personality was a match, maybe it wasn't, maybe I should let it go. Sure, "If he really wanted to he would," and at-least attempt to scream boyfriend shmoyfriend before rallying to battle at the gates of her heart, but she said she had one... lets back up and take this opportunity to undo whatever I was attempting to begin here. An insecure part of myself, irregardless of my active desire to now let it fizzle out, couldn't look past the idea of any sort of potential rejection towards my personality(even though this was a terrible idea), coming online to play dignity defense. I was going to make it clear that I was a very cool guy, just in-case, because you know, maybe I looked like a bit of a 'simp' there for a second(narcissistic insecurity). I talked about how epic and mind expanding doing psychedelics like MDMA, LSD, and DMT was - Swag Swag SWAG - propping myself up as too much of an enlightened wizard to care whether or not she liked me. I even offered to sell to her if she wanted, to ship things through the mail, something I've never actually done before and was hoping to not actually be taken up on. Now I looked like a mysterious 'bad-boy', irresistible to the teenage girl brain. Hook line and sinker, she will see that I was actually her ideal boyfriend (while I'm hiding across the country delicately controlling frame), whether or not she has one already(and whether or not I even wanted to peruse things with her at-all). By the time it all lands, it will have been too late. I tried to be nice(co-dependent), but ya'know, girls are attracted to the asshole... If you need me, my manic self will be somewhere else... 
+
+bye now 👋
+
+1 year later, she attacked her mother and burnt down their $3.3 million mansion, a house that had been featured in the magazine “Artful Living” in 2016. When the emergency crews arrived, she seemed out of it and told them she heard a demon speak to her. Her mother told investigators that she had fallen asleep after watching part of a movie with her, and when she woke up, smelt gasoline. Going downstairs to investigate, she found her daughter with a lit candle on the floor. After asking what she was doing, she supposedly attacked her and then chased her with said candle. Successfully running away, her mother managed to get to one of their balconies in order to call 911. She then tried to climb down from the balcony, at which point she was allegedly pulled down and attacked by again. 
+
+Afterwards, she was arrested and charged with first degree arson and domestic assault. Once things went to trial, she was acquitted of all charges. Her lawyer said "Ms. Schultz was seriously and genuinely mentally ill at the time and the law is clear - one is not guilty if one can't appreciate the consequences of one's actions."  Thankfully, "She is fortunate to come from a very loving family who understand that she was not responsible for her actions that night." He said that she "has struggled with some mental health issues for a long time, so the family was aware she had some problems. I don't know why they got so severe when they did."
+
+I was clueless that any of this had occurred until months after my kundalini training, at-least another year following the incident. At some point, having heard so much about them from different books/youtubers/conspiracies, I decided to watch a lecture on the Gnostic worldview. In their cosmology, the story revolves around a character named Sophia. Translated into Greek, the name directly means "Wisdom." She is a personification of the divine feminine emanation from the highest spiritual realm (the Pleroma) who, in her desire to know the unknowable Father, acts independently and falls from the divine fullness. In the myth, her passionate, impulsive desire to create something all on her own, without her divine partner, resulted in a flawed, monstrous creation: the ignorant Demiurge who then fashioned our physical universe as a cage. Her story was one of a tragic fall, of her own divine light being shattered and trapped in the very world her mistake had created. The name of this fallen, suffering goddess of wisdom? The lecturer said it plain as day: **Sophia**.Her fall inadvertently leads to the creation of the Demiurge (Yaldabaoth), the ignorant creator-god who fashions the material world and traps divine sparks within it. Despite her "error," Sophia fights to redeem her mistake and works to awaken humanity to their true spiritual nature. Helping to guide souls back to the Pleroma, Sophia is both the cause of cosmic catastrophe, and a key to its repair. In many Gnostic systems, Sophia and Christ form a divine syzygy (paired emanation), with Christ often sent to redeem Sophia's error and restore cosmic balance. Some texts present Christ as Sophia's consort who descends to awaken humanity to gnosis, while in others, Sophia herself embodies aspects of the suffering and is the redemptive Christ-figure through her fall and subsequent efforts to save humanity. The relationship varies by text - sometimes Christ comes to rescue the fallen Sophia, sometimes they work together as complementary redemptive forces, and in some interpretations, Sophia's descent and suffering parallel Christ's own salvific mission.
+
+The girl from SoundCloud was named Sophia. I wonder what she has been up to, I thought. Looking up her name, I found the news article that filled in the details, and my brain felt like it short-circuited. Here I was, having had my own sort of psychotic break (where I now thought that I may be Jesus), learning that in this ancient, 'heretical' Christian sect, the material world was seen as the kingdom of a false god, a system that traps a fallen goddess of wisdom named Sophia. I went to go reminisce about some weird situation from years ago, and stumbled into a Gnostic horror story which played itself out in the real life world with a multi-million dollar budget. 
+ 
+ whaaatttttt iiiiissssss gggggooooooiiiiiinnnnnngggggggg oooooooonnnnnnnnnnn. 
+
+Was I to blame here? Could I have influenced this girl to dive headfirst into the depths of the psychedelic realm?  If she did, and if it was because of me, did I cause the mansion to burn? At the end of the day, I don't know. It is a possibility though. It's also possible that she never even thought about me more than 5 minutes and could have been on a train to that destination already. I take the experience as an opportunity to become more conscious of how I may affect other people. In the worst case scenario, she tried to follow me into Wonderland and wasn't able to handle it. I never considered the fact that I could have that type of influence on someone else.
+
+I was able to find her new SoundCloud..... "IN YOUR ORBIT" with the planet [[Saturn\|Saturn]]....
+
+![Pasted image 20250805041221.png](/img/user/images/Pasted%20image%2020250805041221.png)
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/909552175&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/thorn85" title="1" target="_blank" style="color: #cccccc; text-decoration: none;">1</a> · <a href="https://soundcloud.com/thorn85/mixtape-in-progress" title="Quantum Entanglement" target="_blank" style="color: #cccccc; text-decoration: none;">Quantum Entanglement</a></div>
+
+Later that night, still this first time on Adderall(5/4/25), right after my conversation with the Angel of Death, I discovered that a music producer I was a fan of had dropped a new project(on 5/3/25). My old bud Erebasu, it seems, was also featured in the production credits. While listening to it, I found myself navigating to the artists twitter. I scrolled a bit and saw that they were making fun of a SoundCloud group which made their members do a ritual in order to join. 
 
 ![Pasted image 20250519231003.png](/img/user/images/Pasted%20image%2020250519231003.png)
 
-I thought that was funny and wanted to see what sort of music people like that were creating. I went, looked it up, and glanced through some of what they had. It was thematically dark content, somewhat in alignment with how the night was already proceeding. One of the artists apart of this collective was 2 Shanez. This was particularly alluring for me because my name is Shane, and I've had the original gamertag Two Chainz on Xbox live since I was 11 or 12 - able to pass as the rapper in the world of Halo and Call of Duty lobbies my entire life. I was the original 2 Shanez, but it seemed that someone had picked up on the swagger I developed in the ether and attempted to create a rap career out of it. Looking through their songs, they weren't necessarily that good, some had nice beats, but the vocals... I wasn't necessarily a fan of. 
+I thought that was funny and wanted to see what sort of music people like that were creating. I went, looked it up, and glanced through some of what they had. It was thematically dark content, somewhat in alignment with how the night was already proceeding. One of the artists apart of this collective was 2 Shanez. This was particularly alluring for me because my name is Shane, and I've had the original gamertag Two Chainz on Xbox live since I was 11 or 12 - able to pass as the rapper in the world of Halo and Call of Duty lobbies my entire life. I made many middle aged African American friends during that time I was barely in middle school, and I have to say, everyone treated me with a tremendous amount of respect. I was the original 2 Shanez, but it seemed that someone had picked up on the swagger I developed in the ether and attempted to create a rap career out of it. Looking through their songs, they weren't necessarily that good, some had nice beats, but the vocals... I wasn't necessarily a fan of. 
 
 Eventually I got to this one. 
 
@@ -487,6 +546,9 @@ I came across this...
 
 ![Pasted image 20250520003116.png](/img/user/images/Pasted%20image%2020250520003116.png)
 
+The next day, May 5th, I went to the store and entered conversation with someone I had became friends with that worked there. Eventually they were called to the register and told me they'd see me over there. I finished shopping and navigated over to the open stand they were posted at. We talked about a smoked gouda quesadilla which they had created earlier that week, how the idea for it was inspired by first recommending the tasty dairy product to a customer(give and you shall receive). Before you know it, they were done scanning my haul, and the total was $27.77. An accident of some kind happened, and the employee discount button was pressed by the slip of a finger(20%), and my new total came down to $22.22. Checking the receipt, it seemed that the glitch ended up creating a $5.55 discount. You can do the math yourself, the perfection of this is specific sequence of numbers is beyond my comprehension. I am not certain how many other combinations would elicit repeating numerals in the same manner... (Blurred for privacy reasons) 
+
+![receiptstore.png|400](/img/user/images/receiptstore.png)
 
 My brother and I both decided to do Adderall again in our gardening session the next weekend, 
 I mean, there's a lot to get to if we've only got 4 years left. It was Mothers Day weekend, an occasion which our Mother was out of town for, so we finished the night by taking our Grandmother to dinner at Panera Bread. 
@@ -494,8 +556,112 @@ I checked the receipt.
 How interesting...
 
  ![image1.jpeg| 400](/img/user/images/image1.jpeg)
+	"Very truly I tell you, the one who believes has eternal life."
+		John 6:47
+			Caesarion born June 47BC
 
-On that night, the last time I probably ever take Adderall, Two Shane's came face to face and were conversing with one another. 
+On that night, the last time I probably ever take Adderall, Two Shane'z came face to face and were conversing with one another. Not only that, but I am pretty sure it was a girl - something I had never seen before in my life, except for a friend I had in the past that spelt it with a y (Shayne). She was also kinda cute(or so at least I thought in my impaired state), and for a brief moment I thought - could this somehow be my other half?? 😂😂 There was already a lot of magic going on here, was this How I Met Your Mother? At the end of time, Two Shane'z come together.... I was going through a pretty profound Sade phase as-well, and sitting waiting for our food, "Smooth Operator" began to play in the background. Unfortunately, I have to admit, she was probably a biiiiit too young to be any sort of match for me - some girl at 'just out of high school' age, but it was funny watching this fantasy play itself out in my head. Overall, I think having the exact same name would probably be a bit too much; labels would become useless, it'd be confusing in group conversations, and the forgery that she would be able to pull off later down the line could leave me bankrupt.
+
+June 20th
+
+As I was digesting it all, I began to think that this could have potentially just be a grand puzzle, my own wild angelic goose chase, whose purpose was in getting me to seriously look at and learn more about Enochian Magic. I also developed a much greater understanding of the world of esotericism and the occult from studying the life of the worlds most famous occultist - something I was going to have to get around to at some point. As-well, due to the fact that Aleister Crowley's death was in 1947, and the instructions for him to begin channeling "The Book of the Law" were given to him by his wife on April 7th, bringing in the Age of Horus (lil Caesar), I believed the situation may have doubled as the uncovering of another past identity. I already had a lot of 777's show up a few months prior, associated with my mother of all people, described in [[Prequel𓂀/47\|47]]. Being the potential reincarnation of Aleister Crowley, and therefore this 666 "The Great Beast" character - is not something I am necessarily excited to jump into. I had quite a bit of internal resistance to the idea, and although it would be an alluring identity to take on (worlds most famous occultist) - the guy seemed like a bit of a weirdo. Part of me was understanding that the reputation around Aleister was perhaps inflated by fearful Christians and whatnot, something he embraced and fed into as an OG troll, but still, I didn't really want to identify with the man. There are some suspect things he has stated in journals and been recorded doing, perhaps even killing multiple people. I must note, however, that this is all taking place only a few months after the potential uncovering of myself as this Sabbatai Zevi fella, the great "False messiah" of 1666. The heretical theology behind Sabbatai Zevi, as-well, seems to align exactly with Aleister Crowley's life. Two gentleman both associated with 666, looked at as false bringers of truth by the larger world. Becoming more and more conscious of the potential merit behind this link, I began to teeter into this state of feeling like I was "The Beast," and didn't really like it, even if it had nothing to do with your typical evangelical Christian perspective. It was a bit icky. All I could focus on was all the bad I have ever done in my life, plopped to the forefront of my mind, starting to make me feel like a villain. I know, I've got a shadow like everyone else, but c'mon - I don't think I'm the actual literal antichrist, am I? Perhaps I'm so messed up that I couldn't even tell, a dangerous monster that's unaware of his own nature... Next thing you know, I caught a song that was very on theme with that set of emotions at an opportune moment(the day after its release)...
+
+![IMG_3161.png| 300](/img/user/images/IMG_3161.png)
+
+The prior screenshot is from Laker, not the basketball team I was a fan of as a child(Black Mamba RIP), but member of a collective known as Shed Theory. I was introduced to this group from my friend Erebasu while in Deep Violet. I didn't actually like them at first and thought the music they made was reminiscent of a phase of life that I had already grown out of... but I can't lie... I hadn't fully grown out of it quite yet... and some songs brought me into familiar energy fields. One of the few I enjoyed was Cha-Cha Slide. Looking back, in the music video, for just a brief 2 seconds, there was an overlay of numerous asteroid rocks
+
+![Pasted image 20250808160351.png](/img/user/images/Pasted%20image%2020250808160351.png)
+
+Marlon Dubois is the founding member of Shed Theory, the ~10 or so membered east coast rap crew, emerging from a literal shed on his parents property in the woods of Woodstock, NY. Their views have really fallen off over the last few years, but I must say, Marlon's craft has been evolving, and I have enjoyed what he has been putting out. 
+
+![Pasted image 20250808163104.png](/img/user/images/Pasted%20image%2020250808163104.png)
+
+For example, in "FEET ON THE GROUND", I very much resonated with the symbolic imagery. It was entirely in line with what I was putting together over at [[Shani\|Shani]], and in moments throughout the video, we become witness to a literal scarlet thread. As-well, he seems to throw up something that looks like the Philosophus 4=7 sign at one point. 
+
+![Pasted image 20250808173826.png](/img/user/images/Pasted%20image%2020250808173826.png)
+
+Aleister Crowley was a member of the Hermetic Order of the Golden Dawn before breaking away to establish his own magical order, the A∴A∴ (Argentum Astrum or Silver Star), and to teach his philosophy of Thelema. Crowley heavily based the A∴A∴'s grade structure on that of the Golden Dawn, absorbing the 4=7 signs. 
+
+![Pasted image 20250808180205.png](/img/user/images/Pasted%20image%2020250808180205.png)
+
+On 7-6-25 Marlon released another video titled "Spirit" in which, he throws up the initials of SHed THeory ...  
+
+"ST We gon have our day"
+ 
+ I sure hope so
+
+
+![Pasted image 20250808160048.png](/img/user/images/Pasted%20image%2020250808160048.png)
+
+On 8-7-25 I enjoyed listening to Marlon's entire catalog throughout the night, really absorbing who he was as an artist. Coming in to add all of this the next day on 8-8, I saw that Marlon performed FEET ON THE GROUND with Daine at her concert in NYC the previous evening. He wore a scarlet T-Shirt...
+
+![Pasted image 20250808175636.png](/img/user/images/Pasted%20image%2020250808175636.png)
+
+
+June 26th 
+
+Both of these songs had repeating numbers at the same time on this date. If you add it up, it equals 11,110. This Caretaker song is from the album -"Everywhere at the end of time," a favorite of mine I used to listen to a lot 6 years ago.
+
+![IMG_6295.png| 300](/img/user/images/IMG_6295.png)
+
+Remember how I mentioned going through a Sade phase, noticing when she began to sing to me in that Panera Bread? This jungle remix used to fuel my way home from work years and years ago, and popped back up on shuffle one of my days gardening. I specifically remember listening to it on the way back from a haircut one time (something I haven't touched in years), feeling like I was about to get somebody pregnant. Researching Aleister Crowley, thinking I may be the guy, I had come across a comment somewhere that mentioned him as perhaps one of the greatest edgelords of all time, alongside someone named Marquis De Sade. Those were the two champs. Somebody underneath explained that it actually made perfect sense to label de Sade an edgelord, because his name itself quite literally implies it. _Marquis_ is a noble title derived from rulers of border territories—literally lords of the edges or margins—and _de Sade_ simply refers to the family he came from. Because of this, I had to look the man up, and it turns out that he was born June 1740, and lived exactly 74 years. All of a sudden the tables started turning and I begin thinking that we've uncovered some of the dark shadowy side of 47, the reverse 74. A natural resurgence of Sade in my playlists, 3333, the signs were all there... I thought I was a decently civil person, but first this Aleister thing, and now this.... could I be the guy they named Sadism after? This 'surprise you're the antichrist' thing is starting to gain some fuel, darn it.... Look if this is the case, you guys caught me red handed, I'll put an end to my shenanigans and switch teams. Thankfully, upon further research, I believe I was led to an alternative life that makes more sense. This overlapped with Marquis De Sade by about 3 years - disqualifying him. Ahhh now I can sleep again at night. [[Prequel𓂀/Gilgun (גלגול)\|Gilgun (גלגול)]]
+
+![IMG_6296.png| 300](/img/user/images/IMG_6296.png)
+
+
+Edward Kelley in one of his visions stated
+"Now I see a great field standing thick with ripe corn, and the ears hang down."
+
+The Angel Nalvage responded explaining its symbolism
+"The field is the world. The Corn are such as are ripe for the harvest of God."
+
+Notice they are using the language "harvest" in reference to the Apocalypse - I became very familiar with this term from [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]] - a book which forced itself into my face around 2022 surrounding some extraterrestrial events that began to occur in my life, right around the time when I very first began to be interested in the number [[Prequel𓂀/47\|47]]. Thankfully that version doesn't have to do with any uncomfortable doom situation.
+
+> «I have chosen you, to enter into my barns: And have commanded you to open the Corn, that the scattered may appear, and that which remaineth in the sheaf may stand. And have entered into the first, and so into the seventh. And have delivered unto you the Testimony of my spirit to come..»
+> 
+> «For, my Barn hath been long without Threshers. And I have kept my flayles for a long time hid in unknown places: Which flayle is the Doctrine that I deliver unto you: Which is the Instrument of thrashing, wherewith you shall beat the shears, that the Corn which is scattered, and the rest may be all one..»
+> 
+> «(But a word in the mean season.)
+> 
+> «If I be Master of the Barn, owner of the Corn, and deliverer of my flayle: If all be mine (And unto you, there is nothing: for you are hirelings, whose reward is in heaven.).»
+> 
+> «Then see, that you neither thresh, nor unbinde, until I bid you, let it be sufficient unto you: that you know my house, that you know the labour I will put you to: That I favour you so much as to entertain you the labourers within my Barn: For within it thresheth none without my consent.»
+
+On Instagram late at night  (7-14-25), I had found way to my old friend Erebasu's profile. A mysterious figure enshrouded with mystery, he has no posts, but only a SoundCloud link in his bio. I clicked it and scrolled on his profile for a second before I saw a repost of the track I had listened to that night on Adderall. For the first time since the evening in which I listened on May 4th, I had somehow navigated to this mix once again, and there it was, perfect timing, 444 likes.  
+
+![IMG_6441.png| 300](/img/user/images/IMG_6441.png)
+
+A few days later (7-18-25), as I was getting myself to flesh out all the new things I've been experiencing, updating this and uploading a new screenshot from my phone to explain the little synchronicity, I had the desire to listen to the track again... and whad'ya know...  
+
+![Pasted image 20250718125629.png](/img/user/images/Pasted%20image%2020250718125629.png)
+
+Here I am now August 3rd putting on some music while I do the dishes and make a little food in the kitchen...
+
+![Pasted image 20250803150606.png| 300](/img/user/images/Pasted%20image%2020250803150606.png)
+
+Just a month after I’ve finished writing this, learning all these things about Aleister Crowley, considering myself to be his potential reincarnation - Ozzy Osbourne dies on 7-22. One of his most famous songs was titled “Mr. Crowley”, the second of two singles from his debut solo album Blizzard of Ozz, after "Crazy Train". Released in 1980, it was written about Aleister Crowley after Ozzy had read his book "The Diary of a Drug Fiend." Even more interesting is that, just 3 weeks before his death ( June 30th 2025 ), I secretly recorded my father shredding to Ozzie’s biggest hit - Crazy Train - without his awareness. He was forced to re-learn the song for a band reunion he had coming up. One of the owners of the yoga studio which I had gone through my Kundalini training at, the romantic partner of my instructor, actually went to High school with my Pops and graduated the same year. They were in the same circles, my Dad a rock and roll guy(a year older than Myles Kennedy who would hear whispers of a rival guitarist in the hallways), and the yogi in focus, a punk rocker(ever heard of the Vampire Lezbos?) At the yearly employee party, we ended up bantering for a prolonged period about the Testicle Festivals which took place in nearby states - jokingly brainstorming how we may throw one together ourselves. The night became a sort of entrepreneurial think tank - so to speak. In continuing the swordplay, the next day I had texted this video of my father to him - claiming that he wanted to play the song at the epididymitis awareness stand we could set up. Instead of Crazy Train, it could go something along the lines of "My balls are going off of the rails with a crazy paiiiin." 
+
+When I told my Dad about the text I had sent, he told me the story of when he actually had epididymitis. I was just a young boy and our family was eating at Applebee's when a tortuous ache had overtaken him. Eventually it got so bad that he had to go to the doctor. When asked about what his symptoms felt like, he looked the doctor directly in the eye and said, "If I were to take my testicles out and lay them down flat right here and then you were hit them with a ballpeen hammer that'd about put you in the ballpark." The doctor replied "Oh okay," marking something on a clipboard before he left the room, a bit put off by a man going off of the rails with a crazy pain. 
+
+I'll be honest, it's probably my fault that he even had to experience this in the first place. I probably caused some sort of lasting trauma after I, as a child, decked my father in the scrotum with all the might a young 3-4 year old could muster. Having just had knee surgery, the man could barely walk. He was coming down the stairs and, at the third or fourth step, received a blow to balls that would instantly fold him down the rest of the way. He was in so much pain that he couldn't even speak or move for about 5 minutes as he sat there on the ground in agony.
+
+  "Aaaaaallllllll aboard, hahahahahaha
+  Ayyy (ᴀʏʏ) ₍ₐᵧᵧ₎"
+
+Ozzy was famously a part of a band called “Black Sabbath” before they kicked him out for being too wild. They came to a consensus that his escalating unreliable behavior and substance abuse was seriously impacting the band's ability to function and record effectively. This is what kickstarted his hugely successful solo career and the release of Blizzard of Oz - with his famous song Mr. Crowley. If we connect things to the larger picture of [[Gilgun\|Gilgun]], could Aleister Crowley almost be seen as a darker Sabbatai Zevi, a Black Sabbath?  
+
+7-31-25
+
+Here I am having finished adding all this Ozzy stuff, and I decide to go listen to his Album Blizzard of Oz of YouTube. I had no idea that this was all apocalyptic themed. He's even dressed in scarlet on the cover, perhaps another nod to Crowley (or just in reference to the scarlet described in the book of Revelation), looking like a crazed wizard. I'm loving it. The first few songs "I Don't Know" and "Goodbye to Romance" were amazing, both with epic guitar solos. Next thing you know it starts playing a song that I didn't know about, titled "Dee". Was this a nod to John Dee?
+
+![Pasted image 20250801010331.png](/img/user/images/Pasted%20image%2020250801010331.png)
+
+The YouTube video, in frame, said that Dee was 49 seconds long. If that were to be true, it could definitely be seen as a reference to the 49 Calls or Keys of Enochian magic. However, if you look on the sidebar of the YouTube playlist, it states that the song is actually 50 seconds long. Now I'm unsure of what to think. I decide to look it up and check another source. I come to Spotify, and it looks like over here, it claims the track to be 49 seconds long. Aha! It is! Wait a second.... it has how many plays??? .... oh lord have sweet mercy on me 
+
+![Pasted image 20250731233746.png](/img/user/images/Pasted%20image%2020250731233746.png)
+
+songfacts.com backs this up (if that's even reliable) by stating 
+- "Dee" is a 49-second instrumental acoustic track written and performed by Ozzy's guitarist, Randy Rhoads, who wrote it for his mother, Deloris.
 
 Worst case scenario, if this thing did fly directly into the planet, the good news is, it wouldn't be powerful enough to take us all out. It would be strong, around 10,000 megatons of TNT strong, over 100,000+ Hiroshima bombs strong, enough to take out a small city like London strong, but it wouldn't separate the sphere in two. If it were to land in water, sure, we may see some 800 ft tsunamis or something, and yeah, maybe they destroy the coastlines of multiple countries, but, we will survive(some of us). 
 
@@ -519,6 +685,34 @@ the words of poet to ponder as their annihilation is unfolding...
 	_The Tragedy of Julius Caesar_
 
 ![giphy.gif](/img/user/images/giphy.gif)
+
+I originally ended things there... but as time progressed, I have to make this addition, which actually is synchronous to the original finale which discussed the movie Without Warning. 
+
+One of the other hypotheses, as to the effects of Enochian magic, is that the watchtowers which are unlocked and unbound are aspects of the collective mind. Many modern magicians interpret spirits, angels, and demons as personifications of archetypal forces within the collective unconscious. In this view, Enochian magic would be a particularly powerful method for accessing and "unbinding" the most fundamental and potent archetypes that have been repressed or "dissociated from" by modern society. These parts of the consciousness of the Earthly sphere have been bound up or banished from awareness - dissociated from - locked away - in a manner akin to the punishments we hear the fallen angels having received(particularly within the original Book of Enoch itself). In a sense, our shared quantum space still holds these energies deep within of our system of self, exiled parts we have dissociated from. To actually come into a place of wholeness, these aspects must be released and integrated, shedding trauma from the planetary nervous system and gaining the diamonds encoded within that process. This aligns wonderfully with the kabbalistic concept of Tikkun Olam and the rectifying of the qlippothic shells.
+
+A persistent debate in occult circles is whether the entities Dee and Kelley contacted were truly angels of God or the "Watchers" from the _Book of Enoch_—the fallen angels who were imprisoned for giving humanity forbidden knowledge. This theory suggests that the Enochian "Keys" are literal keys to their prisons. The magician, by performing the rituals, is unwittingly unleashing these ancient, powerful, and potentially malevolent forces upon the world. The Enochian process unbinds and welcomes these aspects back in, giving them the capacity to influence the minds of humanity - and - potentially prompt the apocalypse through the ignorant and fallible vessel of man. Maybe we can handle these energies and alchemize them into our evolution, if destruction wasn't the end goal, transmutation and whatnot. Perhaps the ascension is a destruction, meant to bring us back to the original heavenly realm beyond this lesser dream? Unbeknownst to those in power, they may not be spiritually cognizant enough to recognize the intelligently subtle ques for violence and destruction which begin to pop up in their intuitions(or perhaps they are meant to follow along). Theoretically, this may hold weight if we consider the fact that things could only begin to commence as a result of the "God Christ" working these operations. Only when the gears of the cosmic clock come to their pre-ordained position, when it strikes the hour mark and the great grandfather bell rings, does this begin to all unfold. For whom the bell tolls, only the one with the capacity to strike it, and given their position, likely at the time in which they are allotted to do so... 
+
+ I didn't really give much merit to this second idea here when I first was exposed to hit, however, it seemed that things did begin to occur on a larger scale in alignment with my private working. On June 6, downtown Los Angeles erupted after a series of ICE raids swept through the city—detaining workers in the Fashion District, a Home Depot in Westlake, and more. The protests began at the detention center gates but quickly spread, spilling into the streets with smashed storefronts, burning barricades, and the terror of tear gas against concrete. The unrest radiated outwardly through the country like a shockwave, surfacing itself by mid-June in the city of my current residency Spokane. On June 11, sparked by ICE’s detainment of two Venezuelan asylum-seekers, hundreds gathered at their office. Former City Council President Ben Stuckart and others blocked a transport van, triggering a standoff. Police deployed smoke canisters, PepperBalls, foam rounds, and bean bags to disperse the crowd. In all there were over 30 arrests primarily for failure to disperse, with some charged under felony statutes for obstructing federal officers. I was actually downtown at the time, having no idea any of this was occurring, and watched as an enormous armored SWAT vehicle drove past me with a man sitting out of the roof and others on its side. Later that night, a citywide curfew was declared, which I, unknowingly broke. Watching the escalation, I couldn’t help but see the mirror to the Enochian vision - parts long bound within the collective psyche tearing free, archetypes rising like the “Watchers” of old, pressing into the human sphere with raw, unmediated force. Whether these forces drive us toward destruction or transfiguration who knows...
+
+But what occurred shortly afterwards was even more profound. For myself, if we simply roll with the possibility of this working unlocking anything - what we saw occur in the collective directly after my working here was quite the release of powerful emotions. It seems that even more violence began to prod its head back up after months of silence, Iran and Israel butting heads once again. In a manner that was visually in direct alignment with the ending of the movie Without Warning, Iran dispersed a tremendous amount of missiles which rained upon the city of Israel.
+
+![Meteorshower.gif](/img/user/images/Meteorshower.gif)
+
+
+
+
+
+
+
+![Meteorshower 1.gif](/img/user/images/Meteorshower%201.gif)
+
+Even if this asteroid isn't coming towards what may have occurred was the planting of the seeds of WW3. The darker energies may have found route to root their influence - whispering demonic Jenga moves to the big players so that they may pull the crucial pieces holding this thing together and so the tower will fall and collapse - to get this game over with. However, both of these issues have already been active and bubbling under the surface for some time. It would be totally rational and logical that these things would eventually occur, and the timing may be coincidental. Still... it is quite strange -  at-least for myself - I also had a woman throw herself at me in a lustful manner(oh boohoo) the exact same day I saw the swat team rolling through the city here in Spokane - lust violence anger ignorance fighting yelling its all going doooownnnn baybayyyyy 
+
+![Meteorshower2.gif](/img/user/images/Meteorshower2.gif)
+
+Perhaps we are able to, as a collective, withstand these devious whispers of destruction, and, the Earth being renewed is the plan. We successfully navigate the powerful unbound energies and they are able to be transmuted and transformed into what brings us into the emerging "Golden Age." This may all cause the necessary collapse for a new beginning to emerge... who knows... 
+
+Lets say that all of that was nonsense and this is just a projection of my own personal internal energies, amplified and made to be their most extreme so as to be recognized, healed, released, and let go. Maybe I am Aleister Crowley, Saturn, and whoever else. This leaves the possibility that the Enochian process is entirely subjective to my own world and my own sort of apocalypse is occurring. This opens us up also to the potential that - I myself and my own consciousness is in fact the apocalypse - the great 666 revelation - there is no cataclysm on the verge of occurrence - but my awakened presence is such a ball of truth beyond the accepted regular scientific paradigm, that the world is forced to wake up(to their own divinity). This Enochian process transformed me, and through that, I can affect this person or that person, and maybe they can begin to go through their own celestial unpacking, and each individual alters the world as we snowball down from there. Perhaps this waking up is prior to a destruction of everything, and that is why things are  occurring at this time, but perhaps also, the transformation of humanity can occur peacefully without cataclysm. Either way, there is no need to fret or hold onto any sort of fear, by the time we are stripped of our fleshly bodies, if that ends up being the case, you should have had ample time figure out where we are headed - back to the ol' Pleroma we go. Get your shit together so you have something to take with you, and maybe someone to hold while the embers envelop your body, shedding you from this mortal prison. 
 
 Please don't think I'm taking this form of gematria too seriously, it's mostly just for fun.. or is it..
 
