@@ -530,8 +530,29 @@ After this process, now Christ is a new form of mind, able to see, experience, a
 "and his (Christs) consort is the great Sophia who, from the first, was destine for him in union." 
 -Sophia of Jesus Christ 101:15
 
-In the mythic narrative, things take a dramatic twist. Sophia departs from this pattern of consent, seeking to emanate without her consort. This act produces an imperfect being outside the harmony of the Pleroma, initiating the sequence of events that give rise to the material cosmos.
+Now in the mythic narrative, things take a dramatic twist in what is called The Fall of Sophia. 
 
+"Now, Sophia, who is the wisdom of afterthought and who constitutes an eternal realm, conceived of a thought from herself, with the conception of the invisible spirit and foreknowledge. She wanted to bring forth something like herself, without the consent of the spirit, who had not given approval, without her partner and without his consideration. The male did not give approval. She did not find her partner, and she considered this without the spirit’s consent and without the knowledge of her partner. Nonetheless, she gave birth. And because of the invincible power within her, her thought was not an idle thought. Something came out of her that was imperfect and different in appearance from her, for she had produced it without her partner. It did not resemble its mother and was misshapen.
+
+When Sophia saw what her desire had produced, it changed into the figure of a snake with the face of a lion. Its eyes were like flashing bolts of lightning. She cast it away from her, outside that realm so that none of the immortals would see it. She had produced it ignorantly.
+
+She surrounded it with a bright cloud and put a throne in the middle of the cloud so that no one would see it except the holy spirit, who is called the mother of the living. She named her offspring Yaldabaoth."
+
+This is the beginning of 'the fall', not just of Sophia, but also of humanity, and the entire cosmos. Yaldabaoth then goes on to become the 'Demiurge,' or the 'Archigenetor', creating for himself a tarnished evil dualistic replica of the upper aeons - the lower worlds... 
+
+"This is the first archon who took a great power from his mother. And he removed himself from her and moved away from the places in which he was born. He became strong and created for himself other aeons with a flame of luminous fire which (still) exists now. And he joined with his arrogance which is in him and begot authorities for himself."
+
+The authorities which Yaldabaoth creates are called the Archons, what in Greek means rulers. There are 12 of these different Archons, and each created seven powers for themselves, and each of these powers created six angels (or demons) for themselves. This hierarchical structure results in 365 subordinate demons or angels—one surrounding us for each day of the year. The archons then rule over us through the influence of the 7 spheres of the planets. This is where we are situated at, for these Sethian Gnostics, the entire cosmos that we see with our eyes is in-fact a demonic creation. 
+
+**"This is the number of the angels: together they are 365. They all worked on it until, limb for limb, the natural and the material body was completed by them"**. The Apocryphon then goes on to provide an extensively long and meticulous catalog of demons assigned to individual body parts, including fingers, toes, various organs, bones, and even nails. Additionally, there are four chief demons that govern the fundamental psychic passions
+: Ephememphi (pleasure), Yoko (desire), Nenentophni (grief), and Blaomen (fear).
+
+
+the Gnostic understanding that **time itself is a trap**, and that our physical existence is synchronized with and controlled by these malevolent forces. Every day of the year, every part of the human body, exists under the dominion of these entities, making escape seem impossible without divine intervention.
+In Gnosticism, the savior is a "revealer," the one who passed through time and comes in to expose all of this. Not only do they reveal the nature of our creation, but they also show our path back, mapping out the journey for the souls ascent to the One again. In many Gnostic systems, Sophia and Christ form a divine syzygy (paired emanation), with Christ often sent to redeem Sophia's error and restore cosmic balance. 
+
+Abraxas, whose name in Greek gematria equals exactly 365 (Α=1 + Β=2 + Ρ=100 + Α=1 + Σ=200 + Α=1 + Ξ=60 = 365), represents the "Great Archon" of the 365 spheres in Basilidian Gnosticism. 
+The etymological connection to "abracadabra" is well-documented. According to scholarly sources, "abracadabra" is derived from Abraxas, described as "a cabbalistic formula derived from the name of the supreme god of the Basilidan gnostics, containing the number 365, the number of the days of the year, and of the heavens, and of the spirits emanating from the god Abraxas". This magical word represents the invocation of the complete cosmological hierarchy that the Gnostics believed enslaved humanity. 
 
 The girl from SoundCloud was named Sophia. I wonder what she has been up to, I thought. Looking up her name, I found the news article that filled in the details, and my brain felt like it short-circuited. Here I was, having had my own sort of psychotic break (where I now thought that I may be Jesus), learning that in this ancient, 'heretical' Christian sect, the material world was seen as the kingdom of a false god, a system that traps a fallen goddess of wisdom named Sophia. I went to go reminisce about some weird situation from years ago, and stumbled into a Gnostic horror story which played itself out in the real life world with a multi-million dollar budget. 
  
