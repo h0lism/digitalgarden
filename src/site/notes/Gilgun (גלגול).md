@@ -32,7 +32,7 @@ but a chorus.
 ![image-asset.gif](/img/user/images/image-asset.gif)
 
 DJ Dissociative Identity Disorderrrr
-# Alexander the Great (356 BC – 323 BC)
+# Alexander the Great (idiot) (356 BC – 323 BC)
 Αλέξανδρος Γʹ ὁ Μακεδών (Aléxandros ho Makedón), Alexander of Macedon
 Ἀλέξανδρος ὁ Μέγας (Aléxandros ho Mégas), Alexander the Great
 Alexander III of Macedon
@@ -43,8 +43,12 @@ The Unconquered
 [[Alexander the Great\|Alexander the Great]]
 
 # Ptolemy Caesar (47 BC – 30 BC)
-Πτολεμαῖος ΙΕʹ Φιλοπάτωρ Φιλομήτωρ Καῖσαρ (Ptolemaios IE' Philopatōr Philomētōr Kaisar), Ptolemy XV Philopator Philometor 
-Caesar Καῖσαρίων (Kaisaríōn), Caesarion, Little Caesar
+Πτολεμαῖος ΙΕʹ Φιλοπάτωρ Φιλομήτωρ Καῖσαρ 
+(Ptolemaios IE' Philopatōr Philomētōr Kaisar) 
+Ptolemy Philopator Philometor Caesar
+Ptolemy XV Caesar
+Καῖσαρίων (Kaisaríōn), Caesarion 
+Little Caesar
 
 [[Prequel𓂀/47\|47]]
 # Seneca (c. 4 BC – AD 65) 
@@ -62,9 +66,8 @@ Pimander Lodovico
 # Sabbatai Zevi (1626 – 1676) 
 Šabbətay Ṣəḇī (שַׁבְּתַי צְבִי)  (Hebrew for Sabbatai Zevi)
 The Messiah of Izmir
-The Messiah of 1666 
-Amirah 
-The False Messiah 
+The False Messiah of 1666 
+Amirah  
 Mehmed Efendi
 
 [[Saturn\|Saturn]]
@@ -83,6 +86,19 @@ To Mega Therion - (Greek for "The Great Beast")
 
 [[𓋹 The End 𓆙\|𓋹 The End 𓆙]]
 # Shane Thornton
+
+
+![Pasted image 20250821205428.png| 500](/img/user/images/Pasted%20image%2020250821205428.png)
+
+
+![[Pasted image 20250821205407.png \| 500]]
+
+
+![lukeiamyourfather.jpeg](/img/user/images/lukeiamyourfather.jpeg)
+
+
+
+
 
 ![in-puss-in-boots-the-last-wish-2022-the-wolf-places-coins-v0-9hn9qaa9a1da1.jpg| 400](/img/user/images/in-puss-in-boots-the-last-wish-2022-the-wolf-places-coins-v0-9hn9qaa9a1da1.jpg)![tumblr_b838b65c419f46ea753dcae6ababe17b_eb3d82b8_1280.jpg| 300](/img/user/images/tumblr_b838b65c419f46ea753dcae6ababe17b_eb3d82b8_1280.jpg)
 
