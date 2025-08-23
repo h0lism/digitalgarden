@@ -2,7 +2,12 @@
 {"dg-publish":true,"permalink":"/the-inner-garden/kabbala-and-the-tree-of-life/kabbala-and-the-tree-of-life/"}
 ---
 
-Early stages summarization of everything throughought this lecture series, amongst other sources I've dabbled in
+
+![Pasted image 20250808182140.png](/img/user/images/Pasted%20image%2020250808182140.png)
+
+Big thanks to Dr. James Justin Sledge over at Esoterica on YouTube. Without his videos, I would have never had access to advanced scholarly commentary on any of the strange esoteric topics which fueled the learning journey that I have been on. I may have never even come across any of these subjects in my lifetime. Truly we live in a phenomenal day and age where we can utilize the internet to access knowledge like this. All of this here is really just stuff I gather from his content which I use as a launchpad, as-well as details that come to me and other little rabbit holes that I go down when referencing a topic further.  
+
+Early stage summarization of everything I learned throughought his lecture series here on the history of the Kabbala
 
 https://www.youtube.com/watch?v=ABeeKCygNlw&list=PLZ__PGORcBKxYbdXhBJuaF-C01syNssZZ
 
