@@ -90,9 +90,11 @@ To Mega Therion - (Greek for "The Great Beast")
 
 ![Pasted image 20250821205428.png| 500](/img/user/images/Pasted%20image%2020250821205428.png)
 
-
 ![[Pasted image 20250821205407.png \| 500]]
 
+![Pasted image 20250824035519.png](/img/user/images/Pasted%20image%2020250824035519.png)
+
+![clean.jpg| 400](/img/user/images/clean.jpg)
 
 ![lukeiamyourfather.jpeg](/img/user/images/lukeiamyourfather.jpeg)
 
