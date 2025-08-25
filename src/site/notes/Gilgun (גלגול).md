@@ -42,6 +42,28 @@ The Unconquered
 
 [[Alexander the Great\|Alexander the Great]]
 
+![Pasted image 20250824185641.png](/img/user/images/Pasted%20image%2020250824185641.png)
+
+![Pasted image 20250824185550.png](/img/user/images/Pasted%20image%2020250824185550.png)
+
+![Pasted image 20250824185615.png](/img/user/images/Pasted%20image%2020250824185615.png)
+
+![Pasted image 20250824152855.png](/img/user/images/Pasted%20image%2020250824152855.png)
+
+You brood of vipers, how can you who are evil say anything good? For the mouth speaks what the heart is full of
+	Mathew 12:34
+
+![Pasted image 20250824152834.png](/img/user/images/Pasted%20image%2020250824152834.png)
+
+![Pasted image 20250824152715.png](/img/user/images/Pasted%20image%2020250824152715.png)
+
+Looking at related gematria, I mistook Santorini for having a 555 with the 714 and 119 and then began to look it up "Santorini alexa" to see if there was anything related to Alexander, at which point, Google began to recommend "Alexandria" to finish the prompt
+
+![Pasted image 20250824152423.png](/img/user/images/Pasted%20image%2020250824152423.png)
+
+Turns out that it is the name of a Greek Restaurant in Alexandria, with 323(the year Great dies) reviews and 4.7 overall rating. This is just an example of the kinds of weird very subtle synchronicities which turn up in this space, initial mistakes oftentimes turn into some sort of weird path to truth
+
+![Pasted image 20250824152155.png](/img/user/images/Pasted%20image%2020250824152155.png)
 # Ptolemy Caesar (47 BC – 30 BC)
 Πτολεμαῖος ΙΕʹ Φιλοπάτωρ Φιλομήτωρ Καῖσαρ 
 (Ptolemaios IE' Philopatōr Philomētōr Kaisar) 
