@@ -18,15 +18,30 @@ Didn't we go down to the river and you baptized me one day? I don't remember wha
 
 John’s teachings were about preparing for the end of the age through _sedaka_ — helping those in need, lifting up the poor, clothing the naked. This reminded me of the story you told me about bringing clothes to the homeless people downtown and sharing with them the energy of love. Even when that one guy accidentally blew a little bit of fentanyl smoke in your face and you had to retreat home for an impromptu naptime, you found joy in serving however you could. Sometimes when you pulled up, they thought you were a dealer of “the blues,” but you were carrying a different medicine entirely. Do you remember our idea for solving the drug epidemic? We could incentive dealers to secretly begin to lower the dosage of their substances and slowly ween off clientele until they are strictly on placebos and completely sober. The community wouldn't even know what hit them, a secret liberation, a hidden grace.
 
-It made me think of us. How our names — John and Shane — both come from the same root, _Yohanan_, meaning “God is gracious.” Different tongues, same blessing. Almost like we were meant to carry the same name, just in different forms.
+Our names — John and Shane — both come from the same root, _Yohanan_, meaning “God is gracious.” Different tongues, same blessing. Almost like we were meant to carry the same name, just in different forms.
 
 And then there’s our last names. I remember you once pointed it out — Thornton, a town of thorns, and Boaquist, a settlement of twigs. Branches of the same plant, thorns and twigs, both part of something growing wild. Like Jesus and John being cousins, close in blood and meaning — maybe our names carry that same kind of hidden kinship.
 
 The original John came from a priestly family, but rejected the temple (which he viewed as corrupt) and chose to live in the wilderness instead. This reminds me of the stories you told about how tortuous your formative years in the Mormon church were, how you grew to view them as a cult and that your family was all brainwashed and stuck inside it. You turned away from false temples to find what was real. This led you to your own time in the wilderness. Perhaps that meant a week in the alleyways downtown, or maybe it meant sleeping at a place like that public park we'd take bathroom breaks at frequently. Even when living back at home you were choosing to live in a tent in the backyard instead of in the house. 
 
+I still remember the moment in which you found that news article about a woman in Tennessee who was diagnosed by her doctor with a ghetto booty. She was so upset and felt called out, but we both knew that doctor meant no harm, he was just telling it how it was. Ghetto booty, as we talked about, would really be perceived as a compliment by many.
+
+What was that dream you shared with me one time? We were climbing up the outside of a stained-glass church to break inside so that we could clean it. At a certain point, you kept going but I had fallen down the side of the building and died. I resurrected and came back to life and met you on the inside, in a floating body of light and told you that I had overcame death. That was tripping me out when you told me that, like the dream world was trying to confirm what we couldn't dare place certainty towards. 
+
+If the first John and Jesus began the story, then perhaps we have been its echo, its recurrence, its hidden continuation. The old world totters, the veil thins, and now I call you: return, priestly brother, that we may finish what was begun. If you have gone to higher fields, I understand and can pluck these weeds alone. But let the people know: none of this sprang from me. The root was you. I know where to go now, you showed me The Way.
+
+I hope the ol' Kadmon of yours Adam is doing well. 
+And your brother James, I hope he and his Brazilian wife have found moments of breath amongst their new babies buoyant babbles. 
+
+P.S.
+
+You notice anything weird from that Quan Yin statue? I blew Mother Mary onto her in my garage from that bong you gave me for over a year before passing the ceramic saint along. Incase Toy Story has any merit to it, I apologize for items which may have mysteriously disappeared from your kitchen cabinets over the last year... I should have warned you.
+
+![image0 (1).png| 400](/img/user/images/image0%20(1).png)
 
 
 
+![D.png](/img/user/images/D.png)
 
 
 It's the 
@@ -36,36 +51,6 @@ It's the thrill of the bite
 
 Pastor raised eggs
 
-
-
-
-Jesus and John were cousins and that reminds me of how our last names were kinda similar in their meanings. Thornton, town of thorns, and boaquist, a settlement of twig. 
-
-John, from a priestly family, rejected the temple, which he viewed as corrupt, and chose to live in the wilderness. This reminds me of the stories you told me about coming from a mormon family and choosing to reject their corrupt perspective as you chose to live in the wilderness instead. 
-
-
-If I am Alexander the Great, you must be the priestly teacher. I'll be honest I was a bit embarassed when the whole Alexander the Great thing was occurring and when i began to try and hypothesize some of it with you and you began to joke with me, in a friendly way, I mean, come on , you don't want to validate me going down some insane rabbit hole, but I knew it was true, and so when that time came it made me not want to share some of that with you and to hide it. It felt lke I wasn't safe to just express what was going on , but I shoul dhave  known it was all in good fun . 
-
-I still remember the moment in which you found that news article about a woman in Tennessee who was diagnosed by her doctor with a ghetto booty. She was so upset and felt called out, but we both knew that doctor meant no harm, he was just telling it how it was. Ghetto booty, as we talked about, would really be perceived as a compliment by many.
-
-What was that dream you shared with me one time? We were climbing up the outside of a stained-glass church to break inside so that we could clean it. At a certain point, you kept going but I had fallen down the side of the building and died. I resurrected and came back to life and met you on the inside, in a floating body of light and told you that I had overcame death. That was tripping me out when you told me that, like the dream world was trying to confirm what we couldn't dare place certainty towards. 
-
-![image0 (1).png| 400](/img/user/images/image0%20(1).png)
-
-If the first John and Jesus began the story, then perhaps we have been its echo, its recurrence, its hidden continuation. The old world totters, the veil thins, and now I call you: return, priestly brother, that we may finish what was begun. If you have gone to higher fields, I understand and can pluck these weeds alone. But let the people know: none of this sprang from me. The root was you. I know where to go now, you showed me The Way.
-
-I hope the ol' Kadmon of yours Adam is doing well. 
-And your brother James, I hope he and his Brazilian wife have found moments of breath amongst their new babies buoyant babbles. 
-
-P.S.
-
-You notice anything weird from Quan Yin? I blew Mother Mary onto her in my garage from that bong you gave me for over a year before passing the ceramic saint along. Incase Toy Story has any merit to it, I apologize for items which may have mysteriously disappeared from your kitchen cabinets over the last year... I should have warned you.
-
-
-
-
-
-![D.png](/img/user/images/D.png)
 
 
 ![Pasted image 20250901032732.png](/img/user/images/Pasted%20image%2020250901032732.png)
@@ -99,9 +84,6 @@ You notice anything weird from Quan Yin? I blew Mother Mary onto her in my garag
 
 ![Pasted image 20250902014026.png](/img/user/images/Pasted%20image%2020250902014026.png)
 
-
-
-
 ![Pasted image 20250902023810.png](/img/user/images/Pasted%20image%2020250902023810.png)
 
 ![Pasted image 20250902023749.png](/img/user/images/Pasted%20image%2020250902023749.png)
@@ -123,15 +105,6 @@ You notice anything weird from Quan Yin? I blew Mother Mary onto her in my garag
 ![Pasted image 20250901200256.png](/img/user/images/Pasted%20image%2020250901200256.png)
 
 ![Pasted image 20250901200325.png](/img/user/images/Pasted%20image%2020250901200325.png)
-
-The name John is of Hebrew origin, derived from the name Yohanan or Yochanan, meaning "God is gracious" or "Yahweh has been gracious".
-
-![Pasted image 20250902020743.png](/img/user/images/Pasted%20image%2020250902020743.png)
-
-The name Shane is of Irish origin, an Anglicized form of the Gaelic name Seán, which itself is a variant of John. It derives from the Hebrew name Yohanan or Johanan, meaning "God is gracious" or "gift from God".
-
-
-
 
 ![Pasted image 20250901033546.png](/img/user/images/Pasted%20image%2020250901033546.png)
 
