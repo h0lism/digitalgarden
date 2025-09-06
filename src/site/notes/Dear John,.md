@@ -18,9 +18,9 @@ Didn't we go down to the river and you baptized me one day? I don't remember wha
 
 John’s teachings were about preparing for the end of the age through _sedaka_ — helping those in need, lifting up the poor, clothing the naked. This reminded me of the story you told me about bringing clothes to the homeless people downtown and sharing with them the energy of love. Even when that one guy accidentally blew a little bit of fentanyl smoke in your face and you had to retreat home for an impromptu naptime, you found joy in serving however you could. Sometimes when you pulled up, they thought you were a dealer of “the blues,” but you were carrying a different medicine entirely. Do you remember our idea for solving the drug epidemic? We could incentive dealers to secretly begin to lower the dosage of their substances and slowly ween off clientele until they are strictly on placebos and completely sober. The community wouldn't even know what hit them, a secret liberation, a hidden grace.
 
-It’s funny how our names tell the whole story. You’ve got John and Shane, both coming from that same root in Hebrew, Yohanan, which means 'God is gracious.' So there's this shared blessing right at the core of who we are. But then you get our last names, Thornton and Boaquist—the place of thorns and the settlement of twigs. That’s the other half of it. It grounds the whole thing in something real and overgrown. It’s not just grace; it’s grace growing out in the wild, through all the sharp and broken parts.
+It’s funny how our names tell the whole story. You’ve got John and Shane, both coming from that same root in Hebrew, Yohanan, which means 'God is gracious.' There's this shared theme of blessing right at the core of things. But then you get to our last names, Thornton and Boaquist—the place of thorns and the settlement of twigs. It grounds the whole thing in something real and rough. It’s not just grace; it’s grace growing out in the wild, through all the sharp and pokey parts.
 
-The original John came from a priestly family, but rejected the temple (which he viewed as corrupt) and chose to live in the wilderness instead. This reminds me of the stories you told about how tortuous your formative years in the Mormon church were, how you grew to view them as a cult and that your family was all brainwashed and stuck inside it. You turned away from false temples to find what was real. This led you to your own time in the wilderness. Perhaps that meant a week in the alleyways downtown, or maybe it meant sleeping at a place like that public park we'd take bathroom breaks at frequently. Even when living back at home you were choosing to live in a tent in the backyard instead of in the house. And I, [[Alexander the Great\|Alexander the Great]] farthead, perhaps I fit the role of the 'kingly warrior' side of the coin. With my unstoppable ego, and you who had found the holy spirit through mass consumption of Robitussin, at-least enough to make lights flicker when you would walk underneath them, we were a perfect match.
+The original John came from a priestly family, but rejected the temple (which he viewed as corrupt) and chose to live in the wilderness instead. This reminds me of the stories you told about how tortuous your formative years in the Mormon church were, how you grew to view them as a cult and that your family was all brainwashed and stuck inside it. You turned away from false temples to find what was real. This led you to your own time in the wilderness. Perhaps that meant a week in the alleyways downtown, or maybe it meant sleeping at a place like that public park we'd take bathroom breaks at frequently. Even when living back at home you were choosing to live in a tent in the backyard instead of in the house. You chose to embrace the elements, to surrender to them. 
 
 11:11 would show up all the time, it actually became a bit of a gag at work while we were gardening. 
 Maaan this is taking forever... what time is it? 11:11. 
@@ -56,8 +56,20 @@ It's the
 Pie of the Tiger Bakery. 
 It's the thrill of the bite
 
-
 Pastor raised eggs
+
+Holy Smokes Cigarette and Tobacco
+
+Holier than thou seamstress repair service
+
+Atonement Christian Gym
+
+And then there was light - lamp store
+
+Spreadsheets Spread-Cheeks
+Accounting consultancy for Brothels in Amsterdam 
+
+Just the tip restaurant - (foods free just tip)
 
 
 
