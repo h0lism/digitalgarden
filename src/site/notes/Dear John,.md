@@ -22,6 +22,14 @@ It’s funny how our names tell the whole story. You’ve got John and Shane, bo
 
 The original John came from a priestly family, but rejected the temple (which he viewed as corrupt) and chose to live in the wilderness instead. This reminds me of the stories you told about how tortuous your formative years in the Mormon church were, how you grew to view them as a cult and that your family was all brainwashed and stuck inside it. You turned away from false temples to find what was real. This led you to your own time in the wilderness. Perhaps that meant a week in the alleyways downtown, or maybe it meant sleeping at a place like that public park we'd take bathroom breaks at frequently. Even when living back at home you were choosing to live in a tent in the backyard instead of in the house. And I, [[Alexander the Great\|Alexander the Great]] farthead, perhaps I fit the role of the 'kingly warrior' side of the coin. With my unstoppable ego, and you who had found the holy spirit through mass consumption of Robitussin, at-least enough to make lights flicker when you would walk underneath them, we were a perfect match.
 
+11:11 would show up all the time, it actually became a bit of a gag at work while we were gardening. 
+Maaan this is taking forever... what time is it? 11:11. 
+Alright everyone, we're done at this house, let's make sure to clock out before we head to the next one (aaaand it's 11:11). 
+*ding* Oooh, I just got a text back from the client on what to do with all this Oregon Grape ... (11:11) 
+Hahaha that's hilarious it reminds me of this video I have to show you, where's my pho... ahh there it is (11:11)
+
+Matthew 11:11 - "Truly I tell you, among those born of women there has not risen anyone greater than John the Baptist; yet whoever is least in the kingdom of heaven is greater than he"
+
 I still remember the moment in which you found that news article about a woman in Tennessee who was diagnosed by her doctor with a ghetto booty. She was so upset and felt called out, but we both knew that doctor meant no harm, he was just telling it how it was. Ghetto booty, as we talked about, would really be perceived as a compliment by many.
 
 What was that dream you shared with me one time? We were climbing up the outside of a stained-glass church to break inside so that we could clean it. At a certain point, you kept going but I had fallen down the side of the building and died. I resurrected and came back to life and met you on the inside, in a floating body of light and told you that I had overcame death. That was tripping me out when you told me that, like the dream world was trying to say something...
@@ -88,6 +96,8 @@ Pastor raised eggs
 
 ![Pasted image 20250902023749.png](/img/user/images/Pasted%20image%2020250902023749.png)
 
+After Jesus rose from the dead, He appeared to the disciples on a number of occasions. [John 21](https://www.bibleref.com/John/21/John-chapter-21.html) records the third of those instances and includes the notable mention of 153 fish. Peter and the others had just witnessed another miracle of Jesus involving a large catch of fish, and “Simon Peter climbed back into the boat and dragged the net ashore. It was full of large fish, 153, but even with so many the net was not torn” ([John 21:11](https://www.bibleref.com/John/21/John-21-11.html)).
+
 ![Pasted image 20250902023343.png](/img/user/images/Pasted%20image%2020250902023343.png)
 
 ![Pasted image 20250902023321.png](/img/user/images/Pasted%20image%2020250902023321.png)
@@ -120,6 +130,8 @@ P.S. look at what we have here with our noble leader. I know to the outside worl
 ![Pasted image 20250906030849.png](/img/user/images/Pasted%20image%2020250906030849.png)
 
 ![Pasted image 20250906030940.png](/img/user/images/Pasted%20image%2020250906030940.png)
+Lol remember when we basically were stuck at that point where Jesus and Lucifer were the same, and so if I was Jesus I may also be the
+
 
 ![[Messiahs_in_a_Light_Store (1).mp4]]
 
