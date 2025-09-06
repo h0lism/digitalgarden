@@ -51,7 +51,7 @@ You notice anything weird from that Quan Yin statue? I blew Mother Mary onto her
 
 ![D.png](/img/user/images/D.png)
 
-
+AI Video for these shortly its almost done
 
 Pastor raised eggs
 
