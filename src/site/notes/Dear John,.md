@@ -52,9 +52,6 @@ You notice anything weird from that Quan Yin statue? I blew Mother Mary onto her
 ![D.png](/img/user/images/D.png)
 
 
-It's the 
-Pie of the Tiger Bakery. 
-It's the thrill of the bite
 
 Pastor raised eggs
 
@@ -67,7 +64,7 @@ Atonement Christian Gym
 And then there was light - lamp store
 
 Spreadsheets Spread-Cheeks
-Accounting consultancy for Brothels in Amsterdam 
+Accounting consultancy for Brothels in Bethlehem 
 
 Just the tip restaurant - (foods free just tip)
 
@@ -109,6 +106,9 @@ Just the tip restaurant - (foods free just tip)
 ![Pasted image 20250902023749.png](/img/user/images/Pasted%20image%2020250902023749.png)
 
 After Jesus rose from the dead, He appeared to the disciples on a number of occasions. [John 21](https://www.bibleref.com/John/21/John-chapter-21.html) records the third of those instances and includes the notable mention of 153 fish. Peter and the others had just witnessed another miracle of Jesus involving a large catch of fish, and “Simon Peter climbed back into the boat and dragged the net ashore. It was full of large fish, 153, but even with so many the net was not torn” ([John 21:11](https://www.bibleref.com/John/21/John-21-11.html)).
+
+Primus John the Fisherman 
+https://www.youtube.com/watch?v=lkFMJ4-ai1I
 
 ![Pasted image 20250902023343.png](/img/user/images/Pasted%20image%2020250902023343.png)
 
