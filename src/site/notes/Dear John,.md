@@ -36,7 +36,7 @@ What was that dream you shared with me one time? We were climbing up the outside
 
  I also remember you talking to me about the brother of Youtuber Demolition Ranch who died of cancer and documented his journey online. Just a few days later, someone tries to assassinate Trump while wearing one of his merch shirts...
 
-If the first John and Jesus began the story, then perhaps we have been its echo, its recurrence, its hidden continuation. The old world totters, the veil thins, and now I call you: return, priestly brother, that we may finish what was begun. If you have gone to higher fields, I understand and can pluck these weeds alone. But let the people know: none of this sprang from me. The root was you who showed The Way.
+If the first John and Jesus began the story, then perhaps we have been its echo, its recurrence, its hidden continuation. The old world totters, the veil thins, and now I call you: return, priestly brother, that we may finish what was begun. If you have gone to higher fields, I understand and can prepare the barn myself. But let the people know: none of this sprang from me. The root was you, who showed me The Way.
 
 I hope the ol' Kadmon of yours Adam is doing well. 
 And your brother James, I hope he and his Brazilian wife have found moments of breath amongst their new babies buoyant babbles. 
@@ -66,7 +66,6 @@ And then there was light - lamp store
 Spreadsheets Spread-Cheeks
 Accounting consultancy for Brothels in Bethlehem 
 
-Just the tip restaurant - (foods free just tip)
 
 
 
@@ -110,6 +109,9 @@ After Jesus rose from the dead, He appeared to the disciples on a number of occa
 Primus John the Fisherman 
 https://www.youtube.com/watch?v=lkFMJ4-ai1I
 
+11 “Which of you fathers, if your son asks for a fish, will give him a snake instead?"
+	Luke 11:11
+
 ![Pasted image 20250902023343.png](/img/user/images/Pasted%20image%2020250902023343.png)
 
 ![Pasted image 20250902023321.png](/img/user/images/Pasted%20image%2020250902023321.png)
@@ -142,7 +144,7 @@ P.S. look at what we have here with our noble leader. I know to the outside worl
 ![Pasted image 20250906030849.png](/img/user/images/Pasted%20image%2020250906030849.png)
 
 ![Pasted image 20250906030940.png](/img/user/images/Pasted%20image%2020250906030940.png)
-Lol remember when we basically were stuck at that point where Jesus and Lucifer were the same, and so if I was Jesus I may also be the
+Lol remember when we basically were stuck at that point where Jesus and Lucifer were the same, and so if anybody was Jesus they may also be 
 
 
 ![[Messiahs_in_a_Light_Store (1).mp4]]
