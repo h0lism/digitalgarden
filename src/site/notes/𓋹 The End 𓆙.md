@@ -501,6 +501,8 @@ I was clueless that any of this had occurred until months after my kundalini tra
 
 In this particular Gnostic cosmology, the ultimate reality is something called the Monad—a single, perfect source beyond time, space, and form. This is the supreme, unknowable, and ineffable God, the ultimate source of all being, often described as the "One," the "Absolute," or the "Invisible Spirit". From the Monad emerges _Nous_ — divine mind or understanding. At first, this is simply awareness turned inward, the mind contemplating itself in perfect stillness. This act of contemplation gives rise to _Ennoia_, the First Thought, known as Barbelo. She is the perfect image and counterpart of the Invisible Spirit, sometimes seen as a divine feminine principle, and at other times, the androgynous “Mother-Father” who contains all archetypes and possibilities within herself. In some descriptions, Barbelo is like the vast mirror in which the Monad sees itself for the first time. At a certain point, thought begins to reflect upon itself. This is a new kind of generative act, and from it comes their child, the Autogenes or Self-Generated One, the Self-Begotten, also called the Christ. Thought thinking itself. Autogenes/Christ is an Aeon, a divine emanation from the mother Barbelo, the first emanation of the Monad(Father), and is considered the Son in the divine family structure.
 
+![Pasted image 20250913160611.png](/img/user/images/Pasted%20image%2020250913160611.png)
+
 What happened next in the process was that Christ asked to be given companions. The Invisible Spirit consented, and thus, Christ expanded. Outwardly now come the four lights, which are archangels, or a kind of archangels, along with 12 Aeons. Normally when we think of Aeons, we think of time, but in Gnosticism, it is like time and space reflecting/expanding outwardly, and then reflecting back to the One. This expansion through space and time from the One into the many is a way for the One to multiply and see itself in various perfect forms. The Gnostics describe this divine realm as being surrounded by a luminous water, in which, the One witnesses itself as different reflections in the watery light. Each of the four lights reign over 3 of the 12 Aeons, which are like angels, and have names which describe their qualities. These qualities are all reflective of the heart/mind.  
 
 1. Harmozel
@@ -531,6 +533,8 @@ After this process, now Christ is a new form of mind, able to see, experience, a
 -Sophia of Jesus Christ 101:15
 
 Now in the mythic narrative, things take a dramatic twist in what is called The Fall of Sophia. 
+
+![Pasted image 20250913161002.png](/img/user/images/Pasted%20image%2020250913161002.png)
 
 "Now, Sophia, who is the wisdom of afterthought and who constitutes an eternal realm, conceived of a thought from herself, with the conception of the invisible spirit and foreknowledge. She wanted to bring forth something like herself, without the consent of the spirit, who had not given approval, without her partner and without his consideration. The male did not give approval. She did not find her partner, and she considered this without the spirit’s consent and without the knowledge of her partner. Nonetheless, she gave birth. And because of the invincible power within her, her thought was not an idle thought. Something came out of her that was imperfect and different in appearance from her, for she had produced it without her partner. It did not resemble its mother and was misshapen.
 
@@ -619,8 +623,15 @@ How interesting...
 	"Very truly I tell you, the one who believes has eternal life."
 		John 6:47
 			Caesarion born June 47BC
+				Aleister Crowley death 12-1 (1947) 
 
 On that night, the last time I probably ever take Adderall, Two Shane'z came face to face and were conversing with one another. Not only that, but I am pretty sure it was a girl - something I had never seen before in my life, except for a friend I had in the past that spelt it with a y (Shayne). She was also kinda cute(or so at least I thought in my impaired state), and for a brief moment I thought - could this somehow be my other half?? 😂😂 There was already a lot of magic going on here, was this How I Met Your Mother? At the end of time, Two Shane'z come together.... I was going through a pretty profound Sade phase as-well, and sitting waiting for our food, "Smooth Operator" began to play in the background. Unfortunately, I have to admit, she was probably a biiiiit too young to be any sort of match for me - some girl at 'just out of high school' age, but it was funny watching this fantasy play itself out in my head. Overall, I think having the exact same name would probably be a bit too much; labels would become useless, it'd be confusing in group conversations, and the forgery that she would be able to pull off later down the line could leave me bankrupt.
+
+![Pasted image 20250913161429.png](/img/user/images/Pasted%20image%2020250913161429.png)
+
+![Pasted image 20250913161358.png](/img/user/images/Pasted%20image%2020250913161358.png)
+
+![Pasted image 20250913162402.png](/img/user/images/Pasted%20image%2020250913162402.png)
 
 June 20th
 
@@ -667,6 +678,8 @@ On 7-6-25 Marlon released another video titled "Spirit," in which, he throws up 
  
  I sure hope so.
 
+![Pasted image 20250913164203.png](/img/user/images/Pasted%20image%2020250913164203.png)
+	lol - wrote that line a while back..
 
 ![Pasted image 20250808160048.png](/img/user/images/Pasted%20image%2020250808160048.png)
 
@@ -832,7 +845,7 @@ Now that we're at the end of 𓋹 The End 𓆙, let us consider the idea that th
 
 8-13-25 
 
-I drifted away from the asteroid thing, but ended up coming across an old artist I listened to in the past that made me think again. I was a bit shocked looking back. Not only was I consuming such terrible music(although I do want to pay my upmost respects to Sito), but the entirety of the video is in black and white - except for the color Shani. Of course in this scenario, it is gang related, but it resonates profoundly with the symbolism in [[Shani\|Shani]]. Maybe this is just an energy release, to see stuff I used to resonate with and recognize the thread has turned white, but also, the song title is 13 - the date of April in 2029 when Apophis is supposed to pass us by. 
+I drifted away from the asteroid thing, but ended up coming across an old artist I listened to in the past that made me think again. I was a bit shocked looking back. Not only was I consuming such terrible music(although I do want to pay my upmost respects to Sito), but the entirety of the video is in black and white - except for the color Shani. Of course in this scenario, it is gang related, but it resonates profoundly with the symbolism in [[Shani\|Shani]]. Maybe this is just an energy release, to see stuff I used to resonate with and recognize the thread has turned white(at-least somewhat), but also, the song title is 13 - the date of April in 2029 when Apophis is supposed to pass us by. 
 
 ![IMG_6814.png| 300](/img/user/images/IMG_6814.png)
 
@@ -907,6 +920,8 @@ Cherubim (כרובים)
 
 ![Pasted image 20250813135828.png](/img/user/images/Pasted%20image%2020250813135828.png)
 
+![Pasted image 20250813141815.png](/img/user/images/Pasted%20image%2020250813141815.png)
+
 ![Pasted image 20250813135637.png](/img/user/images/Pasted%20image%2020250813135637.png)
 
 ![Pasted image 20250813135212.png](/img/user/images/Pasted%20image%2020250813135212.png)
@@ -917,8 +932,6 @@ Cherubim (כרובים)
 (Keep in mind Aleister Crowley's religion 'Thelema' was centered around the number 93)
 
 ![Pasted image 20250813141615.png](/img/user/images/Pasted%20image%2020250813141615.png)
-
-![Pasted image 20250813141815.png](/img/user/images/Pasted%20image%2020250813141815.png)
 
 ![Pasted image 20250813135438.png](/img/user/images/Pasted%20image%2020250813135438.png)
 
