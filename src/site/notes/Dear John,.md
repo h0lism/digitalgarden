@@ -32,7 +32,9 @@ Matthew 11:11 - "Truly I tell you, among those born of women there has not risen
 
 I still remember the moment in which you found that news article about a woman in Tennessee who was diagnosed by her doctor with a ghetto booty. She was so upset and felt called out, but we both knew that doctor meant no harm, he was just telling it how it was. Ghetto booty, as we talked about, would really be perceived as a compliment by many.
 
-What was that dream you shared with me one time? We were climbing up the outside of a stained-glass church to break inside so that we could clean it. At a certain point, you kept going but I had fallen down the side of the building and died. I resurrected and came back to life and met you on the inside, in a floating body of light and told you that I had overcame death. That was tripping me out when you told me that, like the dream world was trying to say something...
+![Pasted image 20250913154336.png](/img/user/images/Pasted%20image%2020250913154336.png)
+
+What was that dream you shared with me one time? We were climbing up the outside of a stained-glass church to break inside so that we could clean it. At a certain point, you kept going, but I had fallen down the side of the building and died. I resurrected, came back to life, and met you on the inside. All this in a floating body of light, just to let you know that I had overcome death. That was tripping me out when you told me that, like the dream world was trying to say something... I never flat out tried to claim the identity... that was too crazy... in-fact we stayed away from discussions like that. It was always a - I maybe potentially possibly theoretically could be experiencing this phenomenon, which may have these implications, but it could also be all these other things, lets discuss.... For the dream realm, notable in its symbological magic, to relay this sort of idea back to us directly, was quite profound...
 
  I also remember you talking to me about the brother of Youtuber Demolition Ranch who died of cancer and documented his journey online. Just a few days later, someone tries to assassinate Trump while wearing one of his merch shirts...
 
