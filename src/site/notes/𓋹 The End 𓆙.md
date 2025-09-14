@@ -604,7 +604,7 @@ My friends knew I had the gamertag Two Chainz, but I wasn't sure what to think. 
 
 ![Pasted image 20250813004857.png](/img/user/images/Pasted%20image%2020250813004857.png)
 
-Not only did this look like it was me, but they talked like me as-well. I was an avid user of the term "ooh kill em" as I unleashed (cringeful) drip around the 8th grade function. Things weren't looking good for me. 
+Not only did this character look like it was me, but they talked like me as-well. I was an avid user of the term "ooh kill em" as I unleashed extensive amounts of drippy drip drip around the 8th grade function. Who broke the faucet? Was this some sort of apocalyptic mantra I began at a young age, destined from birth? Things weren't looking good for me. 
 
 ![Pasted image 20250813010107.png](/img/user/images/Pasted%20image%2020250813010107.png)
 
