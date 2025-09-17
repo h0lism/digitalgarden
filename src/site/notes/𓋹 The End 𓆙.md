@@ -868,7 +868,7 @@ Now that we're at the end of 𓋹 The End 𓆙, let us consider the idea that th
 
 8-13-25 
 
-I drifted away from the asteroid thing, but ended up coming across an old artist I listened to in the past that made me think again. I was a bit shocked looking back. Not only was I consuming such terrible music(although I do want to pay my upmost respects to Sito), but the entirety of the video is in black and white - except for the color Shani. Of course in this scenario, it is gang related, but it resonates profoundly with the symbolism in [[Shani\|Shani]]. Maybe this is just an energy release, to see stuff I used to resonate with and recognize the thread has turned white(at-least somewhat), but also, the song title is 13 - the date of April in 2029 when Apophis is supposed to pass us by. 
+I drifted away from the asteroid thing, but ended up coming across an old artist I listened to in the past that made me think again. I was a bit shocked looking back. Not only was I consuming such darkly terrifying music(although I do want to pay my upmost respects to Sito and his art), but the entirety of the video is in black and white - except for the color Shani. Of course in this scenario, it is gang related, but it resonates profoundly with the symbolism in [[Shani\|Shani]]. Maybe this is just an energy release, to see stuff I used to resonate with and recognize the thread has turned white(at-least somewhat), but also, the song title is 13 - the date of April in 2029 when Apophis is supposed to pass us by. 
 
 ![IMG_6814.png| 300](/img/user/images/IMG_6814.png)
 
