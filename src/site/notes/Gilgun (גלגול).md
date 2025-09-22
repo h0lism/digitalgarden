@@ -64,6 +64,15 @@ Looking at related gematria, I mistook Santorini for having a 555 with the 714 a
 Turns out that it is the name of a Greek Restaurant in Alexandria, with 323(the year Great dies) reviews and 4.7 overall rating. This is just an example of the kinds of weird very subtle synchronicities which turn up in this space, initial mistakes oftentimes turn into some sort of weird path to truth
 
 ![Pasted image 20250824152155.png](/img/user/images/Pasted%20image%2020250824152155.png)
+
+![Pasted image 20250913173345.png](/img/user/images/Pasted%20image%2020250913173345.png)
+
+![Pasted image 20250917164202.png](/img/user/images/Pasted%20image%2020250917164202.png)
+	the second someone that views this website eats a baby Or something  I'm removing this,,  
+		And please no evangelical Christian assassinate me  
+![Pasted image 20250917164045.png](/img/user/images/Pasted%20image%2020250917164045.png)
+
+![Pasted image 20250917164358.png](/img/user/images/Pasted%20image%2020250917164358.png)
 # Ptolemy Caesar (47 BC – 30 BC)
 Πτολεμαῖος ΙΕʹ Φιλοπάτωρ Φιλομήτωρ Καῖσαρ 
 (Ptolemaios IE' Philopatōr Philomētōr Kaisar) 
@@ -115,6 +124,8 @@ To Mega Therion - (Greek for "The Great Beast")
 ![[Pasted image 20250821205407.png \| 500]]
 
 ![Pasted image 20250902155759.png| 500](/img/user/images/Pasted%20image%2020250902155759.png)
+
+
 
 ![Pasted image 20250901195808.png](/img/user/images/Pasted%20image%2020250901195808.png)
 
