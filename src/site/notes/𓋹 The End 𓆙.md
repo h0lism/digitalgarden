@@ -670,7 +670,7 @@ Drugs are what may have opened up different creative pathways for the Shed in th
 
 ![Pasted image 20250816032734.png](/img/user/images/Pasted%20image%2020250816032734.png)
 
-Much of the Shed's catalog is about their usage of drugs, and they have been able to attract (if you check live concerts) many (impressionable) young teenage kids to their shows. I must say, they do balance things out from time to time by accurately portraying the downsides of this fast lifestyle as-well. The MV for Lighthearted is a great example. You can tell they have developed an awareness about how they impact their fans, and in a recent interview of Joeyy's, in regards to the question "what advice would you have to your younger self," his response was "never try drugs....................(and then with a healthy understanding and acceptance of his journey) ......maybe."
+Much of the Shed's catalog is about their usage of drugs, and they have been able to attract (if you check live concerts) many (impressionable) young teenage kids to their shows. I must say, they do balance things out from time to time by accurately portraying the downsides of this fast lifestyle as-well. The MV for Lighthearted is a great example. You can tell they already have had a developed awareness about how they impact their fans, and in a recent interview of Joeyy's, in regards to the question "what advice would you have to your younger self," his response was "never try drugs....................(and then with a healthy understanding and acceptance of his journey) ......maybe."
 
 ![Pasted image 20250922162757.png](/img/user/images/Pasted%20image%2020250922162757.png)
 	(23:24)
