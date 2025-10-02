@@ -47,7 +47,7 @@ P.S.
 
 You notice anything weird from that Quan Yin statue? I blew Mother Mary onto her in my garage from that bong you gave me for over a year before passing the ceramic saint along. Incase Toy Story has any merit to it, I apologize for items which may have mysteriously disappeared from your kitchen cabinets over the last year... I should have warned you.
 
-![image0 (1).png| 400](/img/user/images/image0%20(1).png)
+
 
 
 
@@ -72,6 +72,16 @@ Accounting consultancy for Brothels in Bethlehem
 
 
 ![Pasted image 20250901032732.png](/img/user/images/Pasted%20image%2020250901032732.png)
+
+![Pasted image 20250913160143.png](/img/user/images/Pasted%20image%2020250913160143.png)
+
+![Pasted image 20250913160408.png](/img/user/images/Pasted%20image%2020250913160408.png)
+
+![Pasted image 20250913160436.png](/img/user/images/Pasted%20image%2020250913160436.png)
+
+![Pasted image 20250913161733.png](/img/user/images/Pasted%20image%2020250913161733.png)
+
+![Pasted image 20250913161925.png](/img/user/images/Pasted%20image%2020250913161925.png)
 
 ![Pasted image 20250901032840.png](/img/user/images/Pasted%20image%2020250901032840.png)
 
@@ -120,7 +130,7 @@ https://www.youtube.com/watch?v=lkFMJ4-ai1I
 	**Spanish for God**.
 
 ![Pasted image 20250902023259.png](/img/user/images/Pasted%20image%2020250902023259.png)
-	Hebrew Bible, but usually its spelt "Tanakch"
+	Hebrew Bible, but this is not what the usually its spelt "Tanakch". 
 
 ![Pasted image 20250901035058.png](/img/user/images/Pasted%20image%2020250901035058.png)
 ![Pasted image 20250901201431.png](/img/user/images/Pasted%20image%2020250901201431.png)
@@ -156,3 +166,7 @@ Lol remember when we basically were stuck at that point where Jesus and Lucifer 
 ![Pasted image 20250902022609.png](/img/user/images/Pasted%20image%2020250902022609.png)
 
 ![[Christian_Gym_Video_Generation.mp4]]
+
+![524355986_10241006460357971_3394423916941680543_n.jpg](/img/user/images/524355986_10241006460357971_3394423916941680543_n.jpg)
+
+![SenorJohn.png](/img/user/images/SenorJohn.png)
