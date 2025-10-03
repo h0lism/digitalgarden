@@ -233,7 +233,7 @@ Here's another bit of commentary I was able to find on it, from a 23 page docume
 ![Pasted image 20251002224507.png](/img/user/images/Pasted%20image%2020251002224507.png)
 	https://test.thelemistas.org/PDF/HathaYogaPradipika.pdf
 
-A little update on, someone I hope my Enochian working did not indirectly cause great physical harm...
+A little update on the Stu 
 
 ![Pasted image 20251002174146.png](/img/user/images/Pasted%20image%2020251002174146.png)
 
