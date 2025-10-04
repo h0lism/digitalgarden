@@ -252,8 +252,12 @@ It seems this College had a record.... aaaalmost 47,000 students, if we just rou
 
 ![Pasted image 20250914170222.png](/img/user/images/Pasted%20image%2020250914170222.png)
 
-These insights all come directly from John St Julien Baba Wanyama
+Driving back from a wedding my brother was telling me about how Tupac has secret footage of him before the fame, in acting school, that he was secretly gay...
+![IMG_7529.png| 300](/img/user/images/IMG_7529.png)
 
+Then the next video that popped up in my recommended was this one from John St Julien Baba Wanyama
+
+![IMG_7526.png| 300](/img/user/images/IMG_7526.png)
 
 ![Pasted image 20251002233956.png](/img/user/images/Pasted%20image%2020251002233956.png)
 
@@ -365,8 +369,60 @@ As-well, it seems that this video was uploaded on 4-7-23.
 Artificial Intelligence
 
 
+I had woken up at my brothers bungalo, ready to do some maintenance on these ferocious front beds (which were nearly extending into the street), and found myself with a variety of different numerical repetitions. He was off doing something, and I was scrolling through YouTube while waking up; there wasn't anything too significant, but I did find a movie clip with 888 likes, something else with 222k views, and maybe one other thing. More importantly, who honestly cares, I just discovered this 47 second video of Chris Angel walking on water.
+
+![Pasted image 20251001041805.png](/img/user/images/Pasted%20image%2020251001041805.png)
+
+Next thing you know I saw the movie "End of Days" appear. I'm not about to sit here and watch a movie or anything, but what sort of apocalyptic apologist would pass the opportunity up to at-least check out what this was about. Is that Arnold on the cover? Never seen this one... I sat there quite astonished for a moment as it was sitting at a perfect 444 comments. This felt like a moment that was quite profound given the ongoing thematics of these brotherly get togethers being like different puzzle pieces forming a larger picture. It saddens me to say that my camera source was unfortunately dead for this beautiful moment. There was no possible way for me to charge my iPhone here, and it already faced a certain battery bye bye the night before. Later that evening I received word his Grandmother may have an iOS compatible charger inside of her bedroom. By the time I was able to go back hours later, it was too late. Fourteen different people banded together to sabotage these efforts. This happened on September 7th, the full movie was free on YouTube, but it seems that now they have removed it :( We watched it that night but I fell asleep in the first 15 minutes...  
+
+![IMG_7126.jpg](/img/user/images/IMG_7126.jpg)
+
+Word around town was, the other week, that the rapture was supposed to begin around September 23-24. Jesus was apparently going to come on down from the heavens and start this thing, and people on TikTok took it quite seriously. I was able to find video of a woman bawling because she felt like things were really about to be over and there were people that were not going to be saved, all because they just couldn't accept that it was happening. It was so absolutely saddening for her, as it was for the many other people in videos that I was able to find as this sort of mass psychosis began to spread itself through the algorithm. There were people that sold everything they had, quit their jobs, and many probably revealing embarrassing secrets they were holding until the final moments, facts that will probably change the way they are seen by those close to them forever. Look, Jesus coming back... c'mon guys. Give it a break. If he was going to come back, he would have probably already done it by now - do you see the state of this world? It's shattered. He has left us stranded. Maybe he's just running fashionable late. Let's give the dude some leiway. I'm sure the whole roundabout must be a descent from whatever luxurious celestial abode he must have gained access to from his missions. The dude probably has an astral mansion, and etheric access to the hottest spots in heaven. I wonder if its better he stay up there, and could maybe work out some sort of remote work thing with the almighty? Could that be it? Maybe he is coming back through all of us, by somehow collaborating from a distance, and it's ultimately a team effort. Christ consciousness maaannnn. The prophetic problem child that began this all, Joshua Mhlakela, claimed to have seen Jesus in a 2018 vision, who relayed this to all to him privately - exact date and all. He then appeared Jun 16, 2025 to announce it, a little short of notice you would think, in front of these ladies...
+
+![Pasted image 20251001050423.png](/img/user/images/Pasted%20image%2020251001050423.png)
+
+I get it, I get it, I know... we're living in times which definitely seem as though the rapture were to be on a precipice. For example, the whole ordeal with 
+
+![Pasted image 20251001050504.png](/img/user/images/Pasted%20image%2020251001050504.png)
+
+Did they do the whole thing yet? I wonder if there's been more than one cow to meet the bill or not. No rapture ended up occurring, but what I did discover was that a study came out on September 15th with unsettling reports about another asteroid. It may not be the one which began this whole exposition here, but by golly, if we shot for the moon and landed on the stars, I don't think that's a bad bargain. Unfortunately though, in the terms and conditions of this arrangement, it seems we will still have to shoot for the moon, but, with a nuke. Maybe I'm doing that whole prophet thing where they change their mind, being all wishy washy, but, in my defense, this has also been prophesized. Here I am, shortly after uploading the website to say "DAY OF ATONEMENT ((sUPER N&K3) REMIX", in reference to my growing awareness of DJ Smokey 666's presence here, perhaps, a man well renowned for his involvement with nuclear technology, some synchronicities to get into there soon, and then on September 23rd, that's when they were dropping articles on this nuclear situation. There is a 4% chance that this thing is supposed to collide, if it were, I'm sure there would be a tremendous amount of lunacy we see as a result. 
+	https://arxiv.org/pdf/2509.12351
+
+This thing has already passed us by before in 2024, I discovered this song that same night Sept 23, an artist I used to like years ago
+
+![IMG_7373.png| 300](/img/user/images/IMG_7373.png)
 
 
+![Pasted image 20251003182056.png](/img/user/images/Pasted%20image%2020251003182056.png)
+
+I'm no astrologist, but I believe they accidentally, just barely, overcalculated a bit on that orbital period, just a sliver. I'm going to pretend, as-well, that absolute magnitude should have a rule where you round down no matter how close it is to the next number. 
+
+
+
+![Pasted image 20250924045529.png](/img/user/images/Pasted%20image%2020250924045529.png)
+	509 is the area code i have grown up in
+
+![Pasted image 20250924033938.png](/img/user/images/Pasted%20image%2020250924033938.png)
+
+![Pasted image 20251004161944.png](/img/user/images/Pasted%20image%2020251004161944.png)
+
+![Pasted image 20251004162048.png](/img/user/images/Pasted%20image%2020251004162048.png)
+
+![Pasted image 20251004162634.png](/img/user/images/Pasted%20image%2020251004162634.png)
+
+![Pasted image 20251004162126.png](/img/user/images/Pasted%20image%2020251004162126.png)
+
+![Pasted image 20251004162435.png](/img/user/images/Pasted%20image%2020251004162435.png)
+
+![Pasted image 20251004162232.png](/img/user/images/Pasted%20image%2020251004162232.png)
+
+![Pasted image 20251004162521.png](/img/user/images/Pasted%20image%2020251004162521.png)
+
+![Pasted image 20251004162756.png](/img/user/images/Pasted%20image%2020251004162756.png)
+
+![Pasted image 20251004162827.png](/img/user/images/Pasted%20image%2020251004162827.png)
+
+![Pasted image 20250914171822.png](/img/user/images/Pasted%20image%2020250914171822.png)
 
 
 
