@@ -116,11 +116,11 @@ Patrick, you know who you are, the one who holds the drum of mayonnaise(yes it i
 ![OpeningTheFentanylPatchAndChewingItsInnards.png](/img/user/images/OpeningTheFentanylPatchAndChewingItsInnards.png)
 	remarking on his first Kratom experience, "its like a shitty ass perc"
 
-Zach was the biggest Disney fan, and so whenever getting fried, I would often try and at least stay in attunement with the master by watching one of those movies at the end. Some of the best lessons in those, and while you're all sensitive, it kinda reminds of you of the themes of childhood. I remember one time doing a bunch of acid and watching Toy Story 4, all of a sudden it was so clear.... forkie, that was your spirit animal... 
+Zach was the biggest Disney fan, and so whenever getting fried, I would often try and at least stay in attunement with the master by watching one of those movies at the end. Some of the best lessons in those, and while you're all sensitive, it kinda reminds of you of the themes of childhood. I remember one time doing a bunch of acid, 4 tabs I believe, and watching Toy Story 4, all of a sudden it was so clear.... forkie, that was your spirit animal... 
 
 ![anigif_sub-buzz-2155-1654806233-26.gif](/img/user/images/anigif_sub-buzz-2155-1654806233-26.gif)
 
-You really scared us when getting covid and your lung collapsed. My step-dad had just gotten out of the hospital after an entire month of being in there, and then, you son of a bitch... you go in for a similar length of time. Had me out here crazy, even going so far as to try and enlist the blessings of the Hoftwins... 
+You really scared us when getting covid and your lung collapsed. My step-dad had just gotten out of the hospital after an entire month of being in there, and then, you son of a bitch... you go in for a similar length of time. Had me out here crazy, even going so far as to try and enlist the blessings of the Hoff Twins... 
 
 From Dec 2021
 
@@ -202,7 +202,7 @@ In a video that was recorded directly after Raja had left the venue, he is seen 
 
 The footage includes a phone call in which someone tells Raja that Stuart “Syko Stu” Smith “hadn’t woke up,” that he was flatlined. At this point, Raja starts to audibly breathe heavier, things actually beginning to set in, saying 'my bad,' and then shortly afterwards ends the call. 
 
-It should be noted that Raja had just recently had a concussion in training. This is actually one of the ways in which we can have our energy body opened up to these different 'entity' influences. Mis-carriage for example, is another sort of time where these things can get in. Any sort of traumatic incident. Bad car accident. Etc. 
+It should be noted that Raja had just recently had a concussion in training. This is actually one of the ways in which we can have our energy body opened up to these different 'entity' influences. Miscarriage for example, is another sort of time where these things can get in. Any sort of traumatic incident. Bad car accident. Etc. 
 
 There was speculation as to whether or not Psyko Stu would be pressing charges. People wanted to see justice, there was even a petition on Change.org started Aug. 26 calling for his arrest, which earned more than 5,000 signatures. He was finally taken in on a felony charge nearly a month later, on Thursday, Sept. 18, in Los Angeles. Shortly afterwards, he was released on a $50,000 bond. 
 
@@ -271,14 +271,40 @@ Wiki paste
 
 ![Pasted image 20250912213519.png](/img/user/images/Pasted%20image%2020250912213519.png)
 
+Charles the Bold who died 1477
+
+"The death of Charles the Bold in 1477 ended the Burgundian State, triggering a succession crisis that led to the Habsburgs inheriting the Netherlands and France annexing the Duchy of Burgundy. This event led to the War of the Burgundian Succession between the Habsburgs and France, increased French power, and sowed seeds for Low Country independence movements."
+
 ![The-Finding-of-the-body-of-Charles-the-Bold-after-the-Battle-of-Nancy-1865-Found-in-the-collection.jpg](/img/user/images/The-Finding-of-the-body-of-Charles-the-Bold-after-the-Battle-of-Nancy-1865-Found-in-the-collection.jpg)
+	Charles's corpse found after the Battle of Nancy, Auguste Feyen-Perrin, 1865, Musée des Beaux-Arts, Nancy
 
+Just shortly after my 4:32 experience, at the perfect view count...
 
-
-
+![Pasted image 20251003183620.png](/img/user/images/Pasted%20image%2020251003183620.png)
+	https://www.youtube.com/watch?v=Xvdz_mm5mEw
 
 ![Pasted image 20250912213343.png](/img/user/images/Pasted%20image%2020250912213343.png)
 The year that Edward Kelley was born...
+
+![snakeeyes.jpg](/img/user/images/snakeeyes.jpg)
+
+The film features the assassination of a man that is Secretary of Defense named "Charles Kirkland"
+He was shot in the neck
+The man that takes the hit, originally, is known as "Tyler the Executioner"
+In reality, the death came from another source....
+Features one of the Casino's which Trump owns, which was bailed out with the assistance of the Rothschild's years ago...
+
+![Pasted image 20251003184109.png](/img/user/images/Pasted%20image%2020251003184109.png)
+
+"Roll two ones on the dice, look like snake eyes  
+In too deep in the night with the bad vibes  
+Just logged in with the love, but I signed out  
+Pink diamonds in the sky when we ride out  
+One bright star in the sky like a lighthouse  
+Ten armed guards in the yard like the White House  
+Barbed wire around the fence and the dog's out  
+Raindrops, they drop down, on the lost crown"
+
 
 Tyler Robinson was 22 years old. This is a significant number for the Masons. As-well, the fact that it took them '33 hours' to get ahold of him after the incident, peculiar. 
 
@@ -323,7 +349,17 @@ I'm not going to try and look for any more surrounding this other event which oc
 
 
 
+Released in September of 2024, by November "El 47" became the most watched film in the Catalan language of the last 40 years in Spain. It is based on a true story, about a man, Manolo Vital, who hijacked a bus and drove it to the neighborhood where he lived, where there was no public transport. The city council at the time claimed that the streets of the neighborhood were too tight, and it was not possible for buses to get there, and so, to prove them wrong, vital pulled a bit of a robinhood move and hijacked route #47 to prove them wrong. It seems that the person whom this film is about is Manolo Vital, shares a last name with one of the the most well known kabbalistic rabbis of the past. The main student/disciple of perhaps the most famous kabbalist of history, Isaac Luria, who died at 4/23 at age 77. We're speaking of Hayyim ben Joseph Vital, often called "Vital." The esoteric connections between Saturn and the Elohim, I have yet to find the space to fully divulge into, but it's coming soon. I swear it's coming soon. 
 
+
+It turns out, as-well, that there is an entire film production company called "Saturn Films." I discovered this by googling "Saturn 477," and the first result to pop up on YouTube, was this video by someone, "DellFan Productions," whom makes videos that are compilations of the different logos companies have evolved through over time. The 477th video of this individual, just so happened to be of this Saturn film company. And you know who started this thing? I'll give you one guess. Go ahead. 
+
+NICHOLAS CAGE, whom we already discussed quite a bit in the [[Prequel𓂀/47\|47]] 
+Those National Treasure movies, all masonic and whatnot, underneath this company, which was founded, as-well, the year I was born, 2000. 
+
+![Pasted image 20251003181810.png](/img/user/images/Pasted%20image%2020251003181810.png)
+
+As-well, it seems that this video was uploaded on 4-7-23. 
 
 
 
