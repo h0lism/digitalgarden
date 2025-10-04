@@ -252,7 +252,7 @@ It seems this College had a record.... aaaalmost 47,000 students, if we just rou
 
 ![Pasted image 20250914170222.png](/img/user/images/Pasted%20image%2020250914170222.png)
 
-
+These insights all come directly from John St Julien Baba Wanyama
 
 
 ![Pasted image 20251002233956.png](/img/user/images/Pasted%20image%2020251002233956.png)
@@ -349,8 +349,7 @@ I'm not going to try and look for any more surrounding this other event which oc
 
 
 
-Released in September of 2024, by November "El 47" became the most watched film in the Catalan language of the last 40 years in Spain. It is based on a true story, about a man, Manolo Vital, who hijacked a bus and drove it to the neighborhood where he lived, where there was no public transport. The city council at the time claimed that the streets of the neighborhood were too tight, and it was not possible for buses to get there, and so, to prove them wrong, vital pulled a bit of a robinhood move and hijacked route #47 to prove them wrong. It seems that the person whom this film is about is Manolo Vital, shares a last name with one of the the most well known kabbalistic rabbis of the past. The main student/disciple of perhaps the most famous kabbalist of history, Isaac Luria, who died at 4/23 at age 77. We're speaking of Hayyim ben Joseph Vital, often called "Vital." The esoteric connections between Saturn and the Elohim, I have yet to find the space to fully divulge into, but it's coming soon. I swear it's coming soon. 
-
+Released in September of 2024, by November "El 47" became the most watched film in the Catalan language of the last 40 years in Spain. It is based on a true story, about a man, Manolo Vital, who hijacked a bus and drove it to the neighborhood where he lived, where there was no public transport. The city council at the time claimed that the streets of the neighborhood were too tight, and it was not possible for buses to get there, and so, to prove them wrong, Vital pulled a bit of a Robinhood move and hijacked route #47 to prove them wrong. It seems that the person whom this film is about, shares a last name with one of the the most well known Kabbalistic Rabbis of the past. The main student/disciple of perhaps the most famous Kabbalist of history, Isaac Luria, who died at 4/23 at age 77. We're speaking of Hayyim ben Joseph Vital, often called "Vital." The esoteric connections between Saturn and the Elohim, I have yet to find the space to fully divulge into, but it's coming soon. I swear it's coming soon. 
 
 It turns out, as-well, that there is an entire film production company called "Saturn Films." I discovered this by googling "Saturn 477," and the first result to pop up on YouTube, was this video by someone, "DellFan Productions," whom makes videos that are compilations of the different logos companies have evolved through over time. The 477th video of this individual, just so happened to be of this Saturn film company. And you know who started this thing? I'll give you one guess. Go ahead. 
 
@@ -364,8 +363,8 @@ As-well, it seems that this video was uploaded on 4-7-23.
 
 
 
-
-
+![Pasted image 20251004044443.png| 1000](/img/user/images/Pasted%20image%2020251004044443.png)
+Artificial Intelligence
 
 
 
