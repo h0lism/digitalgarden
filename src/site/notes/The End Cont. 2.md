@@ -466,6 +466,52 @@ A few years later we took acid again when Strfkr came to our city. After the sho
 
 ![Pasted image 20250930141922.png](/img/user/images/Pasted%20image%2020250930141922.png)
 
+![Pasted image 20251006035618.png](/img/user/images/Pasted%20image%2020251006035618.png)
+
+
+![Pasted image 20251006034706.png](/img/user/images/Pasted%20image%2020251006034706.png)
+
+1836 - 4-7 
+William Godwin, an English philosopher considered one of the first modern proponents of anarchism, dies
+On 3-27, 1836, the Mexican army executed 417 Texas revolutionaries at Goliad. What was the date on that photo above? I keep looking at old photos and my shit is looking vertical bro 
+ 
+![Pasted image 20251007023634.png](/img/user/images/Pasted%20image%2020251007023634.png)
+
+
+
+![Pasted image 20251007024046.png](/img/user/images/Pasted%20image%2020251007024046.png)
+
+![Pasted image 20251007041104.png](/img/user/images/Pasted%20image%2020251007041104.png)
+
+![Pasted image 20251007024132.png](/img/user/images/Pasted%20image%2020251007024132.png)
+
+![Pasted image 20251007024304.png](/img/user/images/Pasted%20image%2020251007024304.png)
+
+
+
+![IMG_7629.jpg](/img/user/images/IMG_7629.jpg)
+	Featuring a drawing I made around the time this book was acquired in 2022 
+
+![Pasted image 20251007023840.png](/img/user/images/Pasted%20image%2020251007023840.png)
+
+I started saying this word all the time, even so far as to try and attempt to repeat it for entire days. At work I'm just playing this over and over again internally. Singing it in the car in weird different ways there and back. I had no idea that in antiquity this was something that only the High Priest would be able to say, and only in the Holy of Holies, on the day of Atonement. In my defense, I was still theoretically meeting the credential of High Priest, lighting up a joint nearly ever day after work, and given a potential Priestly past as Sabbatai Zevi, this heretical behavior seems to make a lot of sense. He was known for sneaking this word when it wasn't allowed.
+
+The other place I found this phrase explained in the book .. 
+
+![Pasted image 20251007040242.png](/img/user/images/Pasted%20image%2020251007040242.png)
+
+![Pasted image 20251007040422.png](/img/user/images/Pasted%20image%2020251007040422.png)
+conducted by 'the shadow government'  🤔
+
+
+
+
+
+
+
+
+
+
 
 
 
