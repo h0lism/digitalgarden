@@ -517,12 +517,12 @@ When I came back downstairs after going and changing into a full red outfit, the
 ![Pasted image 20251007053913.png](/img/user/images/Pasted%20image%2020251007053913.png)
 
 
+![Pasted image 20251007065659.png](/img/user/images/Pasted%20image%2020251007065659.png)
 
 
+![Pasted image 20251007065629.png](/img/user/images/Pasted%20image%2020251007065629.png)
 
-
-
-
+![Pasted image 20251007065746.png](/img/user/images/Pasted%20image%2020251007065746.png)
 
 
 
