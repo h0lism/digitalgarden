@@ -634,7 +634,7 @@ On that night, the last time I probably ever take Adderall, Two Shane'z came fac
 
 ![Pasted image 20250913162402.png](/img/user/images/Pasted%20image%2020250913162402.png)
 
-
+![IMG_7355.jpg| 450](/img/user/images/IMG_7355.jpg)
 
 June 20th
 
