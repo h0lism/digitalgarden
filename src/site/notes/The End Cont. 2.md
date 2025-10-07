@@ -468,8 +468,9 @@ A few years later we took acid again when Strfkr came to our city. After the sho
 
 ![Pasted image 20251006035618.png](/img/user/images/Pasted%20image%2020251006035618.png)
 
+![Pasted image 20251007051428.png](/img/user/images/Pasted%20image%2020251007051428.png)
 
-![Pasted image 20251006034706.png](/img/user/images/Pasted%20image%2020251006034706.png)
+![Pasted image 20251007051508.png](/img/user/images/Pasted%20image%2020251007051508.png)
 
 1836 - 4-7 
 William Godwin, an English philosopher considered one of the first modern proponents of anarchism, dies
@@ -496,12 +497,26 @@ On 3-27, 1836, the Mexican army executed 417 Texas revolutionaries at Goliad. Wh
 
 I started saying this word all the time, even so far as to try and attempt to repeat it for entire days. At work I'm just playing this over and over again internally. Singing it in the car in weird different ways there and back. I had no idea that in antiquity this was something that only the High Priest would be able to say, and only in the Holy of Holies, on the day of Atonement. In my defense, I was still theoretically meeting the credential of High Priest, consuming the marijuana plant every day after work, and given a potential Priestly past as Sabbatai Zevi, this heretical behavior seems to make a lot of sense. He was known for sneaking the secret name of God outside of this context... 
 
+![Pasted image 20251005135849.png](/img/user/images/Pasted%20image%2020251005135849.png)
+
+![Pasted image 20251005145818.png](/img/user/images/Pasted%20image%2020251005145818.png)
+
 The other place I found this phrase explained in the book .. 
 
 ![Pasted image 20251007040242.png](/img/user/images/Pasted%20image%2020251007040242.png)
 
 ![Pasted image 20251007040422.png](/img/user/images/Pasted%20image%2020251007040422.png)
 conducted by 'the shadow government'  🤔
+
+During the day of Atonement I was fasted, wearing a long sleeve red shirt to be in the spirit of things, but with white pants. At first I was wearing an all white outfit, but we hadn't atoned for much by that point so I thought to myself, lets get some red on. The shirt wasn't enough, we need to put on some red sweatpants too. At the time, I was currently listening to this ... it came on in the autoplay and the 999 thing seemed on theme, with 66.6k subscribers, so I felt - hey these are the frequencies I may be in need of at the moment. 
+
+![Pasted image 20251007054915.png](/img/user/images/Pasted%20image%2020251007054915.png)
+
+When I came back downstairs after going and changing into a full red outfit, the video had finished, and Autoplayed onto the next thing... which was this video. 
+
+![Pasted image 20251007053913.png](/img/user/images/Pasted%20image%2020251007053913.png)
+
+
 
 
 
