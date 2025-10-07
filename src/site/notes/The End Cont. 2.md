@@ -525,7 +525,7 @@ When I came back downstairs after going and changing into a full red outfit, the
 ![Pasted image 20251007065746.png](/img/user/images/Pasted%20image%2020251007065746.png)
 
 
-
+![Pasted image 20251007071151.png](/img/user/images/Pasted%20image%2020251007071151.png)
 
 
 
