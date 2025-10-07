@@ -494,7 +494,7 @@ On 3-27, 1836, the Mexican army executed 417 Texas revolutionaries at Goliad. Wh
 
 ![Pasted image 20251007023840.png](/img/user/images/Pasted%20image%2020251007023840.png)
 
-I started saying this word all the time, even so far as to try and attempt to repeat it for entire days. At work I'm just playing this over and over again internally. Singing it in the car in weird different ways there and back. I had no idea that in antiquity this was something that only the High Priest would be able to say, and only in the Holy of Holies, on the day of Atonement. In my defense, I was still theoretically meeting the credential of High Priest, consuming the marijuana plant every day after work, and given a potential Priestly past as Sabbatai Zevi, this heretical behavior seems to make a lot of sense. He was known for sneaking this word when it wasn't allowed.
+I started saying this word all the time, even so far as to try and attempt to repeat it for entire days. At work I'm just playing this over and over again internally. Singing it in the car in weird different ways there and back. I had no idea that in antiquity this was something that only the High Priest would be able to say, and only in the Holy of Holies, on the day of Atonement. In my defense, I was still theoretically meeting the credential of High Priest, consuming the marijuana plant every day after work, and given a potential Priestly past as Sabbatai Zevi, this heretical behavior seems to make a lot of sense. He was known for sneaking the secret name of God outside of this context... 
 
 The other place I found this phrase explained in the book .. 
 
