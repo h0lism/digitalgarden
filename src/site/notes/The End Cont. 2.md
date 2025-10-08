@@ -389,7 +389,9 @@ Did they do the whole thing yet? I wonder if there's been more than one cow to m
 	https://arxiv.org/pdf/2509.12351
 
  I discovered this song that same night Sept 23, an artist I used to like years ago.
-I don't like that the screenshot found itself at 2:22, it seems all timed lol
+I don't like that the screenshot found itself at 2:22, it seems all timed lol .. but looking back at what was uploaded after this one in order of their songs... 
+
+![Pasted image 20251008040611.png](/img/user/images/Pasted%20image%2020251008040611.png)
 
 ![IMG_7373.png| 300](/img/user/images/IMG_7373.png)
 
@@ -466,6 +468,8 @@ A few years later we took acid again when Strfkr came to our city. After the sho
 
 ![Pasted image 20250930141922.png](/img/user/images/Pasted%20image%2020250930141922.png)
 
+![Pasted image 20251008044823.png](/img/user/images/Pasted%20image%2020251008044823.png)
+
 ![Pasted image 20251006035618.png](/img/user/images/Pasted%20image%2020251006035618.png)
 
 ![Pasted image 20251007051428.png](/img/user/images/Pasted%20image%2020251007051428.png)
@@ -523,6 +527,12 @@ When I came back downstairs after going and changing into a full red outfit, the
 ![Pasted image 20251007065629.png](/img/user/images/Pasted%20image%2020251007065629.png)
 
 ![Pasted image 20251007065746.png](/img/user/images/Pasted%20image%2020251007065746.png)
+
+
+![smokedope.jpeg](/img/user/images/smokedope.jpeg)
+
+![Pasted image 20251008042713.png](/img/user/images/Pasted%20image%2020251008042713.png)
+![Pasted image 20251008043248.png](/img/user/images/Pasted%20image%2020251008043248.png)
 
 
 ![Pasted image 20251007071151.png](/img/user/images/Pasted%20image%2020251007071151.png)
