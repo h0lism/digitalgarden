@@ -528,11 +528,19 @@ When I came back downstairs after going and changing into a full red outfit, the
 
 ![Pasted image 20251007065746.png](/img/user/images/Pasted%20image%2020251007065746.png)
 
+![Pasted image 20251008064924.png](/img/user/images/Pasted%20image%2020251008064924.png)
 
-![smokedope.jpeg](/img/user/images/smokedope.jpeg)
+It seems we had a new upload from 2 Shanez on the Day of Atonement as-well. I just want to make it clear that I have nothing but respect, all my talks about being the real Two Chainz/Shanez is all in fun. It being Aleister themed, he seems to be with it, but I just wanted to say that. I would hope that if he heard about this strange story, he would find it funny/interesting. If we ever met, 4 Shanez would probably instantly crash the server.
 
-![Pasted image 20251008042713.png](/img/user/images/Pasted%20image%2020251008042713.png)
-![Pasted image 20251008043248.png](/img/user/images/Pasted%20image%2020251008043248.png)
+
+![Pasted image 20251008060052.png](/img/user/images/Pasted%20image%2020251008060052.png)
+
+![Pasted image 20251008060149.png](/img/user/images/Pasted%20image%2020251008060149.png)
+
+![Pasted image 20251008060027.png](/img/user/images/Pasted%20image%2020251008060027.png)
+
+Lots more
+
 
 
 ![Pasted image 20251007071151.png](/img/user/images/Pasted%20image%2020251007071151.png)
