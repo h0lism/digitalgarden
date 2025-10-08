@@ -6,3 +6,9 @@ I wasn't planning on having eyes here until I reconnected with, and ran things b
 
 
 ![Pasted image 20251008071801.png](/img/user/images/Pasted%20image%2020251008071801.png)
+
+![Pasted image 20250912220056.png](/img/user/images/Pasted%20image%2020250912220056.png)
+
+I was really into [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]] at the time, and after a yoga class, I had this weird feeling that I was supposed to somehow organize another channeling situation, that Ra was trying to contact me. Feeling this was a bit crazy, my ego beginning to run a bit wild, I went back to go say goodbye to my friend and check in real quick with another human being before I went home, and walked in on this...
+
+![aristotle.gif](/img/user/images/aristotle.gif)
