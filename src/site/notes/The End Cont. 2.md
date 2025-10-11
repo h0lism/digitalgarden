@@ -584,10 +584,17 @@ That's a child's logic."
 ![Pasted image 20251010214238.png](/img/user/images/Pasted%20image%2020251010214238.png)
 15:32-17:19
 
-"Scapegoating is a premedieval practice. I think scapegoating is an old it's an old Jewish practice. I think it goes back three or 4 thousand years. You put the sins of the tribe into a goat and then you send the goat out into the wilderness to die a painful death from exposure. That's that's what a literal scapegoat is. I think there's a um a William Blake uh painting of that if you fancy looking it up. Under those circumstances, people will become more narcissistic and they will treat themselves as many gods. And you might say, "Oh, that's you're being euphemistic. That's you don't really mean that. That's poetic language." And yes, of course, you can take it euphemistically. You can take it uh mythically, but try and take it literally as well. In what ways do people treat themselves as gods? Do they make images of themselves, graven images of themselves, worship those images and ask others to worship those images also, literally and figuratively? The answer to that question is yes. Do they demand submission to cultlike, religious-like ideologies and narratives that if you don't submit to, you are punished and or outcast? Yes, these are religious uh ideologically religious mini cults and people are becoming many gods. The hollow gods of a dying age and this is a dying age."
+"Scapegoating is a premedieval practice. I think scapegoating is an old it's an old Jewish practice. I think it goes back three or 4 thousand years. You put the sins of the tribe into a goat and then you send the goat out into the wilderness to die a painful death from exposure. That's that's what a literal scapegoat is. I think there's a um a William Blake uh painting of that if you fancy looking it up. Under those circumstances, people will become more narcissistic and they will treat themselves as mini gods. And you might say, "Oh, that's you're being euphemistic. That's you don't really mean that. That's poetic language." And yes, of course, you can take it euphemistically. You can take it uh mythically, but try and take it literally as well. In what ways do people treat themselves as gods? Do they make images of themselves, graven images of themselves, worship those images and ask others to worship those images also, literally and figuratively? The answer to that question is yes. Do they demand submission to cultlike, religious-like ideologies and narratives that if you don't submit to, you are punished and or outcast? Yes, these are religious uh ideologically religious mini cults and people are becoming mini gods. The hollow gods of a dying age and this is a dying age."
 
 ![oops.png](/img/user/images/oops.png)
 
+![Pasted image 20251011062723.png](/img/user/images/Pasted%20image%2020251011062723.png)
+
+![IMG_7702.jpg| 400](/img/user/images/IMG_7702.jpg)
+
+![IMG_7402.jpg| 400](/img/user/images/IMG_7402.jpg)
+
+![Pasted image 20251011031046.png| 700](/img/user/images/Pasted%20image%2020251011031046.png)
 
 ![psykotic.jpg](/img/user/images/psykotic.jpg)
 
