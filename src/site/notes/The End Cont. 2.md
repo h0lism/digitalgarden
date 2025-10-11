@@ -556,7 +556,7 @@ Lots more
 
 ![IMG_3523.png| 300](/img/user/images/IMG_3523.png)
 
-"Here's a cliche that narcissists use, all narcissists use that I personally find the most irritating. I'm the type of person who always, oh, you know me, I'm extremely dedicated to and then there's some value or virtuous thing and they talk in this kind of cliched way, which would be embarrassing and cringe-inducing for normal adults because they're children. Essentially, that's a child locked inside of an adult's body due to um intense trauma and or spoiling when they were very very young. And that's what creates the narcissistic world view and this connection to the false self that they've created. So all of this is a kind of self supply to that false self to aggraandise themselves and be like, "Yeah, this is who I truly am. And if I can make you listen to it, and I can make you listen to it, and I can write this blog post about it, that's going to make it true."
+"Here's a cliche that narcissists use, all narcissists use that I personally find the most irritating. I'm the type of person who always, oh, you know me, I'm extremely dedicated to and then there's some value or virtuous thing and they talk in this kind of cliched way, which would be embarrassing and cringe-inducing for normal adults because they're children. Essentially, that's a child locked inside of an adult's body due to um intense trauma and or spoiling when they were very very young. And that's what creates the narcissistic world view and this connection to the false self that they've created. So all of this is a kind of self supply to that false self to aggrandize themselves and be like, "Yeah, this is who I truly am. And if I can make you listen to it, and I can make you listen to it, and I can write this blog post about it, that's going to make it true."
 
 ![Richard.png](/img/user/images/Richard.png)
 
@@ -569,6 +569,25 @@ Lots more
 ![Pasted image 20251010172343.png](/img/user/images/Pasted%20image%2020251010172343.png)
 
 ![Pasted image 20251008050303.png](/img/user/images/Pasted%20image%2020251008050303.png)
+
+![Pasted image 20251010205824.png](/img/user/images/Pasted%20image%2020251010205824.png)
+
+"I will be better off pretending that I'm in a,
+I'm a king in a castle,
+than dealing with the reality. 
+That's a child's logic."
+
+![Pasted image 20251010204402.png| 700](/img/user/images/Pasted%20image%2020251010204402.png)
+
+![IMG_3519.png| 300](/img/user/images/IMG_3519.png)
+
+![Pasted image 20251010214238.png](/img/user/images/Pasted%20image%2020251010214238.png)
+15:32-17:19
+
+"Scapegoating is a premedieval practice. I think scapegoating is an old it's an old Jewish practice. I think it goes back three or 4 thousand years. You put the sins of the tribe into a goat and then you send the goat out into the wilderness to die a painful death from exposure. That's that's what a literal scapegoat is. I think there's a um a William Blake uh painting of that if you fancy looking it up. Under those circumstances, people will become more narcissistic and they will treat themselves as many gods. And you might say, "Oh, that's you're being euphemistic. That's you don't really mean that. That's poetic language." And yes, of course, you can take it euphemistically. You can take it uh mythically, but try and take it literally as well. In what ways do people treat themselves as gods? Do they make images of themselves, graven images of themselves, worship those images and ask others to worship those images also, literally and figuratively? The answer to that question is yes. Do they demand submission to cultlike, religious-like ideologies and narratives that if you don't submit to, you are punished and or outcast? Yes, these are religious uh ideologically religious mini cults and people are becoming many gods. The hollow gods of a dying age and this is a dying age."
+
+![oops.png](/img/user/images/oops.png)
+
 
 ![psykotic.jpg](/img/user/images/psykotic.jpg)
 
