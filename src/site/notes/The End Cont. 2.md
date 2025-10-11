@@ -552,6 +552,37 @@ Lots more
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/KbXwbBDnM8c?si=j1s-FXY-YEuA2eR0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+"I'm dedicated.... to uh.... take all those other boys on YouTube out"
+
+![IMG_3523.png| 300](/img/user/images/IMG_3523.png)
+
+"Here's a cliche that narcissists use, all narcissists use that I personally find the most irritating. I'm the type of person who always, oh, you know me, I'm extremely dedicated to and then there's some value or virtuous thing and they talk in this kind of cliched way, which would be embarrassing and cringe-inducing for normal adults because they're children. Essentially, that's a child locked inside of an adult's body due to um intense trauma and or spoiling when they were very very young. And that's what creates the narcissistic world view and this connection to the false self that they've created. So all of this is a kind of self supply to that false self to aggraandise themselves and be like, "Yeah, this is who I truly am. And if I can make you listen to it, and I can make you listen to it, and I can write this blog post about it, that's going to make it true."
+
+![Richard.png](/img/user/images/Richard.png)
+
+![Pasted image 20251010173036.png](/img/user/images/Pasted%20image%2020251010173036.png)
+
+![Pasted image 20251010172905.png](/img/user/images/Pasted%20image%2020251010172905.png)
+
+![Pasted image 20251010171931.png](/img/user/images/Pasted%20image%2020251010171931.png)
+
+![Pasted image 20251010172343.png](/img/user/images/Pasted%20image%2020251010172343.png)
+
+![Pasted image 20251008050303.png](/img/user/images/Pasted%20image%2020251008050303.png)
+
+![psykotic.jpg](/img/user/images/psykotic.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 Was able to recover an old phone for first time in over a year+, it just randomly, actually turned on after charging it, giving me access to an ancient relic.... a 47 second video....
