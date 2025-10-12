@@ -590,6 +590,8 @@ That's a child's logic."
 
 ![Pasted image 20251011062723.png](/img/user/images/Pasted%20image%2020251011062723.png)
 
+![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
+
 ![IMG_7702.jpg| 400](/img/user/images/IMG_7702.jpg)
 
 ![IMG_7402.jpg| 400](/img/user/images/IMG_7402.jpg)
@@ -598,18 +600,61 @@ That's a child's logic."
 
 ![psykotic.jpg](/img/user/images/psykotic.jpg)
 
+![marcandthemambas.jpg| 500](/img/user/images/marcandthemambas.jpg)
+
+Osamason's new album cover, and its concept art, may seem off-putting at first. Many seem to have an intrinsic reaction that makes them somewhat hesitant to embrace what looks like evil. Perhaps that is the intention behind it, pure blasphemy, but also, there may be a deeper approach the artist is taking with their creative direction. Firstly, the cover is a reconceptualization of another album, "Three Black Nights of Little Black Bites," a release from Marc and The Mambas on 11-12-12. The band started as an offshoot of Soft Cell member Marc Almond, acting as a stylistically different atmosphere which allowed for him to explore themes that didn't align with the established pop success he arose from. The group Osamason is apart of, SlimeKrew, associates themselves with snake imagery, and Marc Almond was known for having a pet snake, even taking it with him to interviews. This is the Mambas only complete, official full-length live album, capturing a three-night performance at the Duke of York's Theatre in April of 1983. It was recorded by Peter Christopherson, famously nicknamed "Sleazy," a figure in the UK's industrial and experimental music scene, who was a founding member of the bands Throbbing Gristle and Coil(and last album was released in 2013 with only 999 CD's). He must have been a good friend of the group, as they paid ohmage to him with their first single, which I had the pleasure of being the 447th like of. 
+
+![Pasted image 20251012004831.png](/img/user/images/Pasted%20image%2020251012004831.png)
+
+![Pasted image 20251012005814.png](/img/user/images/Pasted%20image%2020251012005814.png)
+
+The other piece of art which was released with Osamason's album, Psykotic, features what seems to be a demonic looking satyr-child sitting with a snake wrapped around them, the bloody head of a goat in their lap, and their arms/hands stylized in the manner of Baphomet(along with all the track names around the border). For those that were offput by the album cover, this sure would not make them more comfortable. 
+
+![psykotic.png](/img/user/images/psykotic.png) 
+
+Baphomet stands as one of the most misunderstood, debated, and controversial images in our modern culture. Oftentimes when we see this figure depicted, the association goes directly to an evil, demonic, rebellious, and anti-Christian perspective. To be fair, the Satanic church was founded in 1966 utilizing Baphomet with an upside-down pentagram as their logo, but this is not its original origin. The first written occurrence of Baphomet was in 1098 by Duke Anselm of Ribemont, a figure from the first crusades. Anselm, in recollecting the events of the Siege of Antioch, stated that while storming the gates, “the Turks ‘called loudly upon Baphomet.’” Most scholars believed that the name was an alteration of “Mahomet,” or Muhammad, proposing that perhaps the Templars had absorbed some heretical associations with Islamic belief systems during their crusades. Under orders from King Philip IV of France, in 1307, the entire Order of the Knights Templar was arrested. They were accused of a range of heretical practices, including blasphemy, participating in secret rituals, and the worship of idols. The name Baphomet emerged during these trials, ones which were infused with severe torture, and it quickly became a focal point for inquisitorial accusations which sought to cast the Templars as a moralistically deviant, heretical organization. Descriptions of this 'idol' were so varied, one even referring to Baphomet as a cat, that it has led scholars to believe that perhaps this idea was imposed upon the Templars, reinforced and given merit through the words of men attempting to survive brutal beatings. In reality, such worship likely never took place; the order was persecuted for political reasons, leading the figure of Baphomet to represent the broader anxieties of hidden knowledge, subversive power, and the imagined corruption of sacred values in the medieval period. There is however, another interpretation for the origin of the name Baphomet which may give a potential explanation for the Templar accusations. Hugh Schonfield theorized that the word "Baphomet" was a code, likely created using the Hebrew Atbash cipher(which reverses the alphabet). In his book The Essene Odyssey, he argued that when Baphomet is run through Atbash, it decodes to שופיא‎ (_šwpy‘_, "Shofya'") the Greek word for Sophia, meaning "wisdom." Interestingly this found its way into the plot for the book "The Da Davinci Code." One of the characters has a realization about a line in the poem that was guiding their descent into mystery, “headstone praised by Templars.” The Knights Templar were accused of devil worship during the time of Pope Clement, and the god they purportedly worshipped would sometimes appear as a large stone head, the head of 'Baphomet'. They agree that this must be the password for the cryptex, and then in Chapter 77 of the book, they use the Atbash Cipher to decode the word Baphomet. What do they unearth? The password which acts as a key to unlock the cryptex, _Sofia_, a variation of one of the main characters names, Sophie. This new progress gives the team access to another poem, leading them on to, what I could only assume to be another poem, or perhaps a jigsaw puzzle if they are lucky.
+
+The original Hebrew word for Baphomet before the cipher, בפומת‎ (_bpwmt_) in Gematria is 
+
+![Pasted image 20251012032434.png](/img/user/images/Pasted%20image%2020251012032434.png)
+
+![Pasted image 20251012032558.png](/img/user/images/Pasted%20image%2020251012032558.png)
+
+German author Christoph Friedrich Nicolai wrote in 1782 about how Baphomet was mentioned during a “deposition of two Templar witnesses interrogated by the ecclesiastical authorities in Carcassone,” where the witnesses mentioned that Baphomet “‘was not the name of the idol, but rather a hieroglyph imprinted on it. The head… had been a symbol, the image of the eternal Father in a state of rest, as the ancient Gnostics represented him’” It goes on to mention that the Templars were “supposedly introduced to Gnosticism in the Orient, since ‘the Orient, above all Syria, was the refuge for all of the sectarians and heretics banished by the Western Christian Empire.’” Joseph von Hammer-Purgstall, in his book _Ancient Alphabets and Hieroglyphic Characters Explained (1806)_, states that “‘Bahumed or Bahumet was one of their secret and mysterious formulas, with which they addressed the idol of a calf in their secret assemblies.’” The calf part comes from the fact that “Bahúmid” translates into “calf” in the Arabic language. There are a lot of debates surrounding the Templars and Baphomet, with scholars claiming that the knowledge of hieroglyphic writing wouldn't have been possible for them to hold. The similarity to the Arabic word for calf could have still just been the misinterpretation of a proclamation towards Mohammed. 
+
+![Baphomet_by_Éliphas_Lévi.jpg| 400](/img/user/images/Baphomet_by_%C3%89liphas_L%C3%A9vi.jpg)
+
+Regardless of the Templars, the image of Baphomet came to life in this piece of art originally created in 1854 by occultist Eliphas Levi for his book "Dogme et Rituel de la Haute Magie" ("Dogmas and Rituals of High Magic"). He viewed Baphomet as a symbol of astral light and alchemical unity, a union of opposites, a synthesis of spirit and matter. This is how the image was originally viewed in occult circles. A symbol of spiritualaity and enlightenment, rather than heresy. His depiction reflects a number of principles considered fundamental to occultists and was influenced by Hermeticism, Kabbalah, and alchemy, among other sources.
+
+Levi himself described the meaning of the symbol thusly in "_Dogme et Rituel"_:
+
+> "The goat on the frontispiece carries the sign of the pentagram on the forehead, with one point at the top, a symbol of light, his two hands forming the sign of hermetism, the one pointing up to the white moon of Chesed, the other pointing down to the black one of Geburah. This sign expresses the perfect harmony of mercy with justice. His one arm is female, the other male like the ones of the androgyn of Khunrath, the attributes of which we had to unite with those of our goat because he is one and the same symbol. The flame of intelligence shining between his horns is the magic light of the universal balance, the image of the soul elevated above matter, as the flame, whilst being tied to matter, shines above it. The beast's head expresses the horror of the sinner, whose materially acting, solely responsible part has to bear the punishment exclusively; because the soul is insensitive according to its nature and can only suffer when it materializes. The rod standing instead of genitals symbolizes eternal life, the body covered with scales the water, the semi-circle above it the atmosphere, the feathers following above the volatile. Humanity is represented by the two breasts and the androgyn arms of this sphinx of the occult sciences."
+
+![Pasted image 20251012054323.png](/img/user/images/Pasted%20image%2020251012054323.png)
+Aleister Crowley regarded Baphomet as an archetype of the "True Self," incorporating it into his 
+
+From Aleister's Confessions, chapter 85, I find it funny relating to this struggle in looking for the origin of things
+"Now, as it happened, I had a test question to my hand. I had taken the name Baphomet as my motto in the O.T.O. For six years and more I had tried to discover the proper way to spell this name."
+
+"Baphomet was Father Mithras, the cubical stone which was the corner of the Temple."
+
+from Crowley's _Magick in Theory and Practice_
+
+> _The Devil is, historically, the God of any people that one personally dislikes. This has led to so much confusion of thought that THE BEAST 666 has preferred to let names stand as they are, and to proclaim simply that AIWAZ, the solar-phallic-hermetic 'Lucifer,' is His own Holy Guardian Angel, and 'The Devil' SATAN or HADIT, the Supreme Soul behind RA-HOOR-KHUIT the Sun, the Lord of our particular unit of the Starry Universe. This serpent, SATAN, is not the enemy of Man, but He who made Gods of our race, knowing Good and Evil; He bade 'Know Thyself!' and taught Initiation. He is 'the Devil' of the Book of Thoth, and His emblem is BAPHOMET, the Androgyne who is the hieroglyph of arcane perfection._
+
+![Mysterium_Baphometis_Revelatum_-_Tab_I,_Fig_7-8.png| 300](/img/user/images/Mysterium_Baphometis_Revelatum_-_Tab_I,_Fig_7-8.png)
+
+
+An alternative cover I found for the original Marc and The Mambas release. 
+
+![mambas.jpg](/img/user/images/mambas.jpg)
 
 
 
 
+https://docs.google.com/presentation/d/1ZEg2_l2Z2xpMSsHiSICtvXNnmX_l0Yc2IM8vC35hxZk/edit?slide=id.g1f9d2f016f2_0_1084#slide=id.g1f9d2f016f2_0_1084
 
-
-
-
-
-
-
-
+https://docs.google.com/spreadsheets/d/1Dt-XwWicPLn4SsVNpHdiWt9kBe0dQx7EMT9FbrX1rak/htmlview
 
 Was able to recover an old phone for first time in over a year+, it just randomly, actually turned on after charging it, giving me access to an ancient relic.... a 47 second video....
 
