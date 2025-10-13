@@ -556,7 +556,15 @@ the Gnostic understanding that **time itself is a trap**, and that our physical
 In Gnosticism, the savior is a "revealer," the one who passed through time and comes in to expose all of this. Not only do they reveal the nature of our creation, but they also show our path back, mapping out the journey for the souls ascent to the One again. In many Gnostic systems, Sophia and Christ form a divine syzygy (paired emanation), with Christ often sent to redeem Sophia's error and restore cosmic balance. 
 
 Abraxas, whose name in Greek gematria equals exactly 365 (Α=1 + Β=2 + Ρ=100 + Α=1 + Σ=200 + Α=1 + Ξ=60 = 365), represents the "Great Archon" of the 365 spheres in Basilidian Gnosticism. 
-The etymological connection to "abracadabra" is well-documented. According to scholarly sources, "abracadabra" is derived from Abraxas, described as "a cabbalistic formula derived from the name of the supreme god of the Basilidan gnostics, containing the number 365, the number of the days of the year, and of the heavens, and of the spirits emanating from the god Abraxas". This magical word represents the invocation of the complete cosmological hierarchy that the Gnostics believed enslaved humanity. 
+The etymological connection to "abracadabra" is well-documented. According to scholarly sources, "abracadabra" is derived from Abraxas, described as "a cabbalistic formula derived from the name of the supreme god of the Basilidan gnostics, containing the number 365, the number of the days of the year, and of the heavens, and of the spirits emanating from the god Abraxas". This magical word represents the invocation of the complete cosmological hierarchy that the Gnostics believed enslaved humanity. Carl Jung on Abraxas from _The Red Book_:
+
+> _Hard to know is the deity of Abraxas. Its power is the greatest, because man perceiveth it not. From the sun he draweth the summum bonum highest good; from the devil the infimum malum lowest evil; but from Abraxas life, altogether indefinite, the mother of good and evil._
+> 
+> _Smaller and weaker life seemeth to be than the summum bonum; wherefore is it also hard to conceive that Abraxas transcendeth even the sun in power, who is himself the radiant source of all the force of life._
+> 
+> _Abraxas is the sun, and at the same time the eternally sucking gorge of the void, the belittling and dismembering devil._
+> 
+> _The power of Abraxas is twofold; but ye see it not, because for your eyes the warring opposites of this power are extinguished._
 
 The girl from SoundCloud was named Sophia. I wonder what she has been up to, I thought. Looking up her name, I found the news article that filled in the details, and my brain felt like it short-circuited. Here I was, having had my own sort of psychotic break (where I now thought that I may be Jesus), learning that in this ancient, 'heretical' Christian sect, the material world was seen as the kingdom of a false god, a system that traps a fallen goddess of wisdom named Sophia. I went to go reminisce about some weird situation from years ago, and stumbled into a Gnostic horror story which played itself out in the real life world with a multi-million dollar budget. 
  
@@ -634,7 +642,7 @@ On that night, the last time I probably ever take Adderall, Two Shane'z came fac
 
 ![Pasted image 20250913162402.png](/img/user/images/Pasted%20image%2020250913162402.png)
 
-![IMG_7355.jpg| 450](/img/user/images/IMG_7355.jpg)
+![Pasted image 20251012010515.png](/img/user/images/Pasted%20image%2020251012010515.png)
 
 June 20th
 
