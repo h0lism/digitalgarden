@@ -643,14 +643,12 @@ Crowley was heavily influenced by Lévi and saw Baphomet as the perfect symbol f
 He eventually came to the conclusion that 
 	"Baphomet was Father Mithras, the cubical stone which was the corner of the Temple."
 
-
-
 from Crowley's _Magick in Theory and Practice_
 
 > _The Devil is, historically, the God of any people that one personally dislikes. This has led to so much confusion of thought that THE BEAST 666 has preferred to let names stand as they are, and to proclaim simply that AIWAZ, the solar-phallic-hermetic 'Lucifer,' is His own Holy Guardian Angel, and 'The Devil' SATAN or HADIT, the Supreme Soul behind RA-HOOR-KHUIT the Sun, the Lord of our particular unit of the Starry Universe. This serpent, SATAN, is not the enemy of Man, but He who made Gods of our race, knowing Good and Evil; He bade 'Know Thyself!' and taught Initiation. He is 'the Devil' of the Book of Thoth, and His emblem is BAPHOMET, the Androgyne who is the hieroglyph of arcane perfection._
 
 
-![Pasted image 20251012054323.png](/img/user/images/Pasted%20image%2020251012054323.png)
+![Pasted image 20251013064605.png](/img/user/images/Pasted%20image%2020251013064605.png)
 
 ![Pasted image 20251013063848.png](/img/user/images/Pasted%20image%2020251013063848.png)
 
