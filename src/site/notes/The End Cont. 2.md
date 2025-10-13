@@ -652,6 +652,20 @@ from Crowley's _Magick in Theory and Practice_
 
 ![Pasted image 20251012054323.png](/img/user/images/Pasted%20image%2020251012054323.png)
 
+![Pasted image 20251013063848.png](/img/user/images/Pasted%20image%2020251013063848.png)
+
+![Pasted image 20251013063914.png](/img/user/images/Pasted%20image%2020251013063914.png)
+
+![Pasted image 20251013063939.png](/img/user/images/Pasted%20image%2020251013063939.png)
+
+![Pasted image 20251013064005.png](/img/user/images/Pasted%20image%2020251013064005.png)
+
+![Pasted image 20251013064119.png](/img/user/images/Pasted%20image%2020251013064119.png)
+
+
+
+
+
 An alternative cover I found for the original Marc and The Mambas release. 
 
 ![mambas.jpg](/img/user/images/mambas.jpg)
