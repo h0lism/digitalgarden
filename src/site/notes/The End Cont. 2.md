@@ -554,6 +554,10 @@ Lots more
 
 "I'm dedicated.... to uh.... take all those other boys on YouTube out"
 
+![Pasted image 20251014041216.png](/img/user/images/Pasted%20image%2020251014041216.png)
+
+![Pasted image 20251014040928.png](/img/user/images/Pasted%20image%2020251014040928.png)
+
 ![IMG_3523.png| 300](/img/user/images/IMG_3523.png)
 
 "Here's a cliche that narcissists use, all narcissists use that I personally find the most irritating. I'm the type of person who always, oh, you know me, I'm extremely dedicated to and then there's some value or virtuous thing and they talk in this kind of cliched way, which would be embarrassing and cringe-inducing for normal adults because they're children. Essentially, that's a child locked inside of an adult's body due to um intense trauma and or spoiling when they were very very young. And that's what creates the narcissistic world view and this connection to the false self that they've created. So all of this is a kind of self supply to that false self to aggrandize themselves and be like, "Yeah, this is who I truly am. And if I can make you listen to it, and I can make you listen to it, and I can write this blog post about it, that's going to make it true."
@@ -647,6 +651,85 @@ from Crowley's _Magick in Theory and Practice_
 
 > _The Devil is, historically, the God of any people that one personally dislikes. This has led to so much confusion of thought that THE BEAST 666 has preferred to let names stand as they are, and to proclaim simply that AIWAZ, the solar-phallic-hermetic 'Lucifer,' is His own Holy Guardian Angel, and 'The Devil' SATAN or HADIT, the Supreme Soul behind RA-HOOR-KHUIT the Sun, the Lord of our particular unit of the Starry Universe. This serpent, SATAN, is not the enemy of Man, but He who made Gods of our race, knowing Good and Evil; He bade 'Know Thyself!' and taught Initiation. He is 'the Devil' of the Book of Thoth, and His emblem is BAPHOMET, the Androgyne who is the hieroglyph of arcane perfection._
 
+In 2014, the Satanic Church ran a crowdfunding campaign on Indegogo to acquire the necessary funds for the construction of a large Baphomet statue, raising $28,000. They originally commissioned this massive 8.5-foot bronze Baphomet statue specifically as a response to Oklahoma installing a Ten Commandments monument at their state capitol in 2012. The whole point was to challenge religious displays on government property - basically saying "if you're going to have one religion represented, you need to allow others too." This cross of authority with a particular faith sparked much debate in subsequent years, even going so far as to inspire a man by the name of Michael Tate Reed to drive his car directly into the 6 foot stone, breaking it into numerous pieces. 
+
+![Pasted image 20251014024356.png](/img/user/images/Pasted%20image%2020251014024356.png)
+
+The American Civil Liberties Union of Oklahoma had already been suing to have it removed, arguing that monument violated the state constitution and could be seen as state endorsement of a religion. Michael was able to get away with his operandi for obliteration scott free, abandoning his destroyed Sedan and escaping on foot, an act which occurred just 1 year or so after the release of Miley Cyrus's "Wrecking Ball." A police officer relayed to a local news broadcaster that Mr. Reed claimed to have been under the belief that the devil made him do it. This act did eventually come back to bite him, as Michael was later caught up with authorities after threatening to attack a federal building. He also made threats against President Barack Obama and set money on fire in his vehicle. Reed had told police after the Oklahoma City attack that he was a Satanist, had bipolar disorder, and that he was "off his meds" when he made the move on the memorial. The Satanic Church did not endorse the vandalism. Reed was sent to a mental health facility for treatment, and was never charged with any crimes. 
+
+![Pasted image 20251014000922.png](/img/user/images/Pasted%20image%2020251014000922.png)
+
+Following the vehicularly commanded fall of the Ten Commandments, Oklahoma officials quickly replaced the monument, commissioning a second, privately funded erection (made of South Dakotan granite) for the Capitol grounds. However, the legal battle initiated by the American Civil Liberties Union of Oklahoma was still active, arguing that _any_ religious display on government property violated the state constitution. In July of 2015, the Oklahoma Supreme Court made a decisive decision for the case of _Prescott vs. Oklahoma Capitol Preservation Commission_, finding that the presence of the Ten Commandments monument violated Article 2, Section 5 of the Oklahoma state constitution. This strictly forbids the use of state property to endorse any particular religion, and the court required a righteous removal of the religious relic, which ran a receipt of ... $4,700. This was unfortunate timing for the Satanic Church, who had just finished construction of their Baphomet statue in Detroit just days prior to the ruling, yet to transport it. They subsequently withdrew their request to display Baphomet on public property, with Satanic Church spokesperson  Doug Mesner (or Lucien Greaves) stating, 
+	"The entire point of our effort was to offer a monument that would complement and contrast the Ten Commandments, reaffirming that we live in a nation that respects plurality, a nation that refuses to allow a single viewpoint to co-opt the power and authority of government institutions. Given the Court's ruling, the Satanic Temple no longer has any interest in pursuing placement of the Baphomet monument on Oklahoma's Capitol grounds. Arkansas is looking appealing...there are plenty of areas in the United States crying out for a counter-balance to existing graven tributes to archaic Abrahamic barbarism."
+
+What I find hilarious, is that, in 2017, there was another Ten Commandments incident which occurred in Arkansas after a similar monument was installed outside their Capitol building in Little Rock. Less than 24 hours proceeding its unveiling, there was a man that drove a 2016 Dodge Dart into the 6,000-pound granite slab at precisely 4:47 a.m. Some more details on the incident...
+
+![Pasted image 20251014041506.png](/img/user/images/Pasted%20image%2020251014041506.png)
+
+Who is it that would perform such a horrendous act?
+I'll give you one guess...
+
+The 'devil made me do it' excuse may have not been so absurd after all
+
+Scarlet rover scarlet rover 
+
+![Pasted image 20251014024726.png](/img/user/images/Pasted%20image%2020251014024726.png)
+
+You can't say that he isn't persistent. I found a recent Facebook video by Michael released earlier this month. Apparently he was about to go to bible college when he was around 29, which would have been 11 years ago, around 2014, before he was interrupted by Satan's unrelenting resistance. During this period, and the years following, he found himself on a wild Rollercoaster of psychosis and 'demonic attacks.' Michael claims to not remember a lot of what happened, and that there were times he couldn't control himself. Looking over his phone at things he said, that wasn't him, the person Michael was when manic was not who he really was. After lots of treatment, he feels healthy and sane for the first time in a really long time. It also seems that he may be considering going back to bible college to become a preacher. Michael did a little spreading of the gospel after getting out of the hospital, and was complimented on his ability to perform fearlessly in front of a crowd of people. It seems he may be a natural, and a path down this road may suit him quite nicely. If he were to start sermoning at a local church around me, I certainly would attend.  
+
+![reed.jpeg](/img/user/images/reed.jpeg)
+
+In his defense, according to [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]], the original Ten Commandments are the product of an evil Yahweh
+
+From The Ra Contact 16.10-16.17
+
+Questioner
+	You mentioned the word “Empire” in relation to the Orion group. I have thought for some time that the movie Star Wars was somehow an allegory, in part, for what is actually happening. Is this correct?
+
+Ra
+	I am Ra. This is correct in the same way that a simple children’s story is an allegory for physical/philosophical/social complex distortion-understanding.
+
+Questioner
+	Is there a harvest of entities oriented towards service to self like there is a harvest here of entities oriented towards service to others?
+
+Ra
+	I am Ra. There is one harvest. Those able to enter fourth density through vibrational complex levels may choose the manner of their further seeking of the One Creator.
+
+Questioner
+	Then as we enter the fourth density there will be a split, shall we say, and part of the individuals who go into the fourth density will go to planets, or places, where there is service to others, and the other part will go into places where there is service to self. Is this correct?
+
+Ra
+	I am Ra. This is correct.
+
+Questioner
+	Well, the Confederation established its quarantine, I understand, seventy-five thousand years ago. Has the Orion group been attempting to contact any part of this planet prior to that? Or did they… how long have they been attempting to contact this planet?
+
+Ra
+	I am Ra. Approximately four five thousand [45,000] years ago an attempt was made. It was not successful. Approximately two six oh oh, two thousand six hundred [2,600], years ago the group sent an entity of social memory complex to this planetary sphere. This effort met with some success but was in the space/time continuum lessened in impact. Since approximately two three oh oh, two thousand three hundred [2,300], years ago, in your measurement, this group has constantly been working upon the harvest just as the Confederation. 
+
+Questioner
+	Can you name the entity that they sent here twenty-six hundred years ago… two thousand six hundred years ago? 
+
+Ra
+	I am Ra. This entity named by your peoples, Yahweh.
+
+Questioner
+	Can you tell me the origin of the Ten Commandments?
+
+Ra
+	I am Ra. The origin of these commandments follows the law of negative entities impressing information upon positively oriented mind/body/spirit complexes. The information attempted to copy, or ape, positivity while retaining negative characteristics.
+
+Questioner
+	Was this done by the Orion group?
+
+Ra
+	I am Ra. This is correct.
+
+Questioner
+	What was their purpose in doing this?
+
+Ra
+	I am Ra. The purpose of the Orion group, as mentioned before, is conquest and enslavement. This is done by finding and establishing an elite and causing others to serve the elite through various devices, such as the laws you mention and others given by this entity.
 
 ![Pasted image 20251013064605.png](/img/user/images/Pasted%20image%2020251013064605.png)
 
