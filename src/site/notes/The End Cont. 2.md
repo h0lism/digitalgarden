@@ -685,51 +685,54 @@ From The Ra Contact 16.10-16.17
 
 Questioner
 	You mentioned the word “Empire” in relation to the Orion group. I have thought for some time that the movie Star Wars was somehow an allegory, in part, for what is actually happening. Is this correct?
-
 Ra
 	I am Ra. This is correct in the same way that a simple children’s story is an allegory for physical/philosophical/social complex distortion-understanding.
-
 Questioner
 	Is there a harvest of entities oriented towards service to self like there is a harvest here of entities oriented towards service to others?
-
 Ra
 	I am Ra. There is one harvest. Those able to enter fourth density through vibrational complex levels may choose the manner of their further seeking of the One Creator.
-
 Questioner
 	Then as we enter the fourth density there will be a split, shall we say, and part of the individuals who go into the fourth density will go to planets, or places, where there is service to others, and the other part will go into places where there is service to self. Is this correct?
-
 Ra
 	I am Ra. This is correct.
-
 Questioner
 	Well, the Confederation established its quarantine, I understand, seventy-five thousand years ago. Has the Orion group been attempting to contact any part of this planet prior to that? Or did they… how long have they been attempting to contact this planet?
-
 Ra
 	I am Ra. Approximately four five thousand [45,000] years ago an attempt was made. It was not successful. Approximately two six oh oh, two thousand six hundred [2,600], years ago the group sent an entity of social memory complex to this planetary sphere. This effort met with some success but was in the space/time continuum lessened in impact. Since approximately two three oh oh, two thousand three hundred [2,300], years ago, in your measurement, this group has constantly been working upon the harvest just as the Confederation. 
-
 Questioner
 	Can you name the entity that they sent here twenty-six hundred years ago… two thousand six hundred years ago? 
-
 Ra
 	I am Ra. This entity named by your peoples, Yahweh.
-
 Questioner
 	Can you tell me the origin of the Ten Commandments?
-
 Ra
 	I am Ra. The origin of these commandments follows the law of negative entities impressing information upon positively oriented mind/body/spirit complexes. The information attempted to copy, or ape, positivity while retaining negative characteristics.
-
 Questioner
 	Was this done by the Orion group?
-
 Ra
 	I am Ra. This is correct.
-
 Questioner
 	What was their purpose in doing this?
-
 Ra
 	I am Ra. The purpose of the Orion group, as mentioned before, is conquest and enslavement. This is done by finding and establishing an elite and causing others to serve the elite through various devices, such as the laws you mention and others given by this entity.
+
+This idea may seem incredibly absurd at first, I mean, what? A 'service to self' negatively polarized extraterrestrial species corrupted the Old Testament? Could the God on Sinai have, unknowingly to Moses, been Sin-Ai? Before I lose you, just wait... if we really pay attention, it seems that the Gnostics actually picked up on this theme as-well(or perhaps the LL Research team picked up this idea from them and integrated it with their imagination). First we have to look at Exodus 20:3-4, just briefly, to see what Yahweh declares as the first commandment...
+
+![Pasted image 20251014051757.png](/img/user/images/Pasted%20image%2020251014051757.png)
+
+“3 You shall have no other gods before me. 4 You shall not make for yourself an image in the form of anything in heaven above or on the earth beneath or in the waters below. You shall not bow down to them or worship them; for I, the Lord your God, am a jealous God, punishing the children for the sin of the parents to the third and fourth generation of those who hate me, but showing love to a thousand generations of those who love me and keep my commandments."
+
+To quote a moment of observation upon the Yaldabaoth, or Demiurge, the corrupted creator of the material world, from the Apocryphon of John, one of the most referenced texts when it comes to talking secret Christianity, 
+
+"When he gazed upon his creation surrounding him  
+            He said to his host of demons  
+            The ones who had come forth out of him:  
+ “I am a jealous God and there is no God but me!”
+
+ But by doing this he admitted to his demons that there is indeed another God.  
+ For, if there were no other God, whom would he possibly be jealous of?"
+
+What is interesting, is that Haim Eshed, who was the founder of the Israeli space program, came out in 2020, and admitted that Israel had a secret alien alliance. Regarding why he chose to reveal this information now, he said, "If I had come up with what I'm saying today five years ago, I would have been hospitalized." A decorated resume, the man spent 30 years as Israeli space security chief, was a general of the Israeli military intelligence force, and responsible for putting numerous satellites out into space. He was even awarded the Chief of Staff Citation, which is the highest non-combat decoration that the IDF hands out. This wasn't the only golden star pressed upon his nameplate, as Haim also was a recipient, three times, of the Israel Defense Prize, what is the highest civilian defense honor of the State of Israel. Possessing a Ph.D. in Aeronautical Engineering, as well as other accomplishments, he feels like his reputation is already established, and didn't fear coming out about the ordeal. Apparently the aliens are curious about humanity and researching "the fabric of the universe." He claims that Trump is in on it, but hasn't dropped the bombshell on the public due to the mass hysteria which would result. "They have been waiting until today for humanity to develop and reach a stage where we will understand, in general, what space and spaceships are," Eshed said, referring to the 'galactic federation.'
 
 ![Pasted image 20251013064605.png](/img/user/images/Pasted%20image%2020251013064605.png)
 
