@@ -13,7 +13,11 @@ before Duddits arrives(calling him Mr. Gay)...
 
 It is here that Duddits reveals his true nature. He isn't just a man with a disability; he seems to be an alien as-well, an equal counterforce to Mr. Gray himself, having been housed in a human form the entire time. To the outside world he was just a man with down syndrome... but in reality, Duddits existed as some sort of messianic extraterrestrial being, just waiting for the time when he would be called to action. He is the ultimate "dreamcatcher," and in a final, self-sacrificial act, the two alien forces annihilate each other, saving the world. Some theorize that this Mr. Gray character may have performed this planetary takeover in the past, and Duddits, a survivor from another planet, anticipated the next move, avenging their bretheren by preventing it from happening again. 
 
-I did an extensive amount of DMT (over 100-150+ blastoffs), heroic mushroom ventures, and very high LSD doses around this time, meditating for hours on end, and reading copious spiritual books. Work was where I would integrate my experiences, and peculiarly, I began to develop a sense that my co-worker with down syndrome was enlightened. Forget about Buddha, Jesus, Shiva, Mohammed, or whoever/whatever else spiritual seekers of the past may have studied to find answers. Higher powers have sent me to Zachary. I did an entire ounce of penis envy mushrooms to myself throughout the summer of 2019, right before I found my way to this job. I viewed him with the same seriousness as any enlightened being, and even though he was constantly trying to sneak a hand on my rear end, it seemed that I was quite literally developing psychic gifts as I continued to learn from him. One such lesson I will share; if someone you are washing dishes with purposely drops utensils in a position which requires you to bend over to grasp, you must reverse into the location backwardly, and bend at the knees, or make them retrieve it themselves. We unfortunately couldn't make our way to a monastery, but this was something better. The perceived forces of intelligence I would tap into on psychedelics from time to time seemed to really like this arrangement, wanting me to soak up every ounce of wisdom from him that I could as I went further and further. Committed to doing DMT enough times until I had mastered it, figuring out all the traps the mind would fall into, how to dive deeper and deeper, I was eventually able to briefly glance at what I came down to saying "that was God." Well, I couldn't really say anything for a long time, jaw was wide open, it was so ineffable that you can't begin to formulate words, sorta just balling up on the floor. All of sudden, once hitting the center of the universe, boom, COVID 19 pandemic. Global virus outbreak. Did I go through some sort of wormhole? Zach gone. Guru gone.  More wisdom came from my apprenticeship than I had ever developed studying any book, it was an energetic attunement to the master which took place on a daily basis, a way of life, of being. In just the last year, I learned about Merkavah Hekhalot mysticism, which was very eye opening. Centuries before the rise of the Kabbala, there were shaman-like rabbi mystics that made terrifying and epic descents into what is described as "divine palaces." These were not the single spontaneous visions, but the rabbis are described as going through a sequence of palaces, gates, and thresholds as they grew in their mastery. Each step has requirements (purity, secret words/names, special sigils, knowledge) and a different set of angelic guardians or tests to get past. Everything about it screamed to me that these guys were doing DMT too, the writings themselves almost sound like trip reports. The goal was to touch the innermost palace, the throne of God. Here one would be surrounded by angels and gaze upon the most high, being transformed someway, sometimes even being transformed into a sort of angel themselves. The book of Enoch, what is seeing a resurgence in its popularity today, is a text which demonstrates this sort of early mysticism - Enoch turning into Metatron at the end. The third book of Enoch is quite literally called Sefer Hekhalot, meaning the "Book of Palaces." Ancient alien theorists relate this story to UFO's, as it sounds like Enoch is being abducted by aliens and shown advanced technology or whatnot, taken on an adventurous tour of reality, but at the same time, for people that ingest Dimethyltryptamine, what is often reported is some sort sort of encounter with a perceived extraterrestrial intelligence. This early form of mysticism was learned a religion: you needed teachers, and a small practice-community. The writings may preserve instructions, but the living transmission — teacher to student — is what originally carried the skill to survive the ascent. And when the word survive is used, that is in its most literal sense; in some cases, rabbis are quite literally reported to be killed by the mistakes they make during these engagements. The angels guarding these secrets are fierce. There is a famous story about this, held as the most important text in relation to the Merkavah mysticism, about the four that enter into the Pardes, or garden. Only one emerges intact..... the others..... they all face different tragedies. There happens to be another example of Merkavic meanderings made messy mentioned in the Talmud, a story I was just recently introduced to in another one of the newest Esoterica uploads, which was just 11(4+7) days after the historical Jesus one which began this ramble... 
+I did an extensive amount of DMT (over 100-150+ blastoffs), heroic mushroom ventures, and very high LSD doses around this time, meditating for hours on end, and reading copious spiritual books. Work was where I would integrate my experiences, and peculiarly, I began to develop a sense that my co-worker with down syndrome was enlightened. Forget about Buddha, Jesus, Shiva, Mohammed, or whoever/whatever else spiritual seekers of the past may have studied to find answers. Higher powers have sent me to Zachary. I did an entire ounce of penis envy mushrooms to myself throughout the summer of 2019, right before I found my way to this job. I viewed him with the same seriousness as any enlightened being, and even though he was constantly trying to sneak a hand on my rear end, it seemed that I was quite literally developing psychic gifts as I continued to learn from him. One such lesson I will share; if someone you are washing dishes with purposely drops utensils in a position which requires you to bend over to grasp, you must reverse into the location backwardly, and bend at the knees, or make them retrieve it themselves. We unfortunately couldn't make our way to a monastery, but this was something better. The perceived forces of intelligence I would tap into on psychedelics from time to time seemed to really like this arrangement, wanting me to soak up every ounce of wisdom from him that I could as I went further and further. Committed to doing DMT enough times until I had mastered it, figuring out all the traps the mind would fall into, how to dive deeper and deeper, I was eventually able to briefly glance at what I came down to saying "that was God." Well, I couldn't really say anything for a long time, jaw was wide open, it was so ineffable that you can't begin to formulate words, sorta just balling up on the floor. All of sudden, once hitting the center of the universe, boom, COVID 19 pandemic. Global virus outbreak. Did I go through some sort of wormhole? Zach gone. Guru gone.  More wisdom came from my apprenticeship than I had ever developed studying any book, it was an energetic attunement to the master which took place on a daily basis, a way of life, of being. In just the last year, I learned about Merkavah Hekhalot mysticism, which was very eye opening. Centuries before the rise of the Kabbala, there were shaman-like rabbi mystics that made terrifying and epic descents into what is described as "divine palaces." These were not the single spontaneous visions, but the rabbis are described as going through a sequence of palaces, gates, and thresholds as they grew in their mastery. Each step has requirements (purity, secret words/names, special sigils, knowledge) and a different set of angelic guardians or tests to get past. Everything about it screamed to me that these guys were doing DMT too, the writings themselves almost sound like trip reports. Dr. Sledge doesn't support this, what he calls "DMT Reductivism" theory. Nobody ultimately knows how they did it, and the rabbis didn't seem to say anything that would lead us to an entheogen ending. What is generally supported is the idea that they were going on extended fasts for up to 40 days, alongside rituals, but I will continue in my ancient aliens themed ignorance and suggest that perhaps psychedelics could act as some sort of a hack, a cheap cheat-code to make an experience that would be somewhat out of reach for the modern man, partly accessible. That isn't to say that I am not completely distorting things with the aim to serve my own story here, to try and rewrite a period where I was googling things like "am I the first person to be addicted to DMT," with a beautiful ending. The goal was to touch the innermost palace, the throne of God. Here one would be surrounded by angels and gaze upon the most high, being transformed someway, sometimes even being transformed into a sort of angel themselves. The book of Enoch, what is seeing a resurgence in its popularity today, is a text which demonstrates this sort of early mysticism - Enoch turning into Metatron at the end. The third book of Enoch is quite literally called Sefer Hekhalot, meaning the "Book of Palaces." Ancient alien theorists relate this story to UFO's, as it sounds like Enoch is being abducted by aliens and shown advanced technology or whatnot, taken on an adventurous tour of reality, but at the same time, for people that ingest Dimethyltryptamine, what is often reported is some sort sort of encounter with a perceived extraterrestrial intelligence. Cmon though, what are we burning man? How many rave prophets do we have out there? It may have nothing to do with things. Even if my DMT phase was nothing but a detour, it at-least led me somewhere productive. I did, starting around 2-22-2022, around two years later, begin to go through "Merkaba" meditations on YouTube by someone named Anrita Melchizedek. She claims to a Starseed, something I heard telepathically around that time at an event, which led me down a spiral of Google to her. Since that time I have done probably over 100+ hours of her different extraterrestrial activations, in which, I remember some of them we were descending into different palaces, saying secret codes to certain angels, etc. There was one where I even got to sit on a lotus throne and get transformed into an angelic type being, and another where I was initiated into the Melchizedek priesthood of light, etc. I wonder what Dr. Justin Sledge, with his educational background, would think of all this... if it aligned with the old texts...
+
+![Pasted image 20251015081908.png](/img/user/images/Pasted%20image%2020251015081908.png)
+
+This early form of mysticism was learned a religion: you needed teachers, and a small practice-community. The writings may preserve instructions, but the living transmission — teacher to student — is what originally carried the skill to survive the ascent. And when the word survive is used, that is in its most literal sense; in some cases, rabbis are quite literally reported to be killed by the mistakes they make during these engagements. The angels guarding these secrets are fierce. There is a famous story about this, held as the most important text in relation to the Merkavah mysticism, about the four that enter into the Pardes, or garden. Only one emerges intact..... the others..... they all face different tragedies. There happens to be another example of Merkavic meanderings made messy mentioned in the Talmud, a story I was just recently introduced to in another one of the newest Esoterica uploads, which was just 11(4+7) days after the historical Jesus one which began this ramble... 
 
 ![Pasted image 20250917070554.png](/img/user/images/Pasted%20image%2020250917070554.png)
 
@@ -562,17 +566,43 @@ Lots more
 
 "Here's a cliche that narcissists use, all narcissists use that I personally find the most irritating. I'm the type of person who always, oh, you know me, I'm extremely dedicated to and then there's some value or virtuous thing and they talk in this kind of cliched way, which would be embarrassing and cringe-inducing for normal adults because they're children. Essentially, that's a child locked inside of an adult's body due to um intense trauma and or spoiling when they were very very young. And that's what creates the narcissistic world view and this connection to the false self that they've created. So all of this is a kind of self supply to that false self to aggrandize themselves and be like, "Yeah, this is who I truly am. And if I can make you listen to it, and I can make you listen to it, and I can write this blog post about it, that's going to make it true."
 
+![Pasted image 20251010171931.png](/img/user/images/Pasted%20image%2020251010171931.png)
+
+![Pasted image 20251010172343.png](/img/user/images/Pasted%20image%2020251010172343.png)
+
+![Pasted image 20251008050303.png](/img/user/images/Pasted%20image%2020251008050303.png)
+
+
 ![Richard.png](/img/user/images/Richard.png)
 
 ![Pasted image 20251010173036.png](/img/user/images/Pasted%20image%2020251010173036.png)
 
 ![Pasted image 20251010172905.png](/img/user/images/Pasted%20image%2020251010172905.png)
 
-![Pasted image 20251010171931.png](/img/user/images/Pasted%20image%2020251010171931.png)
+![Pasted image 20251015051107.png](/img/user/images/Pasted%20image%2020251015051107.png)
+Wait a second...
 
-![Pasted image 20251010172343.png](/img/user/images/Pasted%20image%2020251010172343.png)
+![Pasted image 20251015061324.png| 500](/img/user/images/Pasted%20image%2020251015061324.png)
 
-![Pasted image 20251008050303.png](/img/user/images/Pasted%20image%2020251008050303.png)
+Halloween edition of Dr. Ramani. Used to watch her everyday when I came home from school, binge watching the MedSchool YouTube channel. These videos takes me back, I was fascinated by all the unique ways in which the mind worked, extreme cases like bipolar and borderline disorder were very interesting for me because it was so unexplainable. There were probably nights where I was watching those psychology videos instead of doing my actual psychology homework. That's why I eventually bought her book. I accidentally mistook the years when her run on that channel began, but in trying to figure it out... 
+
+![Pasted image 20251015064854.png](/img/user/images/Pasted%20image%2020251015064854.png)
+
+I had definitely watched this at some point as a prep-guide for what was to come
+
+![Pasted image 20251015071745.png](/img/user/images/Pasted%20image%2020251015071745.png)
+
+![Pasted image 20251015072115.png](/img/user/images/Pasted%20image%2020251015072115.png)
+
+![Pasted image 20251015072211.png](/img/user/images/Pasted%20image%2020251015072211.png)
+
+so close...
+
+![Pasted image 20251015073507.png](/img/user/images/Pasted%20image%2020251015073507.png)
+
+✅
+
+![Pasted image 20251015073438.png](/img/user/images/Pasted%20image%2020251015073438.png)
 
 ![Pasted image 20251010205824.png](/img/user/images/Pasted%20image%2020251010205824.png)
 
@@ -594,11 +624,27 @@ That's a child's logic."
 
 ![Pasted image 20251011062723.png](/img/user/images/Pasted%20image%2020251011062723.png)
 
-![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
-
 ![IMG_7702.jpg| 400](/img/user/images/IMG_7702.jpg)
+Roast battle 
 
 ![IMG_7402.jpg| 400](/img/user/images/IMG_7402.jpg)
+
+
+![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
+
+within 24 hours of me updating that image up ^^
+
+![Pasted image 20251015034939.png](/img/user/images/Pasted%20image%2020251015034939.png)
+
+![Pasted image 20251015043412.png](/img/user/images/Pasted%20image%2020251015043412.png)
+
+![Pasted image 20251015042210.png](/img/user/images/Pasted%20image%2020251015042210.png)
+
+![Pasted image 20251015044119.png](/img/user/images/Pasted%20image%2020251015044119.png)
+
+![Pasted image 20251015044149.png](/img/user/images/Pasted%20image%2020251015044149.png)
+
+![Pasted image 20251015043246.png](/img/user/images/Pasted%20image%2020251015043246.png)
 
 ![Pasted image 20251011031046.png| 700](/img/user/images/Pasted%20image%2020251011031046.png)
 
