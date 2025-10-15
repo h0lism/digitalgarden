@@ -632,7 +632,7 @@ Roast battle
 
 ![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
 
-within 24 hours of me updating that image up ^^
+within 24 hours of me updating with that image ^^
 
 ![Pasted image 20251015034939.png](/img/user/images/Pasted%20image%2020251015034939.png)
 
