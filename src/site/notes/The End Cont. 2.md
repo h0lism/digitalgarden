@@ -4,6 +4,7 @@
 
 Still working on a lot to add in here... many thousands of words Soon updates added every day 
 I Need to eat food now
+![Pasted image 20251015161937.png](/img/user/images/Pasted%20image%2020251015161937.png)
 
 Just recently, as I so desperately want to put a close to this chapter, I came across the final pieces of the puzzle. Dr Justin Sledge, of Esoterica, had a few interesting uploads here towards the end of August. The first was on the story of the historical Jesus. One of the details new for me was that there was a widely circulating theory that Jesus was actually son of a Roman soldier named Pantera. This I found intriguing, because at the place I worked where DopenessOnDeck[[Prequel𓂀/47\|47]] was born, there was a tremendous amount of the band Pantera which was played - especially after we closed. The band was a favorite of one of my co-workers(besides Tool), who then showed our boss, who then became obsessed. I found metal a bit off-putting at first, it was so aggressive, I thought these guys had emotional issues. Through time, I grew to enjoy and play the genre a lot, especially in moments of nostalgia reflecting back to the good ol' days. Things were simpler then, we were working a real life version of the Krusty Krab, what we joked about constantly. Sure, maybe I was molested by a man with down syndrome every day for a summer(Bobby Lee, me too), Spongebob, but honestly, and I'm not even kidding, that was the first person to ever make me feel like maybe I was handsome. I was Zac Efron(he would call me this or cupcake). He was Vanessa Hudgens. Together we made High School Musical. Have you seen the movie Dreamcatcher? There's a down syndrome individual, Duddits, who gifts the 4 main characters psychic abilities in their childhood after they protect him from bullies. Later an alien invasion begins to go down, and these 4, who reunite yearly for a hunting trip, are forced to use their powers to help save the world. 2 of them get killed, 1 of them gets possessed by "Mr. Gray," head honcho parasite, and the lone survivor, Henry, he realizes their only hope is the source of their power: Duddits. Walking, perhaps, sprinting to the ends of the Earth, Henry finds him, frail and dying from leukemia. In a desperate race against time, their psychic powers, which has left them linked, led the two to a final confrontation. Mr Gray, still possessing one of the 4 friends, is about to infect the worlds water supply... what would ensure the invasions success... 
 that is
@@ -342,9 +343,25 @@ The actual compass is not set to 47 degrees necessarily, you see it varying all 
 
 ![compass.jpg| 300](/img/user/images/compass.jpg)
 
-Each side of the political spectrum perceives of themselves as the good guy, and the other guy as the bad. This is what opens up the psyche to the phenomenon of shadow projection, of scapegoating. I am excited to dive further into this mental phenomenon at some point here soon, this event demonstrated it perfectly. What you saw after Charlies death was a bit of sociopathic energy coming out of the left, which perceived that the death of Charlie, the right, was good, and was therefore cause for celebration. This is really quite off-putting, and exposed, at-least for myself, a deep confirmation about the sickness prevalent in the minds of people today - these righteous warriors for 'social justice.' To blissfully feed off the death of a man who shared a different political opinion than yourself is to be completely separated from your humanity. One of the reasons the world was so 'triggered' by this man was because of his conservative values. The left side of the spectrum, through recent years at-least, has seemed to promote a sort of liberated sexual agenda. From my perspective, much of this is actually entity related, and through the energy of lust, our powerful sacred sexual energetic fuel, necessary for the growth of the soul, is drained through hedonism. If I am speaking from the place of Crowley, I feel like there's some merit here. We're not talking about loving energy. Don't think that's what is usually going down with a stranger after 2AM off the spirits, ya know, the different one each weekend, but hey, I don't know, maybe there are people that can pull this off in a way that is very loving for them, but may look from the outside as lustful. Could this tantric sexual magic, however, be inferior to a more reserved approach? Maybe there are phases of development appropriate for ones growth, but it seems that eventually, a stabilization through a transmutation is the highest path, at-least according the many schools of thought that seem to come to this conclusion. There is talk about having to free yourself, but what is freedom if it leads you off a cliff? In one of these old Yoga books I have, they discuss how the auric bubble, so to speak, has little astral hooks that intertwine at the top. When somebody engages in intercourse this process untangles the participants astral cords, to put hypothetically, and then latches and ties together with the astral cords of their partner. In an ideal situation, both individuals would be 'popping the seal' so to speak for the first time with one another, and these hooks would have the greatest ability to merge with one another, creating a sort of shared nervous system. When that relationship does not end up continuing, these cords then have ties to one another that are still, in essence, attached. Through time this dissolves, but it doesn't solve the fact that there is nothing for these untangled hooks to attach to, and so, there is a period of destabilization. For someone to continuously engage in sexual activity, it's almost as though their astral hooks are getting fried, what we may see in scientific literature as issues with pair bonding. When someone like Charlie talks about marriage, and the problems with society, NOPE! Patriarchy. Ewww.. Racist and misogynistic bigot. Why is this guy popular, are we going back in time? What if.... marriage, having a family, trying to form something solid, all of these things... they're actually a form of spiritual technology? What if they were designed to protect one from the emotional emptiness of entity drainage? Why do fighters always hold back the waters before a fight? Situationships, a rotation... it's an unlimited feast for those little parasites out there...  The right, in response, has slut shamed, getting quite immature and nasty, perceiving themselves as the good, and these women as evil Jezebel spirits, but really, we should all just come to an understanding. It's as though the forces of this world could have taken him out, the ones who's feathers he ruffled, even if things weren't pre-planned. To quote the Bhagavad Gita...
+Each side of the political spectrum perceives of themselves as the good guy, and the other guy as the bad. This is what opens up the psyche to the phenomenon of shadow projection, of scapegoating. I am excited to dive further into this mental phenomenon at some point here soon, this event demonstrated it perfectly. What you saw after Charlies death was a bit of sociopathic energy coming out of the left, which perceived that the death of Charlie, the right, was good, and was therefore cause for celebration. This is really quite off-putting, and exposed, at-least for myself, a deep confirmation about the sickness prevalent in the minds of people today - these righteous warriors for 'social justice.' To blissfully feed off the death of a person who shared a different political opinion than yourself is to be completely separated from your humanity. One of the reasons the world was so 'triggered' by this man was because of his conservative values. The left side of the spectrum, through recent years at-least, has seemed to promote a sort of liberated sexual agenda. From my perspective, much of this is actually entity related, and through the energy of lust, our powerful sacred sexual energetic fuel, necessary for the growth of the soul, is drained through hedonism. If I am speaking from the place of Crowley, I feel like there's some merit here. We're not talking about loving energy. Don't think that's what is usually going down with a stranger after 2AM off the spirits, ya know, the different one each weekend, but hey, I don't know. At-least, this is the conclusion that Mark Antony came to, a military leader whose core issue was his addictions to alcohol and women, and in his reincarnated state, found himself as a self proclaimed 'man whore' in the days of rock and roll. From the historian Plutarch's "The Parallel Lives,"
 
-"The Blessed Lord said: It is lust only, Arjuna, which is born of contact with the material modes of passion and later transformed into wrath, and which is the all-devouring, sinful enemy of this world."
+"Antony gave brilliant promise in his youth, they say, until his intimate friendship with Curio fell upon him like a pest. For Curio himself was unrestrained in his pleasures, and in order to make Antony more manageable, engaged him in drinking bouts, and with women, and in immoderate and extravagant expenditures. This involved Antony in a heavy debt and one that was excessive for his years — a debt of two hundred and fifty talents.⁠[3](https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Plutarch/Lives/Antony*.html#note3) 4 For this whole sum Curio went surety, but his father heard of it and banished Antony from his house. Then Antony allied himself for a short time with Clodius, the most audacious and low-lived demagogue of his time, in the violent courses which were convulsing the state; but he soon became sated with that miscreant's madness, and fearing the party which was forming against him, left Italy for Greece, where he spent some time in military exercises and the study of oratory. 5 He adopted what was called the Asiatic style of oratory, which was at the height of its popularity in those days and bore a strong resemblance to his own life, which was swashbuckling and boastful, full of empty exultation and distorted ambition."
+
+Even further, we see how Plutarch recollects how this behavior affected things,
+
+"This course naturally made him odious to the multitude, and to men of worth and uprightness he was not acceptable because of his life in general, as Cicero says,⁠[14](https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Plutarch/Lives/Antony*.html#note14) nay, he was hated by them. They loathed his ill-timed drunkenness, his heavy expenditures, his debauches with women, his spending the days in sleep or in wandering about with crazed and aching head, the nights in revelry or at shows, or in attendance at the nuptial feasts of mimes and jesters. 4 We are told, at any rate, that he once feasted at the nuptials of Hippias the mime, drank all night, and then, early in the morning, when the people summoned him to the forum, came before them still surfeited with food and vomited into his toga, which one of his friends held at his service."
+
+![Pasted image 20251018051211.png](/img/user/images/Pasted%20image%2020251018051211.png)
+
+From The Ra Contact 26.38
+
+"The orange- and the yellow-ray attempts to have sexual intercourse create, firstly, a blockage if only one entity vibrates in this area, thus causing the entity vibrating sexually in this area to have a never-ending appetite for this activity. What these vibratory levels are seeking is green-ray activity. There is the possibility of orange- or yellow-ray energy transfer; this being polarizing towards the negative: one being seen as object rather than other-self, the other seeing itself as plunderer, or master, of the situation."
+
+Maybe there are phases of development appropriate for ones growth, but it seems that eventually, a stabilization through a transmutation, or if not, at-least both parties being in the energy of the heart, is the highest path, at-least according the many schools of thought that seem to come to this conclusion. In one of these old Yoga books I have, they discuss how the auric bubble, so to speak, has little astral hooks that intertwine at the top. When somebody engages in intercourse this process untangles the participants astral cords, to put hypothetically, and then latches and ties together with the astral cords of their partner. In an ideal situation, what is described as a difficult endeavor, both individuals would be 'popping the seal' so to speak for the first time with one another, and these hooks would have the greatest ability to merge with one another, creating a sort of shared nervous system. When that relationship does not end up continuing, these cords then have ties to one another that are still, in essence, attached. Through time this dissolves, but it doesn't solve the fact that there is nothing for these untangled hooks to attach to, and so, there is a period of destabilization. For someone to continuously engage in sexual activity, it's almost as though their astral hooks are getting trained to be always untangled, what we may see in scientific literature as issues with pair bonding. The book describes the fastest way to destabilize a society would be to destabilize their sexual energy. To quote the Bhagavad Gita... "The Blessed Lord said: It is lust only, Arjuna, which is born of contact with the material modes of passion and later transformed into wrath, and which is the all-devouring, sinful enemy of this world." When someone like Charlie talks about marriage, and the problems with society, NOPE! Patriarchy. Ewww.. Racist and misogynistic bigot. Why is this guy popular, are we going back in time? What if.... marriage, having a family, trying to form something solid, all of these things... they're actually a form of spiritual technology? What if they were designed to protect one from the emotional emptiness of entity drainage? That's not to say that, as a spiritual technology, it is not vulnerable to corruption. Who knows, perhaps that book I read has no truth to it. In the past there were certainly abuses in this arena. 
+
+From The Ra Contact 31.16
+
+"I am Ra. The racial memory contains all that has been experienced. Thus there is some, shall we say, contamination even of the sexual, this showing mostly in your own culture as the various predispositions to adversary relationships—or, as you call them, marriages—rather than the free giving one to another in the love and the light of the Infinite Creator."
 
 ![jezebel.jpeg](/img/user/images/jezebel.jpeg)
 (these witches craaazzzyyyyyyy)
@@ -419,6 +436,8 @@ I'm no astrologist, but I believe they accidentally, just barely, overcalculated
 
 ![Pasted image 20251004162126.png](/img/user/images/Pasted%20image%2020251004162126.png)
 
+![Pasted image 20251015161906.png](/img/user/images/Pasted%20image%2020251015161906.png)
+
 ![Pasted image 20251004162435.png](/img/user/images/Pasted%20image%2020251004162435.png)
 
 ![Pasted image 20251004162232.png](/img/user/images/Pasted%20image%2020251004162232.png)
@@ -428,6 +447,8 @@ I'm no astrologist, but I believe they accidentally, just barely, overcalculated
 ![Pasted image 20251004162756.png](/img/user/images/Pasted%20image%2020251004162756.png)
 
 ![Pasted image 20251005133015.png](/img/user/images/Pasted%20image%2020251005133015.png)
+
+![Pasted image 20251015162340.png](/img/user/images/Pasted%20image%2020251015162340.png)
 
 ![Pasted image 20251004162827.png](/img/user/images/Pasted%20image%2020251004162827.png)
 
@@ -476,9 +497,42 @@ A few years later we took acid again when Strfkr came to our city. After the sho
 
 ![Pasted image 20251006035618.png](/img/user/images/Pasted%20image%2020251006035618.png)
 
-![Pasted image 20251007051428.png](/img/user/images/Pasted%20image%2020251007051428.png)
+![Pasted image 20251015171221.png](/img/user/images/Pasted%20image%2020251015171221.png)
+	Who
 
 ![Pasted image 20251007051508.png](/img/user/images/Pasted%20image%2020251007051508.png)
+
+![Pasted image 20251007051428.png](/img/user/images/Pasted%20image%2020251007051428.png)
+
+![Pasted image 20251015164449.png](/img/user/images/Pasted%20image%2020251015164449.png)
+
+![Pasted image 20251015165639.png](/img/user/images/Pasted%20image%2020251015165639.png)
+
+![Pasted image 20251015170359.png](/img/user/images/Pasted%20image%2020251015170359.png)
+the discovery of this phrase utilizing a controversial adjective, whose definition includes "of low or sleazy character" has been captured in the efforts for comedic effect in reference to the devil, not as an attempt to relay a Southern Baptist, Victorian Age message    
+
+![Pasted image 20251015170602.png](/img/user/images/Pasted%20image%2020251015170602.png)
+
+![Pasted image 20251015174531.png](/img/user/images/Pasted%20image%2020251015174531.png)
+the discovery of this phrase utilizing a controversial adjective, whose definition includes "of low or sleazy character" has been captured in the efforts for comedic effect in reference to the devil, not as an attempt to relay a Southern Baptist, Victorian Age message    
+
+![Pasted image 20251015174648.png](/img/user/images/Pasted%20image%2020251015174648.png)
+
+![Pasted image 20251015164752.png](/img/user/images/Pasted%20image%2020251015164752.png)
+
+![Pasted image 20251015165600.png](/img/user/images/Pasted%20image%2020251015165600.png)
+
+![Pasted image 20251015165115.png](/img/user/images/Pasted%20image%2020251015165115.png)
+
+![Pasted image 20251015165855.png](/img/user/images/Pasted%20image%2020251015165855.png)
+
+![Pasted image 20251015170751.png](/img/user/images/Pasted%20image%2020251015170751.png)
+
+![Pasted image 20251015170321.png](/img/user/images/Pasted%20image%2020251015170321.png)
+
+![Pasted image 20251015170655.png](/img/user/images/Pasted%20image%2020251015170655.png)
+
+![Pasted image 20251015191433.png](/img/user/images/Pasted%20image%2020251015191433.png)
 
 1836 - 4-7 
 William Godwin, an English philosopher considered one of the first modern proponents of anarchism, dies
@@ -507,7 +561,11 @@ I started saying this word all the time, even so far as to try and attempt to re
 
 ![Pasted image 20251005135849.png](/img/user/images/Pasted%20image%2020251005135849.png)
 
+![Pasted image 20251015162252.png](/img/user/images/Pasted%20image%2020251015162252.png)
+
 ![Pasted image 20251005145818.png](/img/user/images/Pasted%20image%2020251005145818.png)
+
+![Pasted image 20251015172106.png](/img/user/images/Pasted%20image%2020251015172106.png)
 
 The other place I found this phrase explained in the book .. 
 
@@ -543,9 +601,9 @@ It seems we had a new upload from 2 Shanez on the Day of Atonement as-well. I ju
 
 ![Pasted image 20251008060027.png](/img/user/images/Pasted%20image%2020251008060027.png)
 
-Lots more
+![Pasted image 20251015173137.png](/img/user/images/Pasted%20image%2020251015173137.png)
 
-
+![Pasted image 20251015173704.png](/img/user/images/Pasted%20image%2020251015173704.png)
 
 ![Pasted image 20251007071151.png](/img/user/images/Pasted%20image%2020251007071151.png)
 
@@ -602,8 +660,6 @@ so close...
 
 ✅
 
-![Pasted image 20251015073438.png](/img/user/images/Pasted%20image%2020251015073438.png)
-
 ![Pasted image 20251010205824.png](/img/user/images/Pasted%20image%2020251010205824.png)
 
 "I will be better off pretending that I'm in a,
@@ -620,7 +676,7 @@ That's a child's logic."
 
 "Scapegoating is a premedieval practice. I think scapegoating is an old it's an old Jewish practice. I think it goes back three or 4 thousand years. You put the sins of the tribe into a goat and then you send the goat out into the wilderness to die a painful death from exposure. That's that's what a literal scapegoat is. I think there's a um a William Blake uh painting of that if you fancy looking it up. Under those circumstances, people will become more narcissistic and they will treat themselves as mini gods. And you might say, "Oh, that's you're being euphemistic. That's you don't really mean that. That's poetic language." And yes, of course, you can take it euphemistically. You can take it uh mythically, but try and take it literally as well. In what ways do people treat themselves as gods? Do they make images of themselves, graven images of themselves, worship those images and ask others to worship those images also, literally and figuratively? The answer to that question is yes. Do they demand submission to cultlike, religious-like ideologies and narratives that if you don't submit to, you are punished and or outcast? Yes, these are religious uh ideologically religious mini cults and people are becoming mini gods. The hollow gods of a dying age and this is a dying age."
 
-![oops.png](/img/user/images/oops.png)
+![rorriM.png](/img/user/images/rorriM.png)
 
 ![Pasted image 20251011062723.png](/img/user/images/Pasted%20image%2020251011062723.png)
 
@@ -632,24 +688,11 @@ Roast battle
 
 ![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
 
-within 24 hours of me updating with that image ^^
+Richard Grannon's videos are very educational and I think he is a valuable resource for people. I love his perspective and have enjoyed watching some of his content as of lately. I was not going to include anything about him, but these numbers were no joke, and it felt like a trail I was led on. I am certainly open to criticism, not that anything he was even saying was even related to myself, this entire website, is hilariously probably a great case study for these subjects. I believe it was a deeper point that I was picking up on, related to my understanding of [[The Inner Garden/Greenhouse/Wetiko (Weeds)\|Wetiko (Weeds)]]. There is a certain sensitivity that I believe we must have when portraying certain things, because of the way that the mind constructs identity in relation to others. If anything, let an expert explain with much more elegance that I may be able to, on the very, very subtle aspect of his teachings which I believe this entire dynamic was ultimately in efforts to bring to the light of discussion. 
 
-![Pasted image 20251015034939.png](/img/user/images/Pasted%20image%2020251015034939.png)
+![Pasted image 20251018043819.png](/img/user/images/Pasted%20image%2020251018043819.png)
 
-If you watch the video, there is nothing within it that talks about 'conspiracy theorists' or anyone quoting 'Indian phonies.' The description seems to not necessarily be tied to the content. Here on my website though, I have recently begun to divulge into a little conspiracy content(and will be updating lots more surrounding the suspicious Kirk situation), and I do quote some Indian stuff here and there. This YouTube channel reuploads pieces from Professor Sam Valkin, it could be him or may just be a fan who uploads old content, an unrelated third party saying something completely coincidental at the perfect time. I felt a strange disturbance in the force a little while back, having this weird feeling that psychologists had somehow seen my website and were making videos. Here we go again getting hyper paranoid, thinking everything in the world is somehow related to me, oh no the Government is after us... maybe I should probably watch a few of these. If Sam did navigate his way here and found this website as prime study material, that would be both awesome and hilarious. I have been watching his videos on and off for around 6 years or so, and am an huge fan. He really knows his stuff. There is a potential that I am completely looking into things far too deeply, actively exposing my dysregulation to the broader public, in which case, I offer you a vulnerable look into my condition.
-
-![Pasted image 20251015091943.png](/img/user/images/Pasted%20image%2020251015091943.png)
-	lol right after I finished this, premonition
-
-![Pasted image 20251015043412.png](/img/user/images/Pasted%20image%2020251015043412.png)
-
-![Pasted image 20251015042210.png](/img/user/images/Pasted%20image%2020251015042210.png)
-
-![Pasted image 20251015044119.png](/img/user/images/Pasted%20image%2020251015044119.png)
-
-![Pasted image 20251015044149.png](/img/user/images/Pasted%20image%2020251015044149.png)
-
-![Pasted image 20251015043246.png](/img/user/images/Pasted%20image%2020251015043246.png)
+![r2ybUrn.gif](/img/user/images/r2ybUrn.gif)
 
 ![Pasted image 20251011031046.png| 700](/img/user/images/Pasted%20image%2020251011031046.png)
 
@@ -730,7 +773,7 @@ You can't say that he isn't persistent. I found a recent Facebook video by Micha
 
 ![reed.jpeg](/img/user/images/reed.jpeg)
 
-In his defense, according to [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]], the original Ten Commandments are the product of an evil Yahweh
+In his defense, according to [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]], the original Ten Commandments are the product of a negatively polarized Yahweh
 
 From The Ra Contact 16.10-16.17
 
@@ -815,3 +858,12 @@ https://docs.google.com/spreadsheets/d/1Dt-XwWicPLn4SsVNpHdiWt9kBe0dQx7EMT9FbrX1
 Was able to recover an old phone for first time in over a year+, it just randomly, actually turned on after charging it, giving me access to an ancient relic.... a 47 second video....
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/E-FcY6mnrw4?si=a5bL5aTJoaW0nQKZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+![Pasted image 20251015172511.png](/img/user/images/Pasted%20image%2020251015172511.png)
+
+![Pasted image 20251015173523.png](/img/user/images/Pasted%20image%2020251015173523.png)
+
+![Pasted image 20251015173454.png](/img/user/images/Pasted%20image%2020251015173454.png)
+
+![Pasted image 20251015172534.png](/img/user/images/Pasted%20image%2020251015172534.png)
+
