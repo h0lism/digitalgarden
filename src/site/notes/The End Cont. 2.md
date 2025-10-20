@@ -131,6 +131,10 @@ From Dec 2021
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1VjJ-lQEKCk?si=JQqTNtyXySWZW_DN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+Also, when I went to go watch your favorite movie "Fast Times at Ridgemont High" for the first time way later down the line... 
+
+![IMG_5094.jpg| 300](/img/user/images/IMG_5094.jpg)
+
 Oh yeah ...
 
 In regards to Pantera, the specific album "Cowboys from Hell" was my favorite, what was played on CD. Shane is the name of a classic western movie about a cowboy, and with the Aleister Crowley thing, well, perhaps I have quite literally come from hell. Learning this Pantera fact about the Jesus story, I was inspired to go back and listen. What do you know, my favorite song from the album...
@@ -694,6 +698,10 @@ Richard Grannon's videos are very educational and I think he is a valuable resou
 
 ![r2ybUrn.gif](/img/user/images/r2ybUrn.gif)
 
+Look at what I've started.... pure chaos magick. Dr Ramani, I'm sorry, but I do remember now that when I was going through your book, I had to stop because I picked up on this. I was really trying to stay as long as I could but had to tap out after a certain point. I have absolutely no idea, as I haven't followed for a while, if things evolved, though I am sure given this video, they obviously have. Really this is all Wetiko, if you psychologists studied Wetiko... oh you just wait till I get myself re-arranged after all this... How profound, the absent thoughts I had 5+ years ago have now been delivered directly to the source which can take this in. Enochian style. 
+
+![healnpd.png](/img/user/images/healnpd.png)
+
 ![Pasted image 20251011031046.png| 700](/img/user/images/Pasted%20image%2020251011031046.png)
 
 ![psykotic.jpg](/img/user/images/psykotic.jpg)
@@ -858,6 +866,7 @@ https://docs.google.com/spreadsheets/d/1Dt-XwWicPLn4SsVNpHdiWt9kBe0dQx7EMT9FbrX1
 Was able to recover an old phone for first time in over a year+, it just randomly, actually turned on after charging it, giving me access to an ancient relic.... a 47 second video....
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/E-FcY6mnrw4?si=a5bL5aTJoaW0nQKZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 
 ![Pasted image 20251015172511.png](/img/user/images/Pasted%20image%2020251015172511.png)
 
