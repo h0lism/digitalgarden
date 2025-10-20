@@ -148,6 +148,8 @@ It turns out that Mercury was looking to rehome the cutest little 1-1½ year old
 
 We began to notice that Olive was a maniac. At first she was just your average puppy, you know, the energy you have at a year and a half or so. My Dad used to breed Shar-Peis, and overtime, began to see that her personality was unlike any other girls he has had before. We began to refer to her as "the beast." Taking her on a walk was like bringing a bullet train out onto the sidewalk. I would constantly have to yank on the leash to heel her as she began to walk me -unable to keep up(which didn't stop her). Olive was a vicious little thing, violently barking at nearly any noise - the lid of a garbage can from across the street closing, for example. It would take 5+ minutes to calm her down, every time(15+ times a day). Around 3 months after getting her, doing LSD in my fathers basement, a floating white orb visited us. I was too high to move my body, having my entire paradigm of reality completely shattering in real time - but Olive who was with me, she began to bark at this thing. She looked at me, looked at the orb, was barking, then looked back at me, and slowly became terrified. Olive realized that this thing was on another level, she could detect that her barks were not going to have any power over this thing in the basement, and you could see her beginning to cower down and become just as terrified as me. It was actually nice to have someone there with me going through this experience, if she wasn't helping to validate the existence of this thing I don't know I would have retained sanity. 
 
+![IMG_3250.jpg| 333](/img/user/images/IMG_3250.jpg)
+
 Lots to get into here about theories of Dionysus being the original Jesus
 
 Julius Caesar crying about not achieving anything at 37 when he reads about Alexander's achievements. 
@@ -160,6 +162,9 @@ Familiar as his garter
 # “Each moment free from fear makes a man immortal.”  
 ― Alexander the Great
 
+Just 3 months after I purchased the Alexander the Great book and went through it, my favorite artist at the time, Izaya Tiji, drops an album titled "Alexandria." Izaya is known for identifying as schizophrenic, and so when I started to go through my own phase, he was one of the only people I listened to. It just felt like this guy was on the same wavelength.  
+
+![Pasted image 20251020074617.png](/img/user/images/Pasted%20image%2020251020074617.png)
 
 ![Pasted image 20250820160957.png](/img/user/images/Pasted%20image%2020250820160957.png)
 
