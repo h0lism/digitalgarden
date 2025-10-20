@@ -698,7 +698,7 @@ Richard Grannon's videos are very educational and I think he is a valuable resou
 
 ![r2ybUrn.gif](/img/user/images/r2ybUrn.gif)
 
-Look at what I've started.... pure chaos magick. Dr Ramani, I'm sorry, but I do remember now that when I was going through your book, I had to stop because I picked up on this. I was really trying to stay as long as I could but had to tap out after a certain point. I have absolutely no idea, as I haven't followed for a while, if things evolved, though I am sure given this video, they obviously have. Really this is all Wetiko, if you psychologists studied Wetiko... oh you just wait till I get myself re-arranged after all this... How profound, the absent thoughts I had 5+ years ago have now been delivered directly to the source which can take this in. Enochian style. 
+Look at what I've started.... pure chaos magick. Dr Ramani, I'm sorry, but I do remember now that when I was going through your book, I had to stop because I picked up on this. I was really trying to stay as long as I could but had to tap out after a certain point. This guy might be a bit of a hater, but perhaps we can hear the blessing through the growls. I have absolutely no idea, as I haven't followed for a while, if things evolved, though I am sure given this video, they obviously have. Really this is all Wetiko, if you psychologists studied Wetiko... oh you just wait till I get myself re-arranged after all this... How profound, the absent thoughts I had 5+ years ago have now been delivered directly to the source. Enochian style. 
 
 ![healnpd.png](/img/user/images/healnpd.png)
 
