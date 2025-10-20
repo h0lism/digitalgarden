@@ -104,7 +104,18 @@ The Gordian Knot was a legendary, complex knot tied to an oxcart in Gordium, Phr
 - [ ] During the Mallian siege, Alexander the Great was struck in the left breast by an arrow, which pierced his thorax and lung, causing a life-threatening tension pneumothorax, leading to dizziness, swooning, and a period of unconsciousness.
 	- [ ] Right as I had listened to this portion of the audiobook, I'm not sure if it was before or after, but in a 24 hour period I injured my chest in the Gym and pulled a pec, which now has a little aesthetic alteration as evidence of this. Going too hard, striving for glory, to push my strength to new heights, I believe that this was done this while listening to the song Alexander the Great by Iron Maiden as-well. 
 
-At one point the book talks about how Alexander had been initiated as a "pharaoh" of Egypt. On this day I found myself going to the yoga studio. Discussing the brain structure, particularly the pineal gland in the center of the head and its alignment with the eye of horus when viewing the brain from a certain angle. The corpus collosum 
+At one point the book talks about how Alexander had been initiated as a "pharaoh" of Egypt. A few days later I found myself going to the yoga studio, on the way to one of Aristotle's ([[EVERYTHING'S A ROUGH DRAFT\|EVERYTHING'S A ROUGH DRAFT]]) soundbaths. 
+Recently we had been discussing how the eye of Horus had a similar structure to the pineal gland. To demonstrate...
+
+![horus.jpg|400](/img/user/images/horus.jpg)
+
+After conquering Egypt, Alexander journeyed deep into the desert to visit the famous Oracle of Amun at the Siwa Oasis. The priests there famously welcomed him as the "son of Amun." For Alexander and his followers, this was a big deal. Since Amun was equated with Zeus, the oracle was essentially confirming that Alexander was the son of Zeus. This solidified his divine status, legitimized his rule over Egypt as a god-king (pharaoh), and served as powerful propaganda throughout his empire. Coins were minted that depicted Alexander with the "horns of Amun" curling around his ears. I started to look some of this up, and discovered an image that related this to the hippocampal structure of the brain. 
+
+![IMG_8046.jpg| 300](/img/user/images/IMG_8046.jpg)
+
+I was excited to bring this insight to philosopher Aristotle. It was kind of tripping me out. When I arrived at the studio, where the (sound) bowls were about to be lit up, I was thrown into an even more "tripped out" state when I parked behind a truck that had this sticker on it. I had to pull this from google, my phone was either dead or I didn't bring it with me. I specifically remember this feeling even more maddening because I wouldn't have evidence. 
+
+![Dodge-Ram-Head-Muscle-Truck-Decal-Sticker.jpg](/img/user/images/Dodge-Ram-Head-Muscle-Truck-Decal-Sticker.jpg)
 
 Alexander was really into The Illiad and The Odyssey. It was basically his bible.
 
@@ -137,11 +148,9 @@ It turns out that Mercury was looking to rehome the cutest little 1-1½ year old
 
 We began to notice that Olive was a maniac. At first she was just your average puppy, you know, the energy you have at a year and a half or so. My Dad used to breed Shar-Peis, and overtime, began to see that her personality was unlike any other girls he has had before. We began to refer to her as "the beast." Taking her on a walk was like bringing a bullet train out onto the sidewalk. I would constantly have to yank on the leash to heel her as she began to walk me -unable to keep up(which didn't stop her). Olive was a vicious little thing, violently barking at nearly any noise - the lid of a garbage can from across the street closing, for example. It would take 5+ minutes to calm her down, every time(15+ times a day). Around 3 months after getting her, doing LSD in my fathers basement, a floating white orb visited us. I was too high to move my body, having my entire paradigm of reality completely shattering in real time - but Olive who was with me, she began to bark at this thing. She looked at me, looked at the orb, was barking, then looked back at me, and slowly became terrified. Olive realized that this thing was on another level, she could detect that her barks were not going to have any power over this thing in the basement, and you could see her beginning to cower down and become just as terrified as me. It was actually nice to have someone there with me going through this experience, if she wasn't helping to validate the existence of this thing I don't know I would have retained sanity. 
 
-
+Lots to get into here about theories of Dionysus being the original Jesus
 
 Julius Caesar crying about not achieving anything at 37 when he reads about Alexander's achievements. 
-
-Alexander being crowned a Phaoroh of Egypt
 
 Turn him to any cause of policy,  
 The Gordian Knot of it he will unloose,  
