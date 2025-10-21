@@ -150,9 +150,15 @@ We began to notice that Olive was a maniac. At first she was just your average p
 
 ![IMG_3250.jpg| 333](/img/user/images/IMG_3250.jpg)
 
+![IMG_3537.jpg| 400](/img/user/images/IMG_3537.jpg)
+
 Lots to get into here about theories of Dionysus being the original Jesus
 
 Julius Caesar crying about not achieving anything at 37 when he reads about Alexander's achievements. 
+
+Dionysus myth turning wine into water
+
+Dionysus riding donkey, Jesus riding donkey, Lodovicco Lazarelli 'mentor' riding donkey
 
 Turn him to any cause of policy,  
 The Gordian Knot of it he will unloose,  
