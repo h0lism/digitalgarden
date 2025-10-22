@@ -8,6 +8,6 @@ Less than 24 hours later
 Major announcement from the angelic hierarchy on high coming tomorrow 
 
 It has to do with 3IAtlas
-an incredibly special 
+and an incredibly special 
 limited time opportunity
 available for us this Halloweens Eve...
