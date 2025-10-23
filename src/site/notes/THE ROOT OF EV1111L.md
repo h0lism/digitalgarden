@@ -308,9 +308,7 @@ Step into the memory beneath your memories
 
 Free. 
 
-That is, 
-until 11-11.
-The gates are open for 11 days. 
-After that, only the committed remain.
+I will figure out how to profit off you here soon.
+Perhaps on 11-11 ...
 
 ![hercules.jpg](/img/user/images/hercules.jpg)
