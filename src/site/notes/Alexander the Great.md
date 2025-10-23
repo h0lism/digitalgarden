@@ -158,7 +158,7 @@ Julius Caesar crying about not achieving anything at 37 when he reads about Alex
 
 Dionysus myth turning wine into water
 
-Dionysus riding donkey, Jesus riding donkey, Lodovicco Lazarelli 'mentor' riding donkey
+Dionysus riding donkey, Jesus riding donkey, Lodovicco Lazarelli 'mentor'  riding donkey
 
 Turn him to any cause of policy,  
 The Gordian Knot of it he will unloose,  
@@ -175,4 +175,9 @@ Just 3 months after I purchased the Alexander the Great book and went through it
 ![Pasted image 20250820160957.png](/img/user/images/Pasted%20image%2020250820160957.png)
 
 ![Pasted image 20251020043143.png](/img/user/images/Pasted%20image%2020251020043143.png)
+
+![Pasted image 20251022025213.png](/img/user/images/Pasted%20image%2020251022025213.png)
+
+![Pasted image 20251022061058.png](/img/user/images/Pasted%20image%2020251022061058.png)
+
 
