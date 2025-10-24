@@ -182,7 +182,7 @@ Just 3 months after I purchased the Alexander the Great book and went through it
 
 ![Pasted image 20251022061058.png](/img/user/images/Pasted%20image%2020251022061058.png)
 
-The day I first uploaded this page was on 10-20-2025 and then later I went to the store (give me my 2 cents back). Last time I was there was 6 days ago... and then one of the recent times before that 9-29-25... 
+The day I first uploaded this page was on 10-20-2025 and then later I went to the store (Two Cents). Last time I was there was 6 days ago... and then one of the recent times before that 9-29-25... 
 
 ![receipt.png](/img/user/images/receipt.png)
 
