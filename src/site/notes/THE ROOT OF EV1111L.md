@@ -162,6 +162,10 @@ Non-dual awareness, baby. Yeah.
 Yeaah.
 Yeah. "
 
+![Pasted image 20251027064805.png](/img/user/images/Pasted%20image%2020251027064805.png)
+
+![Pasted image 20251027064723.png](/img/user/images/Pasted%20image%2020251027064723.png)
+
 ![Pasted image 20251016165851.png](/img/user/images/Pasted%20image%2020251016165851.png)
 
 Dan Koe,
