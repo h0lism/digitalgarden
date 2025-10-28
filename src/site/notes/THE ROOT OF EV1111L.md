@@ -164,10 +164,12 @@ Yeah. "
 
 ![Pasted image 20251027064723.png](/img/user/images/Pasted%20image%2020251027064723.png)
 
+![Pasted image 20251028022502.png](/img/user/images/Pasted%20image%2020251028022502.png)
+
 ![Pasted image 20251016165851.png](/img/user/images/Pasted%20image%2020251016165851.png)
 
 Dan Koe,
-He got me pretty good too...
+He got me pretty good too... (learned a lot from this guy)
 
 I guess I have to figure out a way to provide you guys some value.
 
@@ -314,3 +316,6 @@ I will figure out how to profit off you here soon.
 Perhaps on 11-11 ...
 
 ![hercules.jpg](/img/user/images/hercules.jpg)
+
+![IMG_3558.png| 333](/img/user/images/IMG_3558.png)
+
