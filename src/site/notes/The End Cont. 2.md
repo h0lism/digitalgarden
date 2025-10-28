@@ -293,6 +293,8 @@ Charles the Bold who died 1477
 
 Just shortly after my 4:32 experience, at the perfect view count...
 
+
+
 ![Pasted image 20251003183620.png](/img/user/images/Pasted%20image%2020251003183620.png)
 	https://www.youtube.com/watch?v=Xvdz_mm5mEw
 
@@ -346,6 +348,9 @@ Now I am not trying to be insensitive to a grieving woman, but I must say, given
 The actual compass is not set to 47 degrees necessarily, you see it varying all over the place, this person is somewhat incorrect in putting that over this image, but, the compass does still represent the 47th Law of Euclid, as discussed in [[Prequel𓂀/47\|47]]
 
 ![compass.jpg| 300](/img/user/images/compass.jpg)
+
+![IMG_3641.png| 300](/img/user/images/IMG_3641.png)
+	Joe Rogan 2026?
 
 Each side of the political spectrum perceives of themselves as the good guy, and the other guy as the bad. This is what opens up the psyche to the phenomenon of shadow projection, of scapegoating. I am excited to dive further into this mental phenomenon at some point here soon, this event demonstrated it perfectly. What you saw after Charlies death was a bit of sociopathic energy coming out of the left, which perceived that the death of Charlie, the right, was good, and was therefore cause for celebration. This is really quite off-putting, and exposed, at-least for myself, a deep confirmation about the sickness prevalent in the minds of people today - these righteous warriors for 'social justice.' To blissfully feed off the death of a person who shared a different political opinion than yourself is to be completely separated from your humanity. One of the reasons the world was so 'triggered' by this man was because of his conservative values. The left side of the spectrum, through recent years at-least, has seemed to promote a sort of liberated sexual agenda. From my perspective, much of this is actually entity related, and through the energy of lust, our powerful sacred sexual energetic fuel, necessary for the growth of the soul, is drained through hedonism. If I am speaking from the place of Crowley, I feel like there's some merit here. We're not talking about loving energy. Don't think that's what is usually going down with a stranger after 2AM off the spirits, ya know, the different one each weekend, but hey, I don't know. At-least, this is the conclusion that Mark Antony came to, a military leader whose core issue was his addictions to alcohol and women, and in his reincarnated state, found himself as a self proclaimed 'man whore' in the days of rock and roll. From the historian Plutarch's "The Parallel Lives,"
 
@@ -787,34 +792,49 @@ From The Ra Contact 16.10-16.17
 
 Questioner
 	You mentioned the word “Empire” in relation to the Orion group. I have thought for some time that the movie Star Wars was somehow an allegory, in part, for what is actually happening. Is this correct?
+
 Ra
 	I am Ra. This is correct in the same way that a simple children’s story is an allegory for physical/philosophical/social complex distortion-understanding.
+
 Questioner
 	Is there a harvest of entities oriented towards service to self like there is a harvest here of entities oriented towards service to others?
+
 Ra
 	I am Ra. There is one harvest. Those able to enter fourth density through vibrational complex levels may choose the manner of their further seeking of the One Creator.
+
 Questioner
 	Then as we enter the fourth density there will be a split, shall we say, and part of the individuals who go into the fourth density will go to planets, or places, where there is service to others, and the other part will go into places where there is service to self. Is this correct?
+
 Ra
 	I am Ra. This is correct.
+
 Questioner
 	Well, the Confederation established its quarantine, I understand, seventy-five thousand years ago. Has the Orion group been attempting to contact any part of this planet prior to that? Or did they… how long have they been attempting to contact this planet?
+
 Ra
 	I am Ra. Approximately four five thousand [45,000] years ago an attempt was made. It was not successful. Approximately two six oh oh, two thousand six hundred [2,600], years ago the group sent an entity of social memory complex to this planetary sphere. This effort met with some success but was in the space/time continuum lessened in impact. Since approximately two three oh oh, two thousand three hundred [2,300], years ago, in your measurement, this group has constantly been working upon the harvest just as the Confederation. 
+
 Questioner
 	Can you name the entity that they sent here twenty-six hundred years ago… two thousand six hundred years ago? 
+
 Ra
 	I am Ra. This entity named by your peoples, Yahweh.
+
 Questioner
 	Can you tell me the origin of the Ten Commandments?
+
 Ra
 	I am Ra. The origin of these commandments follows the law of negative entities impressing information upon positively oriented mind/body/spirit complexes. The information attempted to copy, or ape, positivity while retaining negative characteristics.
+
 Questioner
 	Was this done by the Orion group?
+
 Ra
 	I am Ra. This is correct.
+
 Questioner
 	What was their purpose in doing this?
+
 Ra
 	I am Ra. The purpose of the Orion group, as mentioned before, is conquest and enslavement. This is done by finding and establishing an elite and causing others to serve the elite through various devices, such as the laws you mention and others given by this entity.
 
@@ -835,6 +855,54 @@ To quote a moment of observation upon the Yaldabaoth, or Demiurge, the corrupted
  For, if there were no other God, whom would he possibly be jealous of?"
 
 What is interesting, is that Haim Eshed, who was the founder of the Israeli space program, came out in 2020, and admitted that Israel had a secret alien alliance. Regarding why he chose to reveal this information now, he said, "If I had come up with what I'm saying today five years ago, I would have been hospitalized." A decorated resume, the man spent 30 years as Israeli space security chief, was a general of the Israeli military intelligence force, and responsible for putting numerous satellites out into space. He was even awarded the Chief of Staff Citation, which is the highest non-combat decoration that the IDF hands out. This wasn't the only golden star pressed upon his nameplate, as Haim also was a recipient, three times, of the Israel Defense Prize, what is the highest civilian defense honor of the State of Israel. Possessing a Ph.D. in Aeronautical Engineering, as well as other accomplishments, he feels like his reputation is already established, and didn't fear coming out about the ordeal. Apparently the aliens are curious about humanity and researching "the fabric of the universe." He claims that Trump is in on it, but hasn't dropped the bombshell on the public due to the mass hysteria which would result. "They have been waiting until today for humanity to develop and reach a stage where we will understand, in general, what space and spaceships are," Eshed said, referring to the 'galactic federation.'
+
+![Pasted image 20251028012600.png](/img/user/images/Pasted%20image%2020251028012600.png)
+	This is how you know Osamason tapped in 
+
+![Pasted image 20251028012135.png](/img/user/images/Pasted%20image%2020251028012135.png)
+
+![IMG_8110.jpg| 250](/img/user/images/IMG_8110.jpg)
+
+One of the other songs on this Mambas album is titled "Big Louise,"
+the name of Margaret's sister. 
+
+Osamason also goes by the the alternate moniker 'Lil O' as a nickname. He uses it in song titles, such as the popular "Lil O The Impaler," and fans can also find their way to a separate Spotify account with this title hosting leaked songs.
+
+Lil O is also the name of one of the original members of the influential Houston hip hop collective _Screwed Up Click_ (or **S.U.C.**). Born Oreoluwa Mitchell Magnus-Lawson on 11-22-77, in Lagos, Nigeria, he was raised in Southwest Houston, Texas. The sobriquet used for his rap career comes from his first name, but also references his height (5'0 tall). Lil O's debut single, "Can't Stop," recorded in 1997 while studying at Xavier University of Louisiana in New Orleans(educationally based), features vocal contributions from Destiny's Child. The visuals for this is Beyoncé's first ever music video appearance. 
+
+He just so happens to be a certain age. 
+
+![Pasted image 20251028013224.png](/img/user/images/Pasted%20image%2020251028013224.png)
+
+This period has had a tremendous influence on modern rap. The Houston "sizzurp" era of the 1990s was when the drug, also known as "purple drank," "Texas tea," "mud," "dirty sprite," or "lean," amongst other names, became deeply embedded in the city's hip-hop culture, and now, decades later, hip hop culture everywhere. It is said that Lean originated in Houston during the 1960s, a time when blues musicians would mix cough syrups like Robitussin with beer or wine at social gatherings. When what had rolled around was the 1980s and ’90s, the recipe evolved to include prescription-strength codeine-promethazine cough syrup combined with soda, perhaps candy as-well, jolly-ranchers for example. This concoction emerged with a great force far and near within the Houston hip-hop scene, DJ Screw being one of the prominent figures through which this mixture found voice of influence. 
+
+![Pasted image 20251028054051.png](/img/user/images/Pasted%20image%2020251028054051.png)
+
+Mixing music melodically in a new manner, he developed a "chopped and screwed" style of music which came to define the era. It is almost as though he was directly transferring the effects induced by the substance into a new slowed-down and entrancing style. Today "chopped and screwed" is an entire genre in and of itself.
+
+![Pasted image 20251028054205.png](/img/user/images/Pasted%20image%2020251028054205.png)
+
+Unfortunately, it was the drug he loved so much that eventually killed him. After found dead in his Houston recording studio on in the 8100 block of Commerce Park Drive in November of 2000, the medical examiner determined that, at just 29 years old, DJ Screw had died of a codeine overdose(with PCP and Valium in his system as-well). 
+
+![screwed.jpg| 550](/img/user/images/screwed.jpg)
+	A business card from his original shop
+
+This location is just 1.58 miles, a 3 minute drive from Houston Fire Station 47. Just a little ways across West Orem Drive ... wait a second ... where was Charlie Kirk assassinated again?
+
+![Pasted image 20251028053030.png](/img/user/images/Pasted%20image%2020251028053030.png)
+
+Screw had originally opened up shop in 1998 in the southeast Houston region (which overlaps with or is adjacent to South Park). Megan Thee Stallion was raised in this location until moving at 14, and Travis Scott also grew up here from the age of 1-6.
+
+![Pasted image 20251028053121.png](/img/user/images/Pasted%20image%2020251028053121.png)
+
+It does seem that Screwed Up Records has a new location, and phone number.
+
+![Pasted image 20251028052222.png| 600](/img/user/images/Pasted%20image%2020251028052222.png)
+
+I remember Patrick from the Krusty Krab talking to me about Lil O. "Da Fat Rat wit da Cheeze," this topic of conversation always ended up wit da singing of memes...
+
+![beans.jpg](/img/user/images/beans.jpg)
+
 
 ![Pasted image 20251013064605.png](/img/user/images/Pasted%20image%2020251013064605.png)
 
