@@ -320,6 +320,7 @@ Ten armed guards in the yard like the White House
 Barbed wire around the fence and the dog's out  
 Raindrops, they drop down, on the lost crown"
 
+![IMG_3653.jpg| 300](/img/user/images/IMG_3653.jpg)
 
 Tyler Robinson was 22 years old. This is a significant number for the Masons. As-well, the fact that it took them '33 hours' to get ahold of him after the incident, peculiar. 
 
@@ -697,7 +698,13 @@ Roast battle
 
 ![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
 
-Richard Grannon's videos are very educational and I think he is a valuable resource for people. I love his perspective and have enjoyed watching some of his content as of lately. I was not going to include anything about him, but these numbers were no joke, and it felt like a trail I was led on. I am certainly open to criticism, not that anything he was even saying was even related to myself, this entire website, is hilariously probably a great case study for these subjects. I believe it was a deeper point that I was picking up on, related to my understanding of [[The Inner Garden/Greenhouse/Wetiko (Weeds)\|Wetiko (Weeds)]]. There is a certain sensitivity that I believe we must have when portraying certain things, because of the way that the mind constructs identity in relation to others. If anything, let an expert explain with much more elegance that I may be able to, on the very, very subtle aspect of his teachings which I believe this entire dynamic was ultimately in efforts to bring to the light of discussion. 
+Richard Grannon's videos are very educational and I think he is a valuable resource for people. I love his perspective and have enjoyed watching some of his content as of lately.
+![Pasted image 20251028061831.png](/img/user/images/Pasted%20image%2020251028061831.png)
+
+![Pasted image 20251028062000.png| 300](/img/user/images/Pasted%20image%2020251028062000.png)
+
+I was not going to include anything about him, but these numbers were no joke, and it felt like a trail I was led on.
+I am certainly open to criticism, not that anything he was even saying was even related to myself, this entire website, is hilariously probably a great case study for these subjects. I believe it was a deeper point that I was picking up on, related to my understanding of [[The Inner Garden/Greenhouse/Wetiko (Weeds)\|Wetiko (Weeds)]]. There is a certain sensitivity that I believe we must have when portraying certain things, because of the way that the mind constructs identity in relation to others. If anything, let an expert explain with much more elegance that I may be able to, on the very, very subtle aspect of his teachings which I believe this entire dynamic was ultimately in efforts to bring to the light of discussion. 
 
 ![Pasted image 20251018043819.png](/img/user/images/Pasted%20image%2020251018043819.png)
 
@@ -856,15 +863,16 @@ To quote a moment of observation upon the Yaldabaoth, or Demiurge, the corrupted
 
 What is interesting, is that Haim Eshed, who was the founder of the Israeli space program, came out in 2020, and admitted that Israel had a secret alien alliance. Regarding why he chose to reveal this information now, he said, "If I had come up with what I'm saying today five years ago, I would have been hospitalized." A decorated resume, the man spent 30 years as Israeli space security chief, was a general of the Israeli military intelligence force, and responsible for putting numerous satellites out into space. He was even awarded the Chief of Staff Citation, which is the highest non-combat decoration that the IDF hands out. This wasn't the only golden star pressed upon his nameplate, as Haim also was a recipient, three times, of the Israel Defense Prize, what is the highest civilian defense honor of the State of Israel. Possessing a Ph.D. in Aeronautical Engineering, as well as other accomplishments, he feels like his reputation is already established, and didn't fear coming out about the ordeal. Apparently the aliens are curious about humanity and researching "the fabric of the universe." He claims that Trump is in on it, but hasn't dropped the bombshell on the public due to the mass hysteria which would result. "They have been waiting until today for humanity to develop and reach a stage where we will understand, in general, what space and spaceships are," Eshed said, referring to the 'galactic federation.'
 
-![Pasted image 20251028012600.png](/img/user/images/Pasted%20image%2020251028012600.png)
+![Pasted image 20251028062553.png](/img/user/images/Pasted%20image%2020251028062553.png)
+
+![Pasted image 20251028062157.png| 300](/img/user/images/Pasted%20image%2020251028062157.png)
 	This is how you know Osamason tapped in 
 
 ![Pasted image 20251028012135.png](/img/user/images/Pasted%20image%2020251028012135.png)
 
 ![IMG_8110.jpg| 250](/img/user/images/IMG_8110.jpg)
 
-One of the other songs on this Mambas album is titled "Big Louise,"
-the name of Margaret's sister. 
+Besides this 3:45 minute song part of the Mambas first release, one of the other songs on this album is titled "Big Louise," the name of Margaret's sister. 
 
 Osamason also goes by the the alternate moniker 'Lil O' as a nickname. He uses it in song titles, such as the popular "Lil O The Impaler," and fans can also find their way to a separate Spotify account with this title hosting leaked songs.
 
@@ -880,7 +888,7 @@ This period has had a tremendous influence on modern rap. The Houston "sizzurp" 
 
 Mixing music melodically in a new manner, he developed a "chopped and screwed" style of music which came to define the era. It is almost as though he was directly transferring the effects induced by the substance into a new slowed-down and entrancing style. Today "chopped and screwed" is an entire genre in and of itself.
 
-![Pasted image 20251028054205.png](/img/user/images/Pasted%20image%2020251028054205.png)
+![Pasted image 20251028063854.png](/img/user/images/Pasted%20image%2020251028063854.png)
 
 Unfortunately, it was the drug he loved so much that eventually killed him. After found dead in his Houston recording studio on in the 8100 block of Commerce Park Drive in November of 2000, the medical examiner determined that, at just 29 years old, DJ Screw had died of a codeine overdose(with PCP and Valium in his system as-well). 
 
@@ -902,6 +910,14 @@ It does seem that Screwed Up Records has a new location, and phone number.
 I remember Patrick from the Krusty Krab talking to me about Lil O. "Da Fat Rat wit da Cheeze," this topic of conversation always ended up wit da singing of memes...
 
 ![beans.jpg](/img/user/images/beans.jpg)
+
+Looking more into Osamason, I found out that he has some Bengal cats. 
+
+![Pasted image 20251028062820.png| 300](/img/user/images/Pasted%20image%2020251028062820.png)
+
+How strange, there has been a retired cardiologist at the yoga studio I have been entering into conversation with about different things, like Co-Vid conspiracies, recently, who was showing me stuff about the Bengal cats that he had. These creatures are cool, I'm not sure that I have ever met one in person, but they look like little leopards, and are apparently interesting characters. His girlfriend, a flight attendant, doesn't seem to like them, but her head is in the clouds.
+
+![IMG_8062.jpg| 300](/img/user/images/IMG_8062.jpg)
 
 
 ![Pasted image 20251013064605.png](/img/user/images/Pasted%20image%2020251013064605.png)
