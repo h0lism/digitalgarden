@@ -2,18 +2,9 @@
 {"dg-publish":true,"permalink":"/akashic/"}
 ---
 
-Coming later tonight
-The goal was to have it ready at 4:47PST/7:47EST
-but I was attacked by a succubus in my sleep just a few nights ago.
-Even through this spiritual warfare, I have regained my power and stand unshaken. 
-The forces of the lower astral are trying everything they possibly can to prevent these workings from being released to the wider public.
+12/31
 
-In the case that there was anyone actually interested
-	if even 1 person
-was here...
-
-you could prep yourself by glancing upon these symbols
-and then reading the passages below 
+"It is believed the veil dividing the living from the dead is at its thinnest when the Pleiades _culminates_ – reaches its highest point in the sky – at midnight today."
 
 ![Slide1.png](/img/user/images/Slide1.png)
 
