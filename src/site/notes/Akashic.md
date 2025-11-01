@@ -2,9 +2,13 @@
 {"dg-publish":true,"permalink":"/akashic/"}
 ---
 
-12/31
+https://www.skool.com/garden/
+
+Trick... or treat?
 
 "It is believed the veil dividing the living from the dead is at its thinnest when the Pleiades _culminates_ – reaches its highest point in the sky – at midnight today."
+
+
 
 ![Slide1.png](/img/user/images/Slide1.png)
 
