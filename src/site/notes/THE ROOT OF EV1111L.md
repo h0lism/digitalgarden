@@ -260,7 +260,12 @@ Maybe you can even find your way down a trail which brings you to a direct ident
 
 ![lotr1.jpg](/img/user/images/lotr1.jpg)
 
-I do find it necessary, though, to warn you. The guy on Tucker Carlson recently talking about the Anti-Christ, he claims that this individual may be identified as a "Pharaoh," and he also specifically mentions the word 'Starseed' as-well. Anrita Melchizedek, my extraterrestrial expedition guide for the last few years, it is all Starseed stuff. The Keys of Enoch too. I heard it telepathically when this first started occurring, never had an experience like that prior. Bat Kol, as I learned the Rabbis call it. 
+I do find it necessary, though, to warn you. The guy on Tucker Carlson recently talking about the Anti-Christ, he claims that this individual may be identified as a "Pharaoh," and he also specifically mentions the word 'Starseed' as-well. 
+
+![IMG_8172.jpg| 300](/img/user/images/IMG_8172.jpg)
+	Me too
+
+Anrita Melchizedek, my extraterrestrial expedition guide for the last few years, it is all Starseed stuff. The Keys of Enoch too. I heard it telepathically when this first started occurring, never had an experience like that prior. Bat Kol, as I learned the Rabbis call it. 
 
 Anrita in Sanskrit can translate to "untruth," "lying," "false," or  “(that which is) unreal”
 Pharoah Caesarion XV, Irmaatenre – "Carrying out the rule of Ra" 
@@ -298,9 +303,7 @@ Atlas 3i is closest to the sun,
 perhaps extraterrestrial friends of mine,
 assisting us,
 
-The Garden opens. 
-
-Featuring a 60 minute
+I recorded a 60 minute
 Akashic Records Access 
 and the Halls of Amenti 
 New Earth Quantum Healing Activation.
@@ -310,12 +313,12 @@ Finally see the invisible forces that have been steering your choices.
 Turn your past life wounds into present-life strength.
 Step into the memory beneath your memories
 
-Free. 
+ 11-11 
 
-I will figure out how to profit off you here soon.
-Perhaps on 11-11 ...
+$470
 
 ![hercules.jpg](/img/user/images/hercules.jpg)
+
 
 ![IMG_3558.png| 333](/img/user/images/IMG_3558.png)
 
