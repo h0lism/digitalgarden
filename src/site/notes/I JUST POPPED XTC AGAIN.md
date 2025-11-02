@@ -16,6 +16,6 @@ available for us this Halloweens Eve...
 
 ![Pasted image 20251026054758.png](/img/user/images/Pasted%20image%2020251026054758.png)
 
-He says to suggest the show to your friends if you enjoy it
+He says to suggest this show to your friends if you enjoy it
 
 ![IMG_8109.jpg| 300](/img/user/images/IMG_8109.jpg)
