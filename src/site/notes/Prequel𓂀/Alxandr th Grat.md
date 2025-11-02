@@ -104,7 +104,7 @@ The Gordian Knot was a legendary, complex knot tied to an oxcart in Gordium, Phr
 - [ ] During the Mallian siege, Alexander the Great was struck in the left breast by an arrow, which pierced his thorax and lung, causing a life-threatening tension pneumothorax, leading to dizziness, swooning, and a period of unconsciousness.
 	- [ ] Right as I had listened to this portion of the audiobook, I'm not sure if it was before or after, but in a 24 hour period I injured my chest in the Gym and pulled a pec, which now has a little aesthetic alteration as evidence of this. Going too hard, striving for glory, to push my strength to new heights, I believe that this was done this while listening to the song Alexander the Great by Iron Maiden as-well. 
 
-At one point the book talks about how Alexander had been initiated as a "pharaoh" of Egypt. A few days later I found myself going to the yoga studio, on the way to one of Aristotle's ([[EVERYTHING'S A ROUGH DRAFT\|EVERYTHING'S A ROUGH DRAFT]]) soundbaths. 
+At one point the book talks about how Alexander had been initiated as a "pharaoh" of Egypt. A few days later I found myself going to the yoga studio, on the way to one of Aristotle's ([[Prequel𓂀/EVERYTHING'S A ROUGH DRAFT\|EVERYTHING'S A ROUGH DRAFT]]) soundbaths. 
 Recently we had been discussing how the eye of Horus had a similar structure to the pineal gland. To demonstrate...
 
 ![horus.jpg|400](/img/user/images/horus.jpg)
