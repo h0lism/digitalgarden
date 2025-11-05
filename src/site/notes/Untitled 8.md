@@ -17,3 +17,6 @@
 ![IMG_8143.jpg| 300](/img/user/images/IMG_8143.jpg)
 
 ![IMG_8190.jpg| 300](/img/user/images/IMG_8190.jpg)
+
+![Pasted image 20251105055441.png](/img/user/images/Pasted%20image%2020251105055441.png)
+
