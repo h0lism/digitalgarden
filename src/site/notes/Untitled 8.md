@@ -20,6 +20,25 @@
 
 ![Pasted image 20251105055441.png](/img/user/images/Pasted%20image%2020251105055441.png)
 
+"The supermassive black hole behind the flare is a type of accreting, or feeding, black hole called an active galactic nucleus (AGN). Referred to as J2245+3743, this AGN is estimated to be 500 million times more massive than our Sun. It resides 10 billion light-years away in the remote universe."
+
+"This is unlike any AGN we've ever seen."
+
+"This flare is 30 times more powerful than the previous most powerful AGN transient. Very few physical events in the Universe can liberate this much electromagnetic energy."
+
+![Pasted image 20251105062514.png](/img/user/images/Pasted%20image%2020251105062514.png)
+	“We never would have found this rare event in the first place if it weren’t for ZTF,” “We’ve been observing the sky with ZTF for seven years now, so when we see anything flare or change, we can see what it has done in the past and how it will evolve.”
+
+AGN J224554.84+374326.5 (6/23/47)
+
+or just
+
+J2245+3743
+
+for short (bus riders)
+
+![Pasted image 20251105062318.png](/img/user/images/Pasted%20image%2020251105062318.png)
+
 Bhagavad Gita 
 
 11.9
