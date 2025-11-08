@@ -53,4 +53,15 @@ Arjuna saw in that universal form unlimited mouths, unlimited eyes, unlimited wo
 
 If hundreds of thousands of suns were to rise at once into the sky, their radiance might resemble the effulgence of the Supreme Person in that universal form.
 
-😴
+
+![Pasted image 20251106150916.png](/img/user/images/Pasted%20image%2020251106150916.png)
+
+
+![Pasted image 20251108084025.png](/img/user/images/Pasted%20image%2020251108084025.png)
+
+The short bus first arrives on frame
+
+![Pasted image 20251108083853.png](/img/user/images/Pasted%20image%2020251108083853.png)
+
+![Pasted image 20251108083211.png](/img/user/images/Pasted%20image%2020251108083211.png)
+
