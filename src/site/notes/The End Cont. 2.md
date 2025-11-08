@@ -693,7 +693,7 @@ That's a child's logic."
 ![IMG_7702.jpg| 400](/img/user/images/IMG_7702.jpg)
 Roast battle 
 
-![IMG_7402.jpg| 400](/img/user/images/IMG_7402.jpg)
+![IMG_7402.jpg| 300](/img/user/images/IMG_7402.jpg)
 
 
 ![Pasted image 20251012011856.png](/img/user/images/Pasted%20image%2020251012011856.png)
@@ -708,11 +708,11 @@ I am certainly open to criticism, not that anything he was even saying was even 
 
 ![Pasted image 20251018043819.png](/img/user/images/Pasted%20image%2020251018043819.png)
 
-![r2ybUrn.gif](/img/user/images/r2ybUrn.gif)
-
-Look at what I've started.... pure chaos magick. Dr Ramani, I'm sorry, but I do remember now that when I was going through your book, I had to stop because I picked up on this. I was really trying to stay as long as I could but had to tap out after a certain point. This guy might be a bit of a hater, but perhaps we can hear the blessing through the growls. I have absolutely no idea, as I haven't followed for a while, if things evolved, though I am sure given this video, they obviously have. Really this is all Wetiko, if you psychologists studied Wetiko... oh you just wait till I get myself re-arranged after all this... How profound, the absent thoughts I had 5+ years ago have now been delivered directly to the source. Enochian style. 
+Look at what I've started.... pure chaos magick. Dr Ramani, I'm sorry, but I do remember now that when I was going through your book, I had to stop because I picked up on this. I was really trying to stay as long as I could but had to tap out after a certain point. This guy might come across a bit like a hater, but perhaps there is a well intention residing underneath. I have absolutely no idea, as I haven't followed for a while, if things evolved, though I am sure given this video, they probably have. Really this is all Wetiko, if you psychologists studied Wetiko... oh you just wait till I get myself re-arranged after all this... However, through the world of psychology you guys might understand this in your own way intrinsically through a different lens. How strange, the thoughts I was having 5+ years ago have been re-stirred, and somehow found their way to the ears of the one that they were centered around in a strange round-about Enochian manner through space/time. 
 
 ![healnpd.png](/img/user/images/healnpd.png)
+
+![r2ybUrn.gif](/img/user/images/r2ybUrn.gif)
 
 ![Pasted image 20251011031046.png| 700](/img/user/images/Pasted%20image%2020251011031046.png)
 
@@ -866,7 +866,7 @@ What is interesting, is that Haim Eshed, who was the founder of the Israeli spac
 ![Pasted image 20251028062553.png](/img/user/images/Pasted%20image%2020251028062553.png)
 
 ![Pasted image 20251028062157.png| 300](/img/user/images/Pasted%20image%2020251028062157.png)
-	This is how you know Osamason tapped in 
+	This is how you know Osamason tapped in to some sort of multi layered incorporeal reservoir
 
 ![Pasted image 20251028012135.png](/img/user/images/Pasted%20image%2020251028012135.png)
 
