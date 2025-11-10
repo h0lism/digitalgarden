@@ -34,7 +34,7 @@ I know this looks
 
 ![Pasted image 20251110052250.png](/img/user/images/Pasted%20image%2020251110052250.png)
 
-I scavenged every photo I could and this was the only vertical pupil I could find alright, 
+I scavenged every photo I could and this was the only vertical pupil I could find, alright, 
 
 ![Pasted image 20251110045736.png](/img/user/images/Pasted%20image%2020251110045736.png)
 (the layering of double references is truly masterful, I have to say)
