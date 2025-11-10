@@ -15,7 +15,7 @@
 ![Pasted image 20251110002527.png](/img/user/images/Pasted%20image%2020251110002527.png)
 
 ![Pasted image 20251110002859.png](/img/user/images/Pasted%20image%2020251110002859.png)
-A strange comment section this guy has going here for himself
+A strange comment section this guy has going for himself here
 
 ![Pasted image 20251105052237.png](/img/user/images/Pasted%20image%2020251105052237.png)
 
