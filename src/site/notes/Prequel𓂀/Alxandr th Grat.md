@@ -30,6 +30,15 @@ And just a day later (6-30-23) I had taken this photo of myself
 
 ![realeyesrealizereallies.png](/img/user/images/realeyesrealizereallies.png)
 
+I know this looks
+
+![Pasted image 20251110052250.png](/img/user/images/Pasted%20image%2020251110052250.png)
+
+I scavenged every photo I could and this was the only vertical pupil I could find alright, 
+
+![Pasted image 20251110045736.png](/img/user/images/Pasted%20image%2020251110045736.png)
+(the layering of double references is truly masterful, I have to say)
+
 ![IMG_8045 (1).jpg| 400](/img/user/images/IMG_8045%20(1).jpg)
 
 
@@ -199,9 +208,6 @@ Also, when I came back, ready to eat some food, I found this video from someone 
 
 ![IMG_8053.jpg| 400](/img/user/images/IMG_8053.jpg)
 
-![Pasted image 20251020073632.png](/img/user/images/Pasted%20image%2020251020073632.png)
-
-![Screenshot 2025-03-14 062902.png](/img/user/images/Screenshot%202025-03-14%20062902.png)
 
 ![Pasted image 20251024045540.png](/img/user/images/Pasted%20image%2020251024045540.png)
 
@@ -242,4 +248,3 @@ Also, when I came back, ready to eat some food, I found this video from someone 
 
 ![Pasted image 20251027200334.png](/img/user/images/Pasted%20image%2020251027200334.png)
 
-![Pasted image 20251024044734.png](/img/user/images/Pasted%20image%2020251024044734.png)
