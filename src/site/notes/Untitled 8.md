@@ -15,7 +15,7 @@
 ![Pasted image 20251110002527.png](/img/user/images/Pasted%20image%2020251110002527.png)
 
 ![Pasted image 20251110002859.png](/img/user/images/Pasted%20image%2020251110002859.png)
-Pretty sure I heard some guy on KillTony 747 say this
+A strange comment section this guy has going here for himself
 
 ![Pasted image 20251105052237.png](/img/user/images/Pasted%20image%2020251105052237.png)
 
