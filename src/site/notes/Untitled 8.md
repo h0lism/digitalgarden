@@ -17,7 +17,7 @@
 ![Pasted image 20251110002859.png](/img/user/images/Pasted%20image%2020251110002859.png)
 Pretty sure I heard some guy on KillTony 747 say this
 
-![[Pasted image 20251105052237.png \| 347]]
+![Pasted image 20251105052237.png](/img/user/images/Pasted%20image%2020251105052237.png)
 
 ![IMG_8140.jpg| 300](/img/user/images/IMG_8140.jpg)
 
@@ -175,7 +175,7 @@ Yo What up
 Ahhhhh Damn 
 You chose the worst time 
 I just took mushrooms
-My urine is
+My urine is defin
 
 ![Pasted image 20251110020614.png](/img/user/images/Pasted%20image%2020251110020614.png)
 
