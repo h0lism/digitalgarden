@@ -6,7 +6,18 @@
 
 ![Pasted image 20251105052120.png](/img/user/images/Pasted%20image%2020251105052120.png)
 
-![Pasted image 20251105052237.png](/img/user/images/Pasted%20image%2020251105052237.png)
+![Pasted image 20251110002141.png](/img/user/images/Pasted%20image%2020251110002141.png)
+
+![Pasted image 20251110004440.png](/img/user/images/Pasted%20image%2020251110004440.png)
+
+![Pasted image 20251110002948.png| 300](/img/user/images/Pasted%20image%2020251110002948.png)
+
+![Pasted image 20251110002527.png](/img/user/images/Pasted%20image%2020251110002527.png)
+
+![Pasted image 20251110002859.png](/img/user/images/Pasted%20image%2020251110002859.png)
+Pretty sure I heard some guy on KillTony 747 say this
+
+![[Pasted image 20251105052237.png \| 347]]
 
 ![IMG_8140.jpg| 300](/img/user/images/IMG_8140.jpg)
 
@@ -56,12 +67,130 @@ If hundreds of thousands of suns were to rise at once into the sky, their radian
 
 ![Pasted image 20251106150916.png](/img/user/images/Pasted%20image%2020251106150916.png)
 
-
 ![Pasted image 20251108084025.png](/img/user/images/Pasted%20image%2020251108084025.png)
 
-The short bus first arrives on frame
+The short bus arrives right on time
 
 ![Pasted image 20251108083853.png](/img/user/images/Pasted%20image%2020251108083853.png)
 
 ![Pasted image 20251108083211.png](/img/user/images/Pasted%20image%2020251108083211.png)
 
+It's long 
+I have forgotten 
+the day 
+he gave me 
+the pass.
+
+My guru
+
+Z
+
+he looked at me
+right in the eyes
+and said it
+with no reservation.
+
+You 
+are
+Retard.
+
+At first I was shocked
+but then tears quickly filled my eyes
+I had been blessed
+through trials and tribulation
+we made it through
+the light at the end of the tunnel
+had been reached.
+
+The lord 
+has finally come
+and shone his light 
+upon me
+on this glorious day.
+
+Generously
+the Creator
+bestowed upon me
+in great divine love
+his most honorable title.
+
+His teachings are very complex
+and filled with different 
+seemingly impossible to solve
+metaphysical puzzles.
+They always have been.
+"Are you happy?"
+Hmmm well... I guess I don....
+"Why are you here?"
+That's a deeply layered question I would love to get into with you for the next 45 minutes. 
+"Are you cupcake?" *flamboyantly rawrs like a tiger*
+Back now from my space, before soap bubbles are dispersed into your eyes, vile creature
+"Are you retard?"
+That's something 
+I had 
+just 
+been 
+trying 
+to figure out... 
+
+His Siddha mind powers were strong
+The 5 grams of Penis Envy 
+I had taken before our meeting
+Lemon Tekked
+I sat there for hours 
+My entire life
+Every friend
+They were just being nice
+Treating me special
+It existed
+The whole time
+Under the surface 
+Of awareness
+Nobody ever told me 
+They just felt sympathy 
+Behind closed doors
+Laughing at my toils
+My confusion
+They felt bad
+I was charity
+The mushrooms will tell you the truth
+Dark thoughts
+Painful emotions
+Face down on the floor
+In agony
+I thought I was the shit...
+Now I am retarded
+Always was
+Guess what
+Okay
+I love myself
+Even if I am retarded
+Keep saying it
+I am retarded
+Mushroom lesson accomplished
+Now experience timeless bliss
+Infinite joy...
+Oh shit someone's here
+Yo What up
+Ahhhhh Damn 
+You chose the worst time 
+I just took mushrooms
+My urine is
+
+![Pasted image 20251110020614.png](/img/user/images/Pasted%20image%2020251110020614.png)
+
+This guy claims to channel Zachary every Wednesday.
+I did watch a lot of these videos a while back,
+to see if he was actually coming through, 
+if maybe I could perhaps receive a message,
+him knowing I was on the other line,
+but I wasn't able to tell,
+if it was the real deal or not.
+If I know my teacher
+he is usually diving into 
+stolen loaves of bread 
+which he stores under his bed at this time. 
+
+![Pasted image 20251110011536.png](/img/user/images/Pasted%20image%2020251110011536.png)
+
+![chilli.png| 700](/img/user/images/chilli.png)
