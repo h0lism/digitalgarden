@@ -29,6 +29,8 @@ It is my belief that this could help to spark a new era of psychotherapy, but ev
 
 ![Pasted image 20251111085804.png](/img/user/images/Pasted%20image%2020251111085804.png)
 
+![Pasted image 20251111091735.png](/img/user/images/Pasted%20image%2020251111091735.png)
+
 ![Pasted image 20251110225243.png](/img/user/images/Pasted%20image%2020251110225243.png)
 
 Ignaz, "fiery one" or "_burning one_."
