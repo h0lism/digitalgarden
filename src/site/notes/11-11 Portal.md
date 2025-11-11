@@ -82,9 +82,9 @@ _The Etiology_
 	"After several long trips to India, he wrote a thesis for a Doctorate of Medicine on the topic of chakras and subtle bodies in the Hindu tradition. For this voluminous work, supported by original Sanskrit translations, he was not only awarded the title of Doctor of Medicine but also a silver medal (2nd highest possible award for a medical thesis in France), and the title of 'faculty prize-winner'. He was elected to the French Society of History of Medicine."
 
 
-![[IMG_8254.jpg \| 400]]
+![[IMG_8254.jpg \|400]]
 
-![[IMG_8255.jpg \| 400]]
+![[IMG_8255.jpg \|400]]
 
 ![Pasted image 20251111082234.png](/img/user/images/Pasted%20image%2020251111082234.png)
 
@@ -93,3 +93,4 @@ How did he know ...
 ![Pasted image 20251111082612.png](/img/user/images/Pasted%20image%2020251111082612.png)
 
 
+  
