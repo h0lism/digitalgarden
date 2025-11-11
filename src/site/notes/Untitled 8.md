@@ -158,7 +158,7 @@ Dark thoughts
 Painful emotions
 Face down on the floor
 In agony
-I thought I was the shit...
+I thought I was cool... 
 Now I am retarded
 Always was
 Guess what
@@ -166,7 +166,8 @@ Okay
 I love myself
 Even if I am retarded
 Keep saying it
-I am retarded
+even if I am retarded
+I love myself
 Mushroom lesson accomplished
 Now experience timeless bliss
 Infinite joy...
@@ -175,7 +176,7 @@ Yo What up
 Ahhhhh Damn 
 You chose the worst time 
 I just took mushrooms
-My urine is defin
+My urine
 
 ![Pasted image 20251110020614.png](/img/user/images/Pasted%20image%2020251110020614.png)
 
@@ -186,7 +187,7 @@ if maybe I could perhaps receive a message,
 him knowing I was on the other line,
 but I wasn't able to tell,
 if it was the real deal or not.
-If I know my teacher
+Knowing my teacher
 he is usually diving into 
 stolen loaves of bread 
 which he stores under his bed at this time. 
