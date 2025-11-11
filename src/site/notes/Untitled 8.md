@@ -180,6 +180,8 @@ My urine
 
 ![Pasted image 20251110020614.png](/img/user/images/Pasted%20image%2020251110020614.png)
 
+I was led to buy this book and read it. Eventually I came to the conclusion that, I probably didn't fit the bill all the way. I got to live in peace once again, that is, until I met Aristotle from [[Prequel𓂀/EVERYTHING'S A ROUGH DRAFT\|EVERYTHING'S A ROUGH DRAFT]]. He would continuously divert the conversation towards this topic, informing me of my status, along with all the benefits of the title.
+
 This guy claims to channel Zachary every Wednesday.
 I did watch a lot of these videos a while back,
 to see if he was actually coming through, 
