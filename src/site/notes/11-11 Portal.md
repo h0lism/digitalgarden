@@ -16,6 +16,7 @@ I am not a clinically trained professional mental health expert.
 I do not claim this, nor do I desire to proposition myself above this domain. 
 
 All I have is one insight. 
+An idea that began to obsess my days before 47.
 It's not even necessarily new or unique.
 
 Let us look into the development of our understanding of medicine. We should know that the history of the past holds specific relevance for today, carrying important messages. 
@@ -100,4 +101,4 @@ How did he know ...
 ![Pasted image 20251111082612.png](/img/user/images/Pasted%20image%2020251111082612.png)
 
 
-  
+ 
