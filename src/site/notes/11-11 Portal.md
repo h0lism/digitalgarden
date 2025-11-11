@@ -21,7 +21,7 @@ It's not even necessarily new or unique.
 
 Let us look into the development of our understanding of medicine. We should know that the history of the past holds specific relevance for today, carrying important messages. 
  
-It is my belief that this could help to spark a new era of psychotherapy, but even more importantly,  a new understanding of ourselves. It will likely take years and years of _further_ work, both on myself, and in study, to get to something that may be able to enter into the discussion with any sort of merit.
+It is my belief that this could help to spark a new era of psychotherapy, but even more importantly,  a new understanding of ourselves. It will likely take years and years of _further_ work, both on myself, and in study, to get to something that may be able to enter into the discussion with any sort of potential merit.
 
 ![Pasted image 20251111085632.png](/img/user/images/Pasted%20image%2020251111085632.png)
 
