@@ -8,6 +8,11 @@ they exist in the future
 
 ![2025.01.29_Year_of_the_Snake.jpg](/img/user/images/2025.01.29_Year_of_the_Snake.jpg)
 
+Just trying to make space 
+so Much more
+
+![Pasted image 20251112191326.png](/img/user/images/Pasted%20image%2020251112191326.png)
+
 ![Pasted image 20251112180324.png](/img/user/images/Pasted%20image%2020251112180324.png)
 
 ![Pasted image 20251112135459.png](/img/user/images/Pasted%20image%2020251112135459.png)
