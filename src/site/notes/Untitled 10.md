@@ -74,6 +74,8 @@ I can only imagine the horror they faced on a day to day basis after my departur
 
 ![Pasted image 20251112160514.png](/img/user/images/Pasted%20image%2020251112160514.png)
 
+![monkE.jpg](/img/user/images/monkE.jpg)
+
 ![Pasted image 20251112163201.png](/img/user/images/Pasted%20image%2020251112163201.png)
 
 ![Pasted image 20251112164103.png](/img/user/images/Pasted%20image%2020251112164103.png)
@@ -136,8 +138,6 @@ From the television series,
 
 ![Pasted image 20251112175215.png](/img/user/images/Pasted%20image%2020251112175215.png)
 
-
-![monkE.jpg](/img/user/images/monkE.jpg)
 
 ![eephus.jpg](/img/user/images/eephus.jpg)
 
