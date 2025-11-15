@@ -3,14 +3,16 @@
 ---
 
 The goal of this website is not to become rich, famous, or develop a new cult religion.
+I fear the day that I would lose myself in my own enormous ego, if I haven't already
 
 It is the search for truth.
+Or at-least the attempt. 
 
-My ultimate aim has been to bring the entity paradigm, what I personally perceive as very real, yet incredibly complex and subtle, to the forefront of our minds.  
+My ultimate aim has been to bring the entity paradigm, what I personally perceive as very real, yet incredibly complex and subtle, to the forefront of our minds. As-well, not only that, there is a plethora of integration between science, spirituality, and philosophy that I believe can begin to take place. Healing tools are here. Hey, you don't have to hop on board with me if you don't want to. I am not claiming every word to come out of my mouth as divine messages of truth, and I could very well be wrong. However....... what if I was right? 
 
 After an extensive amount of investigation into these matters, 
 I believe that I can say - this is a real factor within our reality. 
-However, this is my opinion. A theory. 
+However, this is my opinion. A theory. Just a hypothesis.
 The task, is to give breadth and depth to the subject.
 I am not a clinically trained professional mental health expert.
 I do not claim this, nor do I desire to proposition myself above this domain. 
@@ -18,10 +20,16 @@ I do not claim this, nor do I desire to proposition myself above this domain.
 All I have is one insight. 
 An idea that began to obsess my days before 47.
 It's not even necessarily new or unique.
+I am not the first to say or see these things.
+It has existed since the days of the antiquity in different forms. 
 
 Let us look into the development of our understanding of medicine. We should know that the history of the past holds specific relevance for today, carrying important messages. 
  
-It is my belief that this could help to spark a new era of psychotherapy, but even more importantly,  a new understanding of ourselves. It will likely take years and years of _further_ work, both on myself, and in study, to get to something that may be able to enter into the discussion with any sort of potential merit.
+It is my belief that this could help to spark a new era of psychotherapy, but even more importantly,  a new understanding of ourselves. It will likely take years and years of _further_ work, both on myself, and in study, to get to something that may be able to enter into the discussion with any sort of potential merit. 
+
+The Complex Integration of Multiple Brain Systems ([[The Inner Garden/Brain Systems/CIMBS\|CIMBS]]) paradigm in combination with an understanding of brain systems ([[The Inner Garden/Brain Systems/Archaeology of Mind\|Archaeology of Mind]]) ... then paired with Kundalini/Kriya yoga, where one could complexly integrate things, I believe, is the ticket. This would allow for someone to sit first person in their 'body-vehicle,' with an understanding of the different elements which contribute to its functioning, and optimize their unique biological machinery from the inside through mind and life design. The soul overcoming maladaptive hardware with advanced insight on its internal parts, making the process much easier and simple, less painful, difficult, and confusing. That is really what I hope to put together here for others. We get away from the iPhones and back in touch with iOSelf. 
+
+What I found notable in studying [[The Inner Garden/Brain Systems/Archaeology of Mind\|Archaeology of Mind]], was that when different systems within the brain are unhealthy, they are often oriented in a manner that is towards the serving of the self. This reminded me of [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]] which discusses how the negative polarity is oriented towards serving oneself. Each individual is set to make a free-will choice between two primary polarities: **service to others** (STO) and **service to self** (STS). I believe that when people are in the STS frame, perhaps they are in a sense, stuck in an unhealthy brain. Maybe some elements of this include the influence of your inherited karma and was part of the souls evolution, and perhaps other aspects are related to negative entity influences. The internal decision to be STO, in some way or capacity, may be akin to the desire to have a healthy brain, or act as a form of self-exorcism. The spiritual decision gives rise to the opportunity for one to find some sort of path which forges itself upon their way, allowing that healing process to take place, and for the brain to feel good again, and heal its systems. Perhaps this is the 'holy spirit' which comes in and guides the optimal way to complexly integrate everything naturally as you simply engage with life from a place of stillness that can find the path of inner guidance. 
 
 ![Pasted image 20251111085632.png](/img/user/images/Pasted%20image%2020251111085632.png)
 
@@ -98,7 +106,8 @@ _The Etiology_
 
 ![Pasted image 20251111082234.png](/img/user/images/Pasted%20image%2020251111082234.png)
 
-How did he know ...
+How did he know 
+I was studying immortality...
 
 ![Pasted image 20251111082612.png](/img/user/images/Pasted%20image%2020251111082612.png)
 
