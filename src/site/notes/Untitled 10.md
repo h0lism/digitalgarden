@@ -151,12 +151,6 @@ From the movie,
 
 ![Pasted image 20251106205511.png](/img/user/images/Pasted%20image%2020251106205511.png)
 
-Some sources were saying that it was on the Fifth, but, this occurred at around 1-2AM after a police chase, the transition from one day into another. 
-
-![Pasted image 20251106210440.png](/img/user/images/Pasted%20image%2020251106210440.png)
-
-![Pasted image 20251106210922.png](/img/user/images/Pasted%20image%2020251106210922.png)
-
 ![Pasted image 20251018043646.png](/img/user/images/Pasted%20image%2020251018043646.png)
 
 ![Pasted image 20250914174322.png](/img/user/images/Pasted%20image%2020250914174322.png)

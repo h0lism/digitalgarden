@@ -15,7 +15,7 @@
 https://www.hyehudi.org/wp-content/uploads/2019/08/Rabbi-Shani-on-Souls.pdf
 https://www.hyehudi.org/wp-content/uploads/2020/10/shaar-yosef-english.pdf
 
-Turns out there was some guy named Rabbi [[Shani\|Shani]] that talked about reincarnation. I don't think this guy is really all that special, he seems like your average ideological Rabbi, but found his name and this particular subject matter interesting.
+Turns out there was some guy named Rabbi [[Prequel𓂀/Shani\|Shani]] that talked about reincarnation. I don't think this guy is really all that special, he seems like your average ideological Rabbi, but found his name and this particular subject matter interesting.
 
 "This significant phenomenon of reincarnation can be invoked to resolve numerous questions and apparent contradictions concerning issues of faith, reward and punishment, suffering of the righteous, and contentment of the wicked."
 
