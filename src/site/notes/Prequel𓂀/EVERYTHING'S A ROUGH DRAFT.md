@@ -20,8 +20,7 @@ Wording here or there is iffy, repetitive, weird.
 Did he steal this joke? 
 Oh wow, the cognitive dissonance...
 There are a lot of sections I want to get back to edit, change, and finish.
-I believe this was originally launched on 1-20-25 ...
-Less than 1 year
+I believe this was originally launched on 1-20-25 
 For now, expansion
 Contraction and refinement,  very soon.
 I do not seek to glorify drug usage or mental illness.
