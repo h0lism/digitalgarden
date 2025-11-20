@@ -22,10 +22,8 @@ Oh wow, the cognitive dissonance...
 There are a lot of sections I want to get back to edit, change, and finish.
 I believe this was originally launched on 1-20-25 ...
 Less than 1 year
-For now, I am in a state of expansion, and prefer to just keep rolling with the ideas coming in.
-Contraction and refinement, I am sure, will come very soon!
-A lot of these things I am digging back into the past to discuss....
-are well integrated and already resolved.
+For now, expansion
+Contraction and refinement,  very soon.
 I do not seek to glorify drug usage or mental illness.
 My sense of humor may not translate well through text.
 I have many blind spots.
@@ -33,8 +31,6 @@ I have many blind spots.
 If you would like to nudge me towards any errors, feel free to send an email to 
 
 dopenessondeck47@gmail.com
-
-instead of being randomly passive aggressive to me in public (strangers) 
 
 Thank you.
 
