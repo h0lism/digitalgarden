@@ -14,22 +14,8 @@ I was really into [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra
 
 ![aristotle.gif](/img/user/images/aristotle.gif)
 
-There are a _tremendous_ amount of errors. 
-A lot. 
-Wording here or there is iffy, repetitive, weird.
-Did he steal this joke? 
-Oh wow, the cognitive dissonance...
-There are a lot of sections I want to get back to edit, change, and finish.
-I believe this was originally launched on 1-20-25 
-For now, expansion
-Contraction and refinement,  very soon.
-I do not seek to glorify drug usage or mental illness.
-My sense of humor may not translate well through text.
-I have many blind spots.
+There are  A lot  of errors. 
 
-If you would like to nudge me towards any errors, feel free to send an email to 
-
-dopenessondeck47@gmail.com
 
 Thank you.
 
