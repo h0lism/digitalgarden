@@ -611,10 +611,6 @@ It seems we had a new upload from 2 Shanez on the Day of Atonement as-well. I ju
 
 ![Pasted image 20251008060027.png](/img/user/images/Pasted%20image%2020251008060027.png)
 
-![Pasted image 20251015173137.png](/img/user/images/Pasted%20image%2020251015173137.png)
-
-![Pasted image 20251015173704.png](/img/user/images/Pasted%20image%2020251015173704.png)
-
 ![Pasted image 20251007071151.png](/img/user/images/Pasted%20image%2020251007071151.png)
 
 
