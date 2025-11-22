@@ -18,9 +18,13 @@ https://youtube.com/shorts/f2tQ7Ji-Zv4?si=JjVaPqFDEfB1Ewn1
 
 ![Pasted image 20251120215329.png](/img/user/images/Pasted%20image%2020251120215329.png)
 
+"...Xbox Live, with roughly 48 million subscribers"
+
 ![Pasted image 20251120215652.png](/img/user/images/Pasted%20image%2020251120215652.png)
 
 ![OIP.jpg](/img/user/images/OIP.jpg)
+
+Took out North Korea, wild
 
 Went after Tor Browser too 😭
 
