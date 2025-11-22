@@ -19,4 +19,4 @@ There are  A lot  of errors.
 
 Thank you.
 
-![gathering.png](/img/user/images/gathering.png)
+,
