@@ -37,6 +37,8 @@ Went after Tor Browser too 😭
 ![AP_malaysia_airlines_hack_sk_140126_16x9_992.jpg](/img/user/images/AP_malaysia_airlines_hack_sk_140126_16x9_992.jpg)
 Got the Malaysian Airlines website.
 
+![IMG_3739.jpg| 300](/img/user/images/IMG_3739.jpg)
+
 ![IMG_8377.jpg| 500](/img/user/images/IMG_8377.jpg)
 (I believe he had QuicK ScOpe as-well, unfortunately, perhaps banned)
 
@@ -80,6 +82,8 @@ Got the Malaysian Airlines website.
 ![Pasted image 20251121230936.png| 300](/img/user/images/Pasted%20image%2020251121230936.png)
 
 ![Pasted image 20251122002333.png](/img/user/images/Pasted%20image%2020251122002333.png)
+
+![IMG_3923.jpg| 300](/img/user/images/IMG_3923.jpg)
 
 ![Pasted image 20251121230732.png| 300](/img/user/images/Pasted%20image%2020251121230732.png)
 
@@ -138,7 +142,7 @@ Extrater-
 4-7-18 
 
 Wait... did this girl just drive past my house ? 
-is she .... crazy?
+
 
 ![tenor.gif| 300](/img/user/images/tenor.gif)
 
