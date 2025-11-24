@@ -244,8 +244,6 @@ Also, when I came back, ready to eat some food, I found this video from someone 
 
 ![Pasted image 20251024041324.png](/img/user/images/Pasted%20image%2020251024041324.png)
 
-![Pasted image 20251024034135.png](/img/user/images/Pasted%20image%2020251024034135.png)
-
 ![Pasted image 20251123215931.png](/img/user/images/Pasted%20image%2020251123215931.png)
 
 ![Pasted image 20251027200334.png](/img/user/images/Pasted%20image%2020251027200334.png)
@@ -284,3 +282,5 @@ Turns out that it is the name of a Greek Restaurant in Alexandria, with 323(the 
 ![Pasted image 20250917164045.png](/img/user/images/Pasted%20image%2020250917164045.png)
 
 ![Pasted image 20250917164358.png](/img/user/images/Pasted%20image%2020250917164358.png)
+
+![the-princess-and-the-frog-lightning-bug.gif](/img/user/images/the-princess-and-the-frog-lightning-bug.gif)
