@@ -246,6 +246,8 @@ Also, when I came back, ready to eat some food, I found this video from someone 
 
 ![Pasted image 20251024034135.png](/img/user/images/Pasted%20image%2020251024034135.png)
 
+![Pasted image 20251123215931.png](/img/user/images/Pasted%20image%2020251123215931.png)
+
 ![Pasted image 20251027200334.png](/img/user/images/Pasted%20image%2020251027200334.png)
 
 ![Pasted image 20250913173345.png](/img/user/images/Pasted%20image%2020250913173345.png)
