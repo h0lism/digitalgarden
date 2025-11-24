@@ -16,7 +16,7 @@ I was really into [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra
 
 There are  A lot  of errors. 
 
-
 Thank you.
 
-,
+
+_Don’t be surprised then, Socrates, if it turns out repeatedly that we won’t be able to produce accounts on a great many subjects—on gods or the coming to be of the universe—that are completely and perfectly consistent and accurate. Instead, if we can come up with accounts no less likely than any, we ought to be content, keeping in mind that both I, the speaker, and you, the judges, are only human. So we should accept the likely tale on these matters. It behooves us not to look for anything beyond this_
