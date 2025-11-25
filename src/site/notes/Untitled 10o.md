@@ -163,13 +163,13 @@ From the movie,
 
 ![Pasted image 20251005134406.png](/img/user/images/Pasted%20image%2020251005134406.png)
 
+![Pasted image 20251005135215.png](/img/user/images/Pasted%20image%2020251005135215.png)
+
 ![Pasted image 20251005134924.png](/img/user/images/Pasted%20image%2020251005134924.png)
 
 ![Pasted image 20251005150538.png](/img/user/images/Pasted%20image%2020251005150538.png)
 
 ![Pasted image 20251121235341.png| 300](/img/user/images/Pasted%20image%2020251121235341.png)
-
-![Pasted image 20251005135215.png](/img/user/images/Pasted%20image%2020251005135215.png)
 
 ![Pasted image 20251005150352.png](/img/user/images/Pasted%20image%2020251005150352.png)
 
@@ -185,7 +185,7 @@ From the movie,
 
 ![Pasted image 20251124165313.png](/img/user/images/Pasted%20image%2020251124165313.png)
 
-225,000 samples of umbilical cord blood ... missing 🤔 (you likely haven't heard about this, huh)
+225,000 samples of umbilical cord blood missing 🤔
 
 ![Pasted image 20251124165805.png](/img/user/images/Pasted%20image%2020251124165805.png)
 
