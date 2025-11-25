@@ -169,9 +169,12 @@ From the movie,
 
 ![Pasted image 20251005150538.png](/img/user/images/Pasted%20image%2020251005150538.png)
 
+![IMG_3923.jpg| 500](/img/user/images/IMG_3923.jpg)
+
 ![Pasted image 20251121235341.png| 300](/img/user/images/Pasted%20image%2020251121235341.png)
 
 ![Pasted image 20251005150352.png](/img/user/images/Pasted%20image%2020251005150352.png)
+
 
 ![Pasted image 20251124163450.png](/img/user/images/Pasted%20image%2020251124163450.png)
 
