@@ -9,7 +9,7 @@ they exist in the future
 ![2025.01.29_Year_of_the_Snake.jpg](/img/user/images/2025.01.29_Year_of_the_Snake.jpg)
 
 Just trying to make space 
-so Much more
+![Pasted image 20251123223146.png](/img/user/images/Pasted%20image%2020251123223146.png)
 
 ![Pasted image 20251112191326.png](/img/user/images/Pasted%20image%2020251112191326.png)
 
@@ -155,15 +155,20 @@ From the movie,
 
 ![Pasted image 20250914174322.png](/img/user/images/Pasted%20image%2020250914174322.png)
 
+![Pasted image 20251124155402.png](/img/user/images/Pasted%20image%2020251124155402.png)
+
 ![Pasted image 20251112180522.png](/img/user/images/Pasted%20image%2020251112180522.png)
 
+![Pasted image 20251124160906.png](/img/user/images/Pasted%20image%2020251124160906.png)
 
 ![Pasted image 20251005134406.png](/img/user/images/Pasted%20image%2020251005134406.png)
 
 ![Pasted image 20251005134924.png](/img/user/images/Pasted%20image%2020251005134924.png)
 
-![Pasted image 20251005150352.png](/img/user/images/Pasted%20image%2020251005150352.png)
-
 ![Pasted image 20251005150538.png](/img/user/images/Pasted%20image%2020251005150538.png)
 
+![Pasted image 20251121235341.png| 300](/img/user/images/Pasted%20image%2020251121235341.png)
+
 ![Pasted image 20251005135215.png](/img/user/images/Pasted%20image%2020251005135215.png)
+
+![Pasted image 20251005150352.png](/img/user/images/Pasted%20image%2020251005150352.png)
