@@ -36,8 +36,6 @@ Went after Tor Browser as-well, a profoundly bold action
 
 ![Pasted image 20251122032616.png](/img/user/images/Pasted%20image%2020251122032616.png)
 
-![Pasted image 20251125215049.png](/img/user/images/Pasted%20image%2020251125215049.png)
-
 ![5BnPd69.png](/img/user/images/5BnPd69.png)
 
 ![AP_malaysia_airlines_hack_sk_140126_16x9_992.jpg](/img/user/images/AP_malaysia_airlines_hack_sk_140126_16x9_992.jpg)
