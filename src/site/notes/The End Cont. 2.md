@@ -361,6 +361,8 @@ Even further, we see how Plutarch recollects how this behavior affected things,
 
 "This course naturally made him odious to the multitude, and to men of worth and uprightness he was not acceptable because of his life in general, as Cicero says,⁠[14](https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Plutarch/Lives/Antony*.html#note14) nay, he was hated by them. They loathed his ill-timed drunkenness, his heavy expenditures, his debauches with women, his spending the days in sleep or in wandering about with crazed and aching head, the nights in revelry or at shows, or in attendance at the nuptial feasts of mimes and jesters. 4 We are told, at any rate, that he once feasted at the nuptials of Hippias the mime, drank all night, and then, early in the morning, when the people summoned him to the forum, came before them still surfeited with food and vomited into his toga, which one of his friends held at his service."
 
+![Pasted image 20251125174947.png](/img/user/images/Pasted%20image%2020251125174947.png)
+
 ![Pasted image 20251018051211.png](/img/user/images/Pasted%20image%2020251018051211.png)
 
 From The Ra Contact 26.38
@@ -375,6 +377,10 @@ From The Ra Contact 31.16
 
 ![jezebel.jpeg](/img/user/images/jezebel.jpeg)
 (these witches craaazzzyyyyyyy)
+
+I was the first person on the planet to register nonutnovember.com for $8.88 on 11-4-17
+
+![Pasted image 20251125175329.png](/img/user/images/Pasted%20image%2020251125175329.png)
 
 I'm not going to try and look for any more surrounding this other event which occurred on the same day, perhaps if I search long enough will enter bias, but maybe we're slightly tapping in to the fact there may be an underlying code of the world? This is barely sane to speak but something that popped up in my awareness, I might remove this. 
 
@@ -398,6 +404,12 @@ As-well, it seems that this video was uploaded on 4-7-23.
 
 ![Pasted image 20251004044443.png| 1000](/img/user/images/Pasted%20image%2020251004044443.png)
 Artificial Intelligence
+
+![Pasted image 20251125174003.png](/img/user/images/Pasted%20image%2020251125174003.png)
+
+![Pasted image 20251125174113.png](/img/user/images/Pasted%20image%2020251125174113.png)
+(going to have to get into this here when I watch  _Lawnmower Man 2: Beyond Cyberspace_ again)
+	(Predicted the iPhone before the iPhone?? )
 
 
 I had woken up at my brothers bungalo, ready to do some maintenance on these ferocious front beds (which were nearly extending into the street), and found myself with a variety of different numerical repetitions. He was off doing something, and I was scrolling through YouTube while waking up; there wasn't anything too significant, but I did find a movie clip with 888 likes, something else with 222k views, and maybe one other thing. More importantly, who honestly cares, I just discovered this 47 second video of Chris Angel walking on water.
