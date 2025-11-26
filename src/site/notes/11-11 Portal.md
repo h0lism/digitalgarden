@@ -11,7 +11,7 @@ I think an 80foot statue of myself would be kind of cool.
 The goal here is the search for truth.
 Or at-least the attempt, best efforts. 
 
-My ultimate aim has been to bring the entity paradigm, what I personally perceive as very real, yet incredibly complex and subtle, to the forefront of our minds. As-well, not only that, there is a plethora of integration between science, spirituality, and philosophy that I believe can begin to take place. Healing tools are here. Hey, you don't have to hop on board with me if you don't want to. I am not claiming every word to come out of my mouth as divine messages of truth, and I could very well be wrong. However....... what if I was right? 
+My ultimate aim has been to bring the entity paradigm, what I personally perceive as very real, yet incredibly complex and subtle, to the forefront of our minds. As-well, not only that, there is a plethora of integration between science, spirituality, and philosophy that I believe can begin to take place. I want to translate New Earth material for the average man. Hey, you don't have to hop on board with me if you don't want to. I am not claiming every word to come out of my mouth as divine messages of truth, and I could very well be wrong. However....... what if I was right? 
 
 After an extensive amount of investigation into these matters, 
 I believe that I can say - this is a real factor within our reality. 
@@ -102,6 +102,7 @@ _The Etiology_
 ![entity-possession-9780892816125_lg.jpg](/img/user/images/entity-possession-9780892816125_lg.jpg)
 	"After several long trips to India, he wrote a thesis for a Doctorate of Medicine on the topic of chakras and subtle bodies in the Hindu tradition. For this voluminous work, supported by original Sanskrit translations, he was not only awarded the title of Doctor of Medicine but also a silver medal (2nd highest possible award for a medical thesis in France), and the title of 'faculty prize-winner'. He was elected to the French Society of History of Medicine."
 
+![Pasted image 20251125155009.png](/img/user/images/Pasted%20image%2020251125155009.png)
 
 ![IMG_8254.jpg](/img/user/images/IMG_8254.jpg)
 
@@ -114,5 +115,15 @@ I was studying immortality...
 
 ![Pasted image 20251111082612.png](/img/user/images/Pasted%20image%2020251111082612.png)
 
-
+![Pasted image 20251125155834.png](/img/user/images/Pasted%20image%2020251125155834.png)
  
+![Pasted image 20251125155805.png](/img/user/images/Pasted%20image%2020251125155805.png)
+
+[27] As he was saying this to me, Poimandres joined with the powers. Then he sent me forth, empowered and instructed on the nature of the universe and on the supreme vision, after I had given thanks to the father of all and praised him. And I began proclaiming to mankind the beauty of reverence and knowledge: "People, earthborn men, you who have surrendered yourselves to drunkenness and sleep and ignorance of god, make yourselves sober and end your drunken sickness, for you are bewitched in unreasoning sleep." [28] When they heard, they gathered round with one accord. And I said, "Why have you surrendered yourselves to death, earthborn men, since you have the right to share in immortality? You who have journeyed with error, who have partnered with ignorance, think again: escape the shadowy light; leave corruption behind and take a share in immortality." [29] Some of them, who had surrendered themselves to the way of death, resumed their mocking and withdrew, while those who desired to be taught cast themselves at my feet. Having made them rise, I became guide to my race, teaching them the words - how to be saved and in what manner - and I sowed the words of wisdom among them, and they were nourished from the ambrosial water. When evening came and the sun's light began to disappear entirely, I commanded them to give thanks Corpus Hermeticum I 7 to god, and when each completed the thanksgiving, he turned to his own bed.
+
+An excerpt from _Poimandres_, the first and most famous treatise of the _Corpus Hermeticum_
+(Hermes Q+A session with The Great Dragon)
+in one of its most authoritative translations...
+
+https://www.themathesontrust.org/papers/metaphysics/Poimandres-Copenhaver.pdf
+ by _Copenhaver_, Brian P
