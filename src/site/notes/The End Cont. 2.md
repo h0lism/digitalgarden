@@ -377,14 +377,19 @@ From The Ra Contact 31.16
 ![jezebel.jpeg](/img/user/images/jezebel.jpeg)
 (these witches craaazzzyyyyyyy)
 
+![Pasted image 20251125175329 (1).png](/img/user/images/Pasted%20image%2020251125175329%20(1).png)
+
+I was the first person on the planet to register [nonutnovember.com](http://nonutnovember.com/) for $8.88 on 11-4-17.
+This was a silent moment in history that only one soul was privy to witness, and that same conscious awareness will attest to you that it was thoroughly glorious moment in the space of time.
+I had only just learned about sexual transmutation and it made me feel
+
+![Pasted image 20251127052212.png](/img/user/images/Pasted%20image%2020251127052212.png)
 
 I'm not going to try and look for any more surrounding this other event which occurred on the same day, perhaps if I search long enough will enter bias, but maybe we're slightly tapping in to the fact there may be an underlying code of the world? This is barely sane to speak but something that popped up in my awareness, I might remove this. 
 
 ![Pasted image 20251002185542.png](/img/user/images/Pasted%20image%2020251002185542.png)
 
-
-
-
+![MV5BMTY2ZmY3MGEtMjkyNi00OWU4LTk3YWItZmRkNTk1OTA4YmE1XkEyXkFqcGc@._V1_.jpg| 500](/img/user/images/MV5BMTY2ZmY3MGEtMjkyNi00OWU4LTk3YWItZmRkNTk1OTA4YmE1XkEyXkFqcGc@._V1_.jpg)
 
 Released in September of 2024, by November "El 47" became the most watched film in the Catalan language of the last 40 years in Spain. It is based on a true story, about a man, Manolo Vital, who hijacked a bus and drove it to the neighborhood where he lived, where there was no public transport. The city council at the time claimed that the streets of the neighborhood were too tight, and it was not possible for buses to get there, and so, to prove them wrong, Vital pulled a bit of a Robinhood move and hijacked route #47 to prove them wrong. It seems that the person whom this film is about, shares a last name with one of the the most well known Kabbalistic Rabbis of the past. The main student/disciple of perhaps the most famous Kabbalist of history, Isaac Luria, who died at 4/23 at age 77. We're speaking of Hayyim ben Joseph Vital, often called "Vital." The esoteric connections between Saturn and the Elohim, I have yet to find the space to fully divulge into, but it's coming soon. It turns out, as-well, that there is an entire film production company called "Saturn Films." I discovered this by googling "Saturn 477," and the first result to pop up on YouTube, was this video by someone, "DellFan Productions," whom makes videos that are compilations of the different logos companies have evolved through over time. The 477th video of this individual, just so happened to be of this Saturn film company. And you know who started this thing? I'll give you one guess. Go ahead. 
 
@@ -394,9 +399,6 @@ Those National Treasure movies, all masonic and whatnot, underneath this company
 ![Pasted image 20251003181810.png](/img/user/images/Pasted%20image%2020251003181810.png)
 
 As-well, it seems that this video was uploaded on 4-7-23. 
-
-
-
 
 ![Pasted image 20251004044443.png| 1000](/img/user/images/Pasted%20image%2020251004044443.png)
 Artificial Intelligence
