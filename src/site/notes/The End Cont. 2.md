@@ -2,8 +2,7 @@
 {"dg-publish":true,"permalink":"/the-end-cont-2/"}
 ---
 
-Still working on a lot to add in here... many thousands of words Soon updates added every day 
-I Need to eat food now
+
 ![Pasted image 20251015161937.png](/img/user/images/Pasted%20image%2020251015161937.png)
 
 Just recently, as I so desperately want to put a close to this chapter, I came across the final pieces of the puzzle. Dr Justin Sledge, of Esoterica, had a few interesting uploads here towards the end of August. The first was on the story of the historical Jesus. One of the details new for me was that there was a widely circulating theory that Jesus was actually son of a Roman soldier named Pantera. This I found intriguing, because at the place I worked where DopenessOnDeck[[Prequel𓂀/47\|47]] was born, there was a tremendous amount of the band Pantera which was played - especially after we closed. The band was a favorite of one of my co-workers(besides Tool), who then showed our boss, who then became obsessed. I found metal a bit off-putting at first, it was so aggressive, I thought these guys had emotional issues. Through time, I grew to enjoy and play the genre a lot, especially in moments of nostalgia reflecting back to the good ol' days. Things were simpler then, we were working a real life version of the Krusty Krab, what we joked about constantly. Sure, maybe I was molested by a man with down syndrome every day for a summer(Bobby Lee, me too), Spongebob, but honestly, and I'm not even kidding, that was the first person to ever make me feel like maybe I was handsome. I was Zac Efron(he would call me this or cupcake). He was Vanessa Hudgens. Together we made High School Musical. Have you seen the movie Dreamcatcher? There's a down syndrome individual, Duddits, who gifts the 4 main characters psychic abilities in their childhood after they protect him from bullies. Later an alien invasion begins to go down, and these 4, who reunite yearly for a hunting trip, are forced to use their powers to help save the world. 2 of them get killed, 1 of them gets possessed by "Mr. Gray," head honcho parasite, and the lone survivor, Henry, he realizes their only hope is the source of their power: Duddits. Walking, perhaps, sprinting to the ends of the Earth, Henry finds him, frail and dying from leukemia. In a desperate race against time, their psychic powers, which has left them linked, led the two to a final confrontation. Mr Gray, still possessing one of the 4 friends, is about to infect the worlds water supply... what would ensure the invasions success... 
@@ -378,9 +377,6 @@ From The Ra Contact 31.16
 ![jezebel.jpeg](/img/user/images/jezebel.jpeg)
 (these witches craaazzzyyyyyyy)
 
-I was the first person on the planet to register nonutnovember.com for $8.88 on 11-4-17
-
-![Pasted image 20251125175329.png](/img/user/images/Pasted%20image%2020251125175329.png)
 
 I'm not going to try and look for any more surrounding this other event which occurred on the same day, perhaps if I search long enough will enter bias, but maybe we're slightly tapping in to the fact there may be an underlying code of the world? This is barely sane to speak but something that popped up in my awareness, I might remove this. 
 
@@ -410,7 +406,7 @@ Artificial Intelligence
 ![Pasted image 20251125174113.png](/img/user/images/Pasted%20image%2020251125174113.png)
 (going to have to get into this here when I watch  _Lawnmower Man 2: Beyond Cyberspace_ again)
 	(Predicted the iPhone before the iPhone?? )
-
+![Pasted image 20251125175937.png](/img/user/images/Pasted%20image%2020251125175937.png)
 
 I had woken up at my brothers bungalo, ready to do some maintenance on these ferocious front beds (which were nearly extending into the street), and found myself with a variety of different numerical repetitions. He was off doing something, and I was scrolling through YouTube while waking up; there wasn't anything too significant, but I did find a movie clip with 888 likes, something else with 222k views, and maybe one other thing. More importantly, who honestly cares, I just discovered this 47 second video of Chris Angel walking on water.
 
@@ -891,6 +887,9 @@ He just so happens to be a certain age.
 ![Pasted image 20251028013224.png](/img/user/images/Pasted%20image%2020251028013224.png)
 
 This period has had a tremendous influence on modern rap. The Houston "sizzurp" era of the 1990s was when the drug, also known as "purple drank," "Texas tea," "mud," "dirty sprite," or "lean," amongst other names, became deeply embedded in the city's hip-hop culture, and now, decades later, hip hop culture everywhere. It is said that Lean originated in Houston during the 1960s, a time when blues musicians would mix cough syrups like Robitussin with beer or wine at social gatherings. When what had rolled around was the 1980s and ’90s, the recipe evolved to include prescription-strength codeine-promethazine cough syrup combined with soda, perhaps candy as-well, jolly-ranchers for example. This concoction emerged with a great force far and near within the Houston hip-hop scene, DJ Screw being one of the prominent figures through which this mixture found voice of influence. 
+
+![Pasted image 20251125182710.png](/img/user/images/Pasted%20image%2020251125182710.png)
+(whoever left this for me to catch u fire)
 
 ![Pasted image 20251028054051.png](/img/user/images/Pasted%20image%2020251028054051.png)
 
