@@ -74,6 +74,8 @@ I can only imagine the horror they faced on a day to day basis after my departur
 
 ![Pasted image 20251112160514.png](/img/user/images/Pasted%20image%2020251112160514.png)
 
+![Pasted image 20251127052647.png](/img/user/images/Pasted%20image%2020251127052647.png)
+
 ![monkE.jpg](/img/user/images/monkE.jpg)
 
 ![Pasted image 20251112163201.png](/img/user/images/Pasted%20image%2020251112163201.png)
