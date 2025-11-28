@@ -104,6 +104,10 @@ _The Etiology_
 
 ![Pasted image 20251125155009.png](/img/user/images/Pasted%20image%2020251125155009.png)
 
+![Pasted image 20251127173650.png](/img/user/images/Pasted%20image%2020251127173650.png)
+
+The idea of Luciferic (trying to go straight to the heights of Spirituality inappropriately) vs Ahrimanic forces (pure materialism completely separated from Spirituality whatsoever aka Western Science) by Rudolf Steiner is something that I spent a very long time with a while back. Months and months of observing reality through this frame, it seems to be quite on point. Absolutely eye opening. 
+
 ![IMG_8254.jpg](/img/user/images/IMG_8254.jpg)
 
 ![IMG_8255.jpg](/img/user/images/IMG_8255.jpg)
