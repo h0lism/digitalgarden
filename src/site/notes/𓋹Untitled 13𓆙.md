@@ -36,6 +36,10 @@ Just got back from a very peaceful walk in newly fallen snow.
 
 ![Pasted image 20251202002847.png](/img/user/images/Pasted%20image%2020251202002847.png)
 
+![Pasted image 20251202011101.png](/img/user/images/Pasted%20image%2020251202011101.png)
+
+![Pasted image 20251202011233.png](/img/user/images/Pasted%20image%2020251202011233.png)
+
 ![Pasted image 20251202004523.png](/img/user/images/Pasted%20image%2020251202004523.png)
 
 ![Pasted image 20251202004135.png](/img/user/images/Pasted%20image%2020251202004135.png)
