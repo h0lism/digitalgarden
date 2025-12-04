@@ -58,3 +58,12 @@ Just got back from a very peaceful walk in newly fallen snow.
 
 ![IMG_8293 (2).jpg](/img/user/images/IMG_8293%20(2).jpg)
 
+![Pasted image 20251127045454.png](/img/user/images/Pasted%20image%2020251127045454.png)
+
+![Pasted image 20251203175042.png](/img/user/images/Pasted%20image%2020251203175042.png)
+
+Almost didn't catch that 👀 
+
+![Pasted image 20251203175339.png](/img/user/images/Pasted%20image%2020251203175339.png)
+
+![atlantis.jpg](/img/user/images/atlantis.jpg)
