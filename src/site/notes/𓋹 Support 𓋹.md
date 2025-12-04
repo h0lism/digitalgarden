@@ -49,7 +49,6 @@ Just got back from a very peaceful walk in newly fallen snow.
 ![Pasted image 20251202001707.png](/img/user/images/Pasted%20image%2020251202001707.png)
 
 
-
 ![Pasted image 20251202023615.png](/img/user/images/Pasted%20image%2020251202023615.png)
 
 ![Pasted image 20251202023547.png](/img/user/images/Pasted%20image%2020251202023547.png)
@@ -60,10 +59,11 @@ Just got back from a very peaceful walk in newly fallen snow.
 
 ![Pasted image 20251127045454.png](/img/user/images/Pasted%20image%2020251127045454.png)
 
-![Pasted image 20251203175042.png](/img/user/images/Pasted%20image%2020251203175042.png)
-
-Almost didn't catch that 👀 
+![Pasted image 20251203183446.png](/img/user/images/Pasted%20image%2020251203183446.png)
 
 ![Pasted image 20251203175339.png](/img/user/images/Pasted%20image%2020251203175339.png)
+
+![Pasted image 20251203183028.png](/img/user/images/Pasted%20image%2020251203183028.png)
+![Pasted image 20251203183219.png](/img/user/images/Pasted%20image%2020251203183219.png)
 
 ![atlantis.jpg](/img/user/images/atlantis.jpg)
