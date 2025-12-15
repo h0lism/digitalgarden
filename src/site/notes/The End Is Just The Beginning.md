@@ -40,14 +40,12 @@
 
 ![Pasted image 20251213060251.png](/img/user/images/Pasted%20image%2020251213060251.png)
 
-
 ![Pasted image 20251210000848.png](/img/user/images/Pasted%20image%2020251210000848.png)
 
 ![Pasted image 20251210002733.png](/img/user/images/Pasted%20image%2020251210002733.png)
 
 ![Pasted image 20251210004333.png](/img/user/images/Pasted%20image%2020251210004333.png)
 
-Atlas at-lass at-pass Free60minmeditationforImmortality
 
 ![B_999_M048_Serp.jpg](/img/user/images/B_999_M048_Serp.jpg)
 
