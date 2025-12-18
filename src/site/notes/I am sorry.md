@@ -22,6 +22,4 @@
 
 ![Pasted image 20251217221355.png](/img/user/images/Pasted%20image%2020251217221355.png)
 
-(potential)NNForever day 47 (✓)  
-
 ![IMG_8535.jpg](/img/user/images/IMG_8535.jpg)
