@@ -13,13 +13,12 @@
 ![Pasted image 20251217220700.png](/img/user/images/Pasted%20image%2020251217220700.png)
 
 ![Pasted image 20251217221448.png](/img/user/images/Pasted%20image%2020251217221448.png)
-
 ![Pasted image 20251217221514.png](/img/user/images/Pasted%20image%2020251217221514.png)
-
 ![Pasted image 20251217221239.png](/img/user/images/Pasted%20image%2020251217221239.png)
-
 ![Pasted image 20251217221422.png](/img/user/images/Pasted%20image%2020251217221422.png)
 
 ![Pasted image 20251217221355.png](/img/user/images/Pasted%20image%2020251217221355.png)
 
 ![IMG_8535.jpg](/img/user/images/IMG_8535.jpg)
+
+![Pasted image 20251218001303.png](/img/user/images/Pasted%20image%2020251218001303.png)
