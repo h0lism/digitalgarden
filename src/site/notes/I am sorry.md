@@ -50,4 +50,4 @@ Ah damn forgot about this...
 
 ![Pasted image 20251220181326.png](/img/user/images/Pasted%20image%2020251220181326.png)
 
-
+![nwHQNM.gif](/img/user/images/nwHQNM.gif)
