@@ -22,3 +22,7 @@ The horizontal and vertical integration of all 20 brain systems becomes the "Com
 
 
 ![achievement.png](/img/user/images/achievement.png)
+
+![Pasted image 20251218211005.png](/img/user/images/Pasted%20image%2020251218211005.png)
+
+![Pasted image 20251218211042.png](/img/user/images/Pasted%20image%2020251218211042.png)
