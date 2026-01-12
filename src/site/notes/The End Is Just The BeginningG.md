@@ -90,7 +90,6 @@
 
 ![Pasted image 20260111185432.png](/img/user/images/Pasted%20image%2020260111185432.png)
 
-
 ![Pasted image 20260108204401.png](/img/user/images/Pasted%20image%2020260108204401.png)
 
 ![IMG_4492.jpg| 300](/img/user/images/IMG_4492.jpg)
@@ -238,11 +237,9 @@
 
 ![Pasted image 20260102015635.png](/img/user/images/Pasted%20image%2020260102015635.png)
 
-Matthew 16:23-4
+Matthew 16:23
 
 Jesus turned and said to Peter, “Get behind me, Satan! You are a stumbling block to me; you do not have in mind the concerns of God, but merely human concerns.”
-
-Then Jesus said to his disciples, “Whoever wants to be my disciple must deny themselves and take up their cross and follow me.
 
 ![Screenshot 2025-12-06 213613.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20213613.png)
 
