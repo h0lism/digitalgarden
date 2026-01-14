@@ -89,6 +89,8 @@
 
 ![Pasted image 20260111035044.png](/img/user/images/Pasted%20image%2020260111035044.png)
 
+![Screenshot 2026-01-11 185359.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-11%20185359.png)
+
 ![Pasted image 20260108204401.png](/img/user/images/Pasted%20image%2020260108204401.png)
 
 ![IMG_4492.jpg| 300](/img/user/images/IMG_4492.jpg)
@@ -157,7 +159,7 @@
 
 ![Pasted image 20260111175055.png](/img/user/images/Pasted%20image%2020260111175055.png)
 
-It turns out that members of this organization served to create a precursor and model for what came to be known as the Ku Klux Klan. 
+It turns out that members of this organization created a precursor and model for what came to be known as the Ku Klux Klan. 
 
 ![Pasted image 20260111081842.png](/img/user/images/Pasted%20image%2020260111081842.png)
 
