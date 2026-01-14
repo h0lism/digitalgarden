@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/the-end-is-just-the-beginning-g/"}
 ---
 
-
 ![Pasted image 20251211202641.png](/img/user/images/Pasted%20image%2020251211202641.png)
 
 ![Pasted image 20251211202508.png](/img/user/images/Pasted%20image%2020251211202508.png)
@@ -50,6 +49,8 @@
 
 ![Screenshot 2025-12-12 040555.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-12%20040555.png)
 
+![catholic-cross.gif](/img/user/images/catholic-cross.gif)
+
 ![Pasted image 20260111215835.png](/img/user/images/Pasted%20image%2020260111215835.png)
 
 ![Pasted image 20260111200019.png](/img/user/images/Pasted%20image%2020260111200019.png)
@@ -87,8 +88,6 @@
 ![Pasted image 20260108204215.png](/img/user/images/Pasted%20image%2020260108204215.png)
 
 ![Pasted image 20260111035044.png](/img/user/images/Pasted%20image%2020260111035044.png)
-
-![Pasted image 20260111185432.png](/img/user/images/Pasted%20image%2020260111185432.png)
 
 ![Pasted image 20260108204401.png](/img/user/images/Pasted%20image%2020260108204401.png)
 
@@ -158,6 +157,8 @@
 
 ![Pasted image 20260111175055.png](/img/user/images/Pasted%20image%2020260111175055.png)
 
+It turns out that members of this organization served to create a precursor and model for what came to be known as the Ku Klux Klan. 
+
 ![Pasted image 20260111081842.png](/img/user/images/Pasted%20image%2020260111081842.png)
 
 ![Pasted image 20260111201159.png](/img/user/images/Pasted%20image%2020260111201159.png)
@@ -168,15 +169,11 @@
 
 ![Pasted image 20260111075100.png](/img/user/images/Pasted%20image%2020260111075100.png)
 
-![Pasted image 20260111201919.png](/img/user/images/Pasted%20image%2020260111201919.png)
+![Pasted image 20260111201919.png| 250](/img/user/images/Pasted%20image%2020260111201919.png)
 
 ![Pasted image 20260111080238.png](/img/user/images/Pasted%20image%2020260111080238.png)
 
-![Pasted image 20260111202532.png](/img/user/images/Pasted%20image%2020260111202532.png)
-
 ![Pasted image 20260111082024.png](/img/user/images/Pasted%20image%2020260111082024.png)
-
-![Pasted image 20260111202307.png](/img/user/images/Pasted%20image%2020260111202307.png)
 
 ![Pasted image 20260111071525.png](/img/user/images/Pasted%20image%2020260111071525.png)
 
@@ -189,7 +186,7 @@
 ![Pasted image 20260111083132.png](/img/user/images/Pasted%20image%2020260111083132.png)
 
 ![Pasted image 20260111082514.png](/img/user/images/Pasted%20image%2020260111082514.png)
-
+ 
 ![Pasted image 20260111082303.png](/img/user/images/Pasted%20image%2020260111082303.png)
 
 ![Pasted image 20260111184934.png](/img/user/images/Pasted%20image%2020260111184934.png)
@@ -199,6 +196,8 @@
 ![Screenshot 2026-01-09 012134.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-09%20012134.png)
 
 ![Screenshot 2026-01-09 012239.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-09%20012239.png)
+
+![Pasted image 20260113164900.png](/img/user/images/Pasted%20image%2020260113164900.png)
 
 ![Screenshot 2026-01-08 205234.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-08%20205234.png)
 
@@ -249,8 +248,16 @@ That's the exact spot my back hurts ... how ....
 
 ![Screenshot 2025-12-06 212911.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20212911.png)
 
-![Pasted image 20260111213205.png](/img/user/images/Pasted%20image%2020260111213205.png)
-
 ![Pasted image 20260102015159.png| 500](/img/user/images/Pasted%20image%2020260102015159.png)
 
-![catholic-cross.gif](/img/user/images/catholic-cross.gif)
+![Pasted image 20260113153523.png](/img/user/images/Pasted%20image%2020260113153523.png)
+
+![Pasted image 20260113154107.png| 500](/img/user/images/Pasted%20image%2020260113154107.png)
+
+![maxresdefault (2).jpg| 300](/img/user/images/maxresdefault%20(2).jpg)
+
+![Pasted image 20260113154214.png| 600](/img/user/images/Pasted%20image%2020260113154214.png)
+
+![Pasted image 20260113154703.png](/img/user/images/Pasted%20image%2020260113154703.png)
+
+![spongebob-hours-later.gif](/img/user/images/spongebob-hours-later.gif)
