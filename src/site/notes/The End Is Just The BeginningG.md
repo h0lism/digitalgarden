@@ -107,25 +107,19 @@
 
 ![Pasted image 20260108222653.png](/img/user/images/Pasted%20image%2020260108222653.png)
 
+![Pasted image 20260108222722.png](/img/user/images/Pasted%20image%2020260108222722.png)
+
+![Pasted image 20260111182638.png](/img/user/images/Pasted%20image%2020260111182638.png)
+
 ![Pasted image 20260108222912.png](/img/user/images/Pasted%20image%2020260108222912.png)
 
 ![Pasted image 20260108223309.png](/img/user/images/Pasted%20image%2020260108223309.png)
 
 ![Pasted image 20260108223440.png](/img/user/images/Pasted%20image%2020260108223440.png)
 
-![Pasted image 20260108222722.png](/img/user/images/Pasted%20image%2020260108222722.png)
-
 ![Pasted image 20260111181155.png](/img/user/images/Pasted%20image%2020260111181155.png)
 
 ![Screenshot 2026-01-11 181218.png| 400](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-11%20181218.png)
-
-![Pasted image 20260111182638.png](/img/user/images/Pasted%20image%2020260111182638.png)
-
-![Pasted image 20260111204301.png](/img/user/images/Pasted%20image%2020260111204301.png)
-
-![wtc-whats-that-run-away-running-escape-distraction.gif](/img/user/images/wtc-whats-that-run-away-running-escape-distraction.gif)
-
-![Pasted image 20260111182549.png](/img/user/images/Pasted%20image%2020260111182549.png)
 
 ![Pasted image 20260111183744.png](/img/user/images/Pasted%20image%2020260111183744.png)
 
@@ -201,8 +195,6 @@
 
 ![Screenshot 2026-01-08 205234.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-08%20205234.png)
 
-![Pasted image 20260113171003.png](/img/user/images/Pasted%20image%2020260113171003.png)
-
 ![Pasted image 20260108205949.png](/img/user/images/Pasted%20image%2020260108205949.png)
 
 ![Pasted image 20260113170234.png](/img/user/images/Pasted%20image%2020260113170234.png)
@@ -252,16 +244,8 @@ That's the exact spot my back hurts ... how ....
 
 ![Screenshot 2025-12-06 212911.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20212911.png)
 
-![Pasted image 20260102015159.png| 500](/img/user/images/Pasted%20image%2020260102015159.png)
-
 ![Pasted image 20260113153523.png](/img/user/images/Pasted%20image%2020260113153523.png)
 
-![Pasted image 20260113154107.png| 500](/img/user/images/Pasted%20image%2020260113154107.png)
+![Pasted image 20260102015159.png| 500](/img/user/images/Pasted%20image%2020260102015159.png)
 
-![maxresdefault (2).jpg| 300](/img/user/images/maxresdefault%20(2).jpg)
-
-![Pasted image 20260113154214.png| 600](/img/user/images/Pasted%20image%2020260113154214.png)
-
-![Pasted image 20260113154703.png](/img/user/images/Pasted%20image%2020260113154703.png)
-
-![spongebob-hours-later.gif](/img/user/images/spongebob-hours-later.gif)
+![Pasted image 20260113171003.png](/img/user/images/Pasted%20image%2020260113171003.png)
