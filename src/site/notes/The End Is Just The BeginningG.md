@@ -197,6 +197,8 @@
 
 ![Pasted image 20260108205949.png](/img/user/images/Pasted%20image%2020260108205949.png)
 
+![Pasted image 20260113153523.png](/img/user/images/Pasted%20image%2020260113153523.png)
+
 ![Pasted image 20260113170234.png](/img/user/images/Pasted%20image%2020260113170234.png)
 
 ![Pasted image 20260108210027.png](/img/user/images/Pasted%20image%2020260108210027.png)
@@ -242,10 +244,8 @@ Jesus turned and said to Peter, “Get behind me, Satan! You are a stumbling b
 
 That's the exact spot my back hurts ... how ....
 
-![Screenshot 2025-12-06 212911.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20212911.png)
-
-![Pasted image 20260113153523.png](/img/user/images/Pasted%20image%2020260113153523.png)
-
 ![Pasted image 20260102015159.png| 500](/img/user/images/Pasted%20image%2020260102015159.png)
+
+![Screenshot 2025-12-06 212911.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20212911.png)
 
 ![Pasted image 20260113171003.png](/img/user/images/Pasted%20image%2020260113171003.png)
