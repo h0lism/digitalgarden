@@ -203,15 +203,7 @@
 
 ![Pasted image 20260108210027.png](/img/user/images/Pasted%20image%2020260108210027.png)
 
-![Pasted image 20260108183007.png](/img/user/images/Pasted%20image%2020260108183007.png)
-
-![ah2fy7.jpg| 300](/img/user/images/ah2fy7.jpg)
-
-![Pasted image 20260111034215.png](/img/user/images/Pasted%20image%2020260111034215.png)
-
 ![Pasted image 20260108210821.png](/img/user/images/Pasted%20image%2020260108210821.png)
-
-![Pasted image 20260108185644.png](/img/user/images/Pasted%20image%2020260108185644.png)
 
 ![Pasted image 20260111033748.png](/img/user/images/Pasted%20image%2020260111033748.png)
 
@@ -229,10 +221,6 @@
 
 "He will make the gallows holy as the cross."
 	Ralph Waldo Emerson 
-
-![IMG_4482 3.jpg| 300](/img/user/images/IMG_4482%203.jpg)
-
-![Pasted image 20260102015635.png](/img/user/images/Pasted%20image%2020260102015635.png)
 
 Matthew 16:23
 
