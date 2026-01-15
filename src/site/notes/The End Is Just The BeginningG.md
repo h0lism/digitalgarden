@@ -57,6 +57,8 @@
 
 ![Pasted image 20260111220031.png](/img/user/images/Pasted%20image%2020260111220031.png)
 
+
+
 ![IMG_4484 1.png| 300](/img/user/images/IMG_4484%201.png)
 
 ![Pasted image 20260106233345.png](/img/user/images/Pasted%20image%2020260106233345.png)
@@ -81,9 +83,9 @@
 
 ![Pasted image 20260111214840.png](/img/user/images/Pasted%20image%2020260111214840.png)
 
-![Pasted image 20260102183143.png](/img/user/images/Pasted%20image%2020260102183143.png)
-
 ![Pasted image 20260111035734.png| 300](/img/user/images/Pasted%20image%2020260111035734.png)
+
+![Pasted image 20260102183143.png](/img/user/images/Pasted%20image%2020260102183143.png)
 
 ![Pasted image 20260108204215.png](/img/user/images/Pasted%20image%2020260108204215.png)
 
@@ -205,6 +207,14 @@
 
 ![Pasted image 20260108210821.png](/img/user/images/Pasted%20image%2020260108210821.png)
 
+
+![Pasted image 20260111081154.png](/img/user/images/Pasted%20image%2020260111081154.png)
+
+![Pasted image 20260111081132.png](/img/user/images/Pasted%20image%2020260111081132.png)
+
+"He will make the gallows holy as the cross."
+	Ralph Waldo Emerson 
+
 ![Pasted image 20260111033748.png](/img/user/images/Pasted%20image%2020260111033748.png)
 
 ![Pasted image 20260111033844.png](/img/user/images/Pasted%20image%2020260111033844.png)
@@ -213,27 +223,5 @@
 
 ![Pasted image 20260111025334.png](/img/user/images/Pasted%20image%2020260111025334.png)
 
-![Pasted image 20260111081154.png](/img/user/images/Pasted%20image%2020260111081154.png)
-
-![Pasted image 20260111081132.png](/img/user/images/Pasted%20image%2020260111081132.png)
-"If John Brown did not end the war that ended slavery, he did at least begin the war that ended slavery."
-	Frederick Douglass
-
-"He will make the gallows holy as the cross."
-	Ralph Waldo Emerson 
-
-Matthew 16:23
-
-Jesus turned and said to Peter, “Get behind me, Satan! You are a stumbling block to me; you do not have in mind the concerns of God, but merely human concerns.”
-
-![Screenshot 2025-12-06 213613.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20213613.png)
-
-![Pasted image 20260111212348.png| 500](/img/user/images/Pasted%20image%2020260111212348.png)
-
-That's the exact spot my back hurts ... how ....
-
-![Pasted image 20260102015159.png| 500](/img/user/images/Pasted%20image%2020260102015159.png)
-
-![Screenshot 2025-12-06 212911.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-06%20212911.png)
-
 ![Pasted image 20260113171003.png](/img/user/images/Pasted%20image%2020260113171003.png)
+
