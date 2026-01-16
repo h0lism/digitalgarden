@@ -225,3 +225,41 @@
 
 ![Pasted image 20260113171003.png](/img/user/images/Pasted%20image%2020260113171003.png)
 
+The day after updating this the directors of the Avengers movies uploaded this on Instagram
+
+![Pasted image 20260115163438.png| 300](/img/user/images/Pasted%20image%2020260115163438.png)
+
+and then two days after that 
+
+![Pasted image 20260115163544.png| 300](/img/user/images/Pasted%20image%2020260115163544.png)
+
+It started here (maybe) ... accidentally 😁
+
+and speaking of accidents....
+
+Progressive covered the car crash I described in [[The Inner Garden/𖥱 Dedication\|𖥱 Dedication]]
+Didn't notice anything they made until just recently
+
+<3
+
+But wait...
+
+ I know someone that goes by this nickname! 
+ 
+ They were about to go to trial 
+ for a deadly hit and run incident 
+ that happened a little while back...
+
+![Pasted image 20260115170539.png](/img/user/images/Pasted%20image%2020260115170539.png)
+
+![kSZ1_4.gif](/img/user/images/kSZ1_4.gif)
+
+![Pasted image 20260115173324.png](/img/user/images/Pasted%20image%2020260115173324.png)
+
+![Pasted image 20260115173741.png](/img/user/images/Pasted%20image%2020260115173741.png)
+
+![Pasted image 20260115173810.png](/img/user/images/Pasted%20image%2020260115173810.png)
+
+![Pasted image 20260115171251.png| 300](/img/user/images/Pasted%20image%2020260115171251.png)
+
+![IMG_4502.jpg| 300](/img/user/images/IMG_4502.jpg)
