@@ -53,11 +53,11 @@
 
 ![Pasted image 20260111215835.png](/img/user/images/Pasted%20image%2020260111215835.png)
 
+![Pasted image 20260121005707.png](/img/user/images/Pasted%20image%2020260121005707.png)
+
 ![Pasted image 20260111200019.png](/img/user/images/Pasted%20image%2020260111200019.png)
 
 ![Pasted image 20260111220031.png](/img/user/images/Pasted%20image%2020260111220031.png)
-
-
 
 ![IMG_4484 1.png| 300](/img/user/images/IMG_4484%201.png)
 
@@ -68,6 +68,8 @@
 ![Pasted image 20260120230909.png](/img/user/images/Pasted%20image%2020260120230909.png)
 
 ![Pasted image 20260120230939.png](/img/user/images/Pasted%20image%2020260120230939.png)
+
+
 
 ![Pasted image 20260111203233.png](/img/user/images/Pasted%20image%2020260111203233.png)
 
@@ -101,12 +103,13 @@
 
 ![Pasted image 20260120231318.png](/img/user/images/Pasted%20image%2020260120231318.png)
 
+![Pasted image 20260121010757.png](/img/user/images/Pasted%20image%2020260121010757.png)
+
 ![IMG_4492.jpg| 300](/img/user/images/IMG_4492.jpg)
 
 ![Pasted image 20260108204339.png](/img/user/images/Pasted%20image%2020260108204339.png)
 
 ![Pasted image 20260108222410.png](/img/user/images/Pasted%20image%2020260108222410.png)
-
 ![Pasted image 20260111183917.png](/img/user/images/Pasted%20image%2020260111183917.png)
 
 ![Pasted image 20260108222435.png](/img/user/images/Pasted%20image%2020260108222435.png)
@@ -165,6 +168,8 @@
 
 ![Pasted image 20260111081842.png](/img/user/images/Pasted%20image%2020260111081842.png)
 
+![Pasted image 20260120235104.png](/img/user/images/Pasted%20image%2020260120235104.png)
+
 ![Pasted image 20260111201159.png](/img/user/images/Pasted%20image%2020260111201159.png)
 
 ![Pasted image 20260111074059.png](/img/user/images/Pasted%20image%2020260111074059.png)
@@ -201,7 +206,11 @@
 
 ![Screenshot 2026-01-09 012239.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-09%20012239.png)
 
+![Pasted image 20260121000317.png| 250](/img/user/images/Pasted%20image%2020260121000317.png)
+
 ![Pasted image 20260113164900.png](/img/user/images/Pasted%20image%2020260113164900.png)
+
+![Pasted image 20260121000916.png](/img/user/images/Pasted%20image%2020260121000916.png)
 
 ![Screenshot 2026-01-08 205234.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-08%20205234.png)
 
@@ -213,10 +222,7 @@
 
 ![Pasted image 20260108210027.png](/img/user/images/Pasted%20image%2020260108210027.png)
 
-![Pasted image 20260120232225.png](/img/user/images/Pasted%20image%2020260120232225.png)
-
 ![Pasted image 20260108210821.png](/img/user/images/Pasted%20image%2020260108210821.png)
-
 
 ![Pasted image 20260111081154.png](/img/user/images/Pasted%20image%2020260111081154.png)
 
@@ -225,9 +231,15 @@
 "He will make the gallows holy as the cross."
 	Ralph Waldo Emerson 
 
+
+
 ![Pasted image 20260111033748.png](/img/user/images/Pasted%20image%2020260111033748.png)
 
 ![Pasted image 20260111033844.png](/img/user/images/Pasted%20image%2020260111033844.png)
+
+![Pasted image 20260121004639.png](/img/user/images/Pasted%20image%2020260121004639.png)
+
+![Pasted image 20260120232225.png](/img/user/images/Pasted%20image%2020260120232225.png)
 
 ![Pasted image 20260120233127.png](/img/user/images/Pasted%20image%2020260120233127.png)
 
@@ -249,4 +261,10 @@ and then two days after that
 
 ![IMG_8923.jpg| 500](/img/user/images/IMG_8923.jpg)
 
+![Pasted image 20260121005245.png](/img/user/images/Pasted%20image%2020260121005245.png)
+
+![Pasted image 20260121003518.png](/img/user/images/Pasted%20image%2020260121003518.png)
+
 ![_+(25).webp](/img/user/images/_+(25).webp)
+
+![Pasted image 20260121010124.png](/img/user/images/Pasted%20image%2020260121010124.png)
