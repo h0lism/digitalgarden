@@ -296,4 +296,26 @@ and then two days after that
 ![Screenshot 2026-01-22 190338.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190338.png)
 
 ![Screenshot 2026-01-22 190324.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190324.png)
+### X 49
 
+Iardin du monde aupres de cité neufue,  
+Dans le chemin des montagnes cauées,  
+Sera saisi & plongé dans la cuue,  
+Beuuant par force eaux soulphre enuenimées.  
+
+Garden of the world near the new city,  
+In the path of the hollow mountains:  
+It will be seized and plunged into the Tub,  
+Forced to drink waters poisoned by sulfur.  
+
+### X 50
+
+La Meuse au iour terre de Luxembourg,  
+Descouurira Saturne & trois en lurne.  
+Montagne & plaine, ville, cité & bourg,  
+Lorrain deluge, trahison par grand hurne.  
+
+The Meuse by day in the land of Luxembourg,  
+It will find Saturn and three in the urn:  
+Mountain and plain, town, city and borough,  
+Flood in Lorraine, betrayed by the great urn.
