@@ -53,6 +53,8 @@
 
 ![Pasted image 20260111215835.png](/img/user/images/Pasted%20image%2020260111215835.png)
 
+![Pasted image 20260121011520.png](/img/user/images/Pasted%20image%2020260121011520.png)
+
 ![Pasted image 20260121005707.png](/img/user/images/Pasted%20image%2020260121005707.png)
 
 ![Pasted image 20260111200019.png](/img/user/images/Pasted%20image%2020260111200019.png)
@@ -69,7 +71,7 @@
 
 ![Pasted image 20260120230939.png](/img/user/images/Pasted%20image%2020260120230939.png)
 
-
+![Pasted image 20260121011707.png| 300](/img/user/images/Pasted%20image%2020260121011707.png)
 
 ![Pasted image 20260111203233.png](/img/user/images/Pasted%20image%2020260111203233.png)
 
@@ -89,6 +91,8 @@
 
 ![Pasted image 20260111214840.png](/img/user/images/Pasted%20image%2020260111214840.png)
 
+![Pasted image 20260121012006.png](/img/user/images/Pasted%20image%2020260121012006.png)
+
 ![Pasted image 20260111035734.png| 300](/img/user/images/Pasted%20image%2020260111035734.png)
 
 ![Pasted image 20260102183143.png](/img/user/images/Pasted%20image%2020260102183143.png)
@@ -101,11 +105,11 @@
 
 ![Pasted image 20260108204401.png](/img/user/images/Pasted%20image%2020260108204401.png)
 
+![IMG_4492.jpg| 300](/img/user/images/IMG_4492.jpg)
+
 ![Pasted image 20260120231318.png](/img/user/images/Pasted%20image%2020260120231318.png)
 
 ![Pasted image 20260121010757.png](/img/user/images/Pasted%20image%2020260121010757.png)
-
-![IMG_4492.jpg| 300](/img/user/images/IMG_4492.jpg)
 
 ![Pasted image 20260108204339.png](/img/user/images/Pasted%20image%2020260108204339.png)
 
@@ -160,6 +164,8 @@
 
 ![Pasted image 20260111174918.png](/img/user/images/Pasted%20image%2020260111174918.png)
 
+
+
 ![Pasted image 20260111174841.png](/img/user/images/Pasted%20image%2020260111174841.png)
 
 ![Pasted image 20260111175002.png](/img/user/images/Pasted%20image%2020260111175002.png)
@@ -201,6 +207,8 @@
 ![Pasted image 20260111184934.png](/img/user/images/Pasted%20image%2020260111184934.png)
 
 ![Screenshot 2026-01-11 030503.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-11%20030503.png)
+
+![Pasted image 20260121011304.png](/img/user/images/Pasted%20image%2020260121011304.png)
 
 ![Screenshot 2026-01-09 012134.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-09%20012134.png)
 
@@ -268,3 +276,24 @@ and then two days after that
 ![_+(25).webp](/img/user/images/_+(25).webp)
 
 ![Pasted image 20260121010124.png](/img/user/images/Pasted%20image%2020260121010124.png)
+
+![Screenshot 2026-01-22 185800.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185800.png)
+
+
+
+![Screenshot 2026-01-22 185842.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185842.png)
+
+![Screenshot 2026-01-22 190049.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190049.png)
+
+![Screenshot 2026-01-22 185817.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185817.png)
+
+![Screenshot 2026-01-22 185723.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185723.png)
+
+
+
+![Screenshot 2026-01-22 190408.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190408.png)
+
+![Screenshot 2026-01-22 190338.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190338.png)
+
+![Screenshot 2026-01-22 190324.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190324.png)
+
