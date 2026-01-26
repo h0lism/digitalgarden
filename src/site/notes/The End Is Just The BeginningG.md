@@ -306,11 +306,10 @@ Iardin du monde aupres de cité neufue,
 Dans le chemin des montagnes cauées,  
 Sera saisi & plongé dans la cuue,  
 Beuuant par force eaux soulphre enuenimées.  
-
-Garden of the world near the new city,  
-In the path of the hollow mountains:  
-It will be seized and plunged into the Tub,  
-Forced to drink waters poisoned by sulfur.  
+	Garden of the world near the new city,  
+	In the path of the hollow mountains:  
+	It will be seized and plunged into the Tub,  
+	Forced to drink waters poisoned by sulfur.  
 
 ### X 50
 
@@ -318,18 +317,17 @@ La Meuse au iour terre de Luxembourg,
 Descouurira Saturne & trois en lurne.  
 Montagne & plaine, ville, cité & bourg,  
 Lorrain deluge, trahison par grand hurne.  
-
-The Meuse by day in the land of Luxembourg,  
-It will find Saturn and three in the urn:  
-Mountain and plain, town, city and borough,  
-Flood in Lorraine, betrayed by the great urn.
+	The Meuse by day in the land of Luxembourg,  
+	It will find Saturn and three in the urn:  
+	Mountain and plain, town, city and borough,  
+	Flood in Lorraine, betrayed by the great urn.
 
 
 Thy late arrival, César Nostradamus my son, has made me bestow much time, through nightly vigils, to leave you in writing a memorial to refer to, after the corporal extinction of your progenitor, that might serve for the common profit of mankind, out of what the Divine Being has permitted me to learn from the revolution of the stars. 
 	"Letter to Cesar," opening preface to Michel de Nostredame's first publication 
 		'Les Propheties,' May 4, 1555
 
-[[𓋹 The End 𓆙\|𓋹 The End 𓆙]] took place 171,665 days after, exactly 470 years
+[[𓋹 The End 𓆙\|𓋹 The End 𓆙]] took place 171,665 days later, exactly 470 years...
 
 
 ![Pasted image 20260126042615.png](/img/user/images/Pasted%20image%2020260126042615.png)
@@ -341,4 +339,13 @@ Thy late arrival, César Nostradamus my son, has made me bestow much time, thro
 ![Pasted image 20251005134834.png](/img/user/images/Pasted%20image%2020251005134834.png)
 	(10-5-25)
 
+### II 62
 
+Mabus puis tost alors mourra viendra,  
+De gens & bestes vne horrible deffaite,  
+Puis tout à coup la vengeance on verra,  
+Cent, main, soif, faim, quand courra la comette.  
+	Mabus then will soon die, there will come  
+	Of people and beasts a horrible rout:  
+	Then suddenly one will see vengeance,  
+	Hundred, hand, thirst, hunger when the comet will run.
