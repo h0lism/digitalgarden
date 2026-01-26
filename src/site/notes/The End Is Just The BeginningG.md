@@ -277,15 +277,19 @@ and then two days after that
 
 ![Pasted image 20260121010124.png](/img/user/images/Pasted%20image%2020260121010124.png)
 
+![79oc3g.jpg](/img/user/images/79oc3g.jpg)
+
 ![Screenshot 2026-01-22 185800.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185800.png)
 
 
 
 ![Screenshot 2026-01-22 185842.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185842.png)
 
+![Screenshot 2026-01-22 185817.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185817.png)
+
 ![Screenshot 2026-01-22 190049.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190049.png)
 
-![Screenshot 2026-01-22 185817.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185817.png)
+
 
 ![Screenshot 2026-01-22 185723.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185723.png)
 
@@ -319,3 +323,22 @@ The Meuse by day in the land of Luxembourg,
 It will find Saturn and three in the urn:  
 Mountain and plain, town, city and borough,  
 Flood in Lorraine, betrayed by the great urn.
+
+
+Thy late arrival, César Nostradamus my son, has made me bestow much time, through nightly vigils, to leave you in writing a memorial to refer to, after the corporal extinction of your progenitor, that might serve for the common profit of mankind, out of what the Divine Being has permitted me to learn from the revolution of the stars. 
+	"Letter to Cesar," opening preface to Michel de Nostredame's first publication 
+		'Les Propheties,' May 4, 1555
+
+[[𓋹 The End 𓆙\|𓋹 The End 𓆙]] took place 171,665 days after, exactly 470 years
+
+
+![Pasted image 20260126042615.png](/img/user/images/Pasted%20image%2020260126042615.png)
+
+
+![Pasted image 20260126042525.png](/img/user/images/Pasted%20image%2020260126042525.png)
+
+
+![Pasted image 20251005134834.png](/img/user/images/Pasted%20image%2020251005134834.png)
+	(10-5-25)
+
+
