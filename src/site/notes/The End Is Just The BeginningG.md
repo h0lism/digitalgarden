@@ -120,6 +120,8 @@
 
 ![Pasted image 20260120231821.png](/img/user/images/Pasted%20image%2020260120231821.png)
 
+![head-in-the-sand-lion-blog.webp](/img/user/images/head-in-the-sand-lion-blog.webp)
+
 ![Pasted image 20260108222653.png](/img/user/images/Pasted%20image%2020260108222653.png)
 
 ![Pasted image 20260108222722.png](/img/user/images/Pasted%20image%2020260108222722.png)
@@ -133,8 +135,6 @@
 ![Pasted image 20260108223440.png](/img/user/images/Pasted%20image%2020260108223440.png)
 
 ![Pasted image 20260111181155.png](/img/user/images/Pasted%20image%2020260111181155.png)
-
-![Screenshot 2026-01-11 181218.png| 400](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-11%20181218.png)
 
 ![Pasted image 20260111183744.png](/img/user/images/Pasted%20image%2020260111183744.png)
 
@@ -276,18 +276,11 @@ and then two days after that
 
 ![Screenshot 2026-01-22 185800.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185800.png)
 
-
-
 ![Screenshot 2026-01-22 185842.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185842.png)
 
 ![Screenshot 2026-01-22 185817.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185817.png)
 
 ![Screenshot 2026-01-22 190049.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190049.png)
-
-
-
-![Screenshot 2026-01-22 185723.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20185723.png)
-
 
 
 ![Screenshot 2026-01-22 190408.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190408.png)
@@ -305,5 +298,7 @@ Beuuant par force eaux soulphre enuenimées.
 	In the path of the hollow mountains:  
 	It will be seized and plunged into the Tub,  
 	Forced to drink waters poisoned by sulfur.  
+
+
 
 ![14012658_838087366901_1740433937_o.jpg](/img/user/images/14012658_838087366901_1740433937_o.jpg)
