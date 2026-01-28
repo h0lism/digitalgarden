@@ -120,7 +120,7 @@
 
 ![Pasted image 20260120231821.png](/img/user/images/Pasted%20image%2020260120231821.png)
 
-![head-in-the-sand-lion-blog.webp](/img/user/images/head-in-the-sand-lion-blog.webp)
+![do-ostriches-bury-their-heads-in-the-sand.webp](/img/user/images/do-ostriches-bury-their-heads-in-the-sand.webp)
 
 ![Pasted image 20260108222653.png](/img/user/images/Pasted%20image%2020260108222653.png)
 
@@ -133,6 +133,7 @@
 ![Pasted image 20260108223309.png](/img/user/images/Pasted%20image%2020260108223309.png)
 
 ![Pasted image 20260108223440.png](/img/user/images/Pasted%20image%2020260108223440.png)
+^
 
 ![Pasted image 20260111181155.png](/img/user/images/Pasted%20image%2020260111181155.png)
 
@@ -300,5 +301,6 @@ Beuuant par force eaux soulphre enuenimées.
 	Forced to drink waters poisoned by sulfur.  
 
 
-
 ![14012658_838087366901_1740433937_o.jpg](/img/user/images/14012658_838087366901_1740433937_o.jpg)
+
+![85236474.jpg](/img/user/images/85236474.jpg)
