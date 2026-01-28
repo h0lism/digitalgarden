@@ -302,8 +302,6 @@ Beuuant par force eaux soulphre enuenimées.
 
 ![14012658_838087366901_1740433937_o.jpg](/img/user/images/14012658_838087366901_1740433937_o.jpg)
 
-_Wang Saen Suk Hell Garden
-
 ![85236474.jpg](/img/user/images/85236474.jpg)
 
 ![Pasted image 20260128043713.png](/img/user/images/Pasted%20image%2020260128043713.png)
