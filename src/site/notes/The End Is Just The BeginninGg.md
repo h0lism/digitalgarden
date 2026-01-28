@@ -290,7 +290,6 @@ and then two days after that
 
 ![Screenshot 2026-01-22 190324.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-22%20190324.png)
 ### X 49
-
 Iardin du monde aupres de cité neufue,  
 Dans le chemin des montagnes cauées,  
 Sera saisi & plongé dans la cuue,  
@@ -305,5 +304,3 @@ Beuuant par force eaux soulphre enuenimées.
 ![14012658_838087366901_1740433937_o.jpg](/img/user/images/14012658_838087366901_1740433937_o.jpg)
 
 ![Pasted image 20260128051830.png](/img/user/images/Pasted%20image%2020260128051830.png)
-
-_Hell Garden_
