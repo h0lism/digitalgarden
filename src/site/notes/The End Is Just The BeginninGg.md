@@ -306,4 +306,4 @@ Beuuant par force eaux soulphre enuenimées.
 
 ![Pasted image 20260128051830.png](/img/user/images/Pasted%20image%2020260128051830.png)
 
-"Hell Garden"  
+_Hell Garden_
