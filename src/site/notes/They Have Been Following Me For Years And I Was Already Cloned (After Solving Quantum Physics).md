@@ -23,9 +23,3 @@
 ![A6607-C17-3715-4-C3-C-8-AD5-932-F610-CC813.jpg| 300](/img/user/images/A6607-C17-3715-4-C3-C-8-AD5-932-F610-CC813.jpg)
 
 ![8-E456-E0-D-6295-4-BF6-A982-2-A9-F8-BFC06-B9.jpg| 500](/img/user/images/8-E456-E0-D-6295-4-BF6-A982-2-A9-F8-BFC06-B9.jpg)
-
-![1-F9-F67-C7-7381-4-D62-80-F0-EFC8-ECB6097-C.jpg| 300](/img/user/images/1-F9-F67-C7-7381-4-D62-80-F0-EFC8-ECB6097-C.jpg)
-
-How much time is this  Young Gentleman spendin' on the intro?
-How this Young Gentleman workin' like he got a fuckin' twin though?
-
