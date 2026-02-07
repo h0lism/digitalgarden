@@ -5,6 +5,7 @@
 ![Pasted image 20260206221538.png| 400](/img/user/images/Pasted%20image%2020260206221538.png)
 
 ![Pasted image 20260206220315.png](/img/user/images/Pasted%20image%2020260206220315.png)
+https://asiasociety.org/files/uploads/286files/Steve%20Nash%20Bio.pdf
 
 ![Pasted image 20260206221841.png| 600](/img/user/images/Pasted%20image%2020260206221841.png)
 
