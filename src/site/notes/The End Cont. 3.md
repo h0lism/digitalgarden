@@ -564,7 +564,7 @@ This central orbit which we circulate around is supposedly the seed of our galax
 
 ![Pasted image 20260107073816.png](/img/user/images/Pasted%20image%2020260107073816.png)
 
-They also claim that the obscuration or release of the life-giving rays emitted from the Central Sun, as our Milky Way Galaxy moves around its center, causes the four yugas to be experienced by our solar system. The degree of access we have to these cosmic rays is what essentially determines the evolutionary cycles of man. When the many galaxies of the milky way have a cosmological arrangement in such a manner that we are not able to receive emissions from this grand central sun, perhaps through the blockages of certain debris or planets, etc., when the emission of spiritual radiations lessens, our spiritual awareness wanes. Human society living on the planet begins to decline in their capacities, and "The life force of man, kundalini, sleeps and instinctive desire manifests in abundance." Science has discovered that this galactic nucleus we orbit over cycles of 225+million years is emitting a bright radio source, infrared radiation, and x-rays. Vedic knowledge tells us that these are indications of the energy rays that shoot out to sustain and nurture all life and intelligence. Lemuria and Atlantis go hand in hand. It is written by the same author that talks about auric hooks. The way it started it was interesting, 
+They also claim that the obscuration or release of the life-giving rays emitted from the Central Sun, as our Milky Way Galaxy moves around its center, causes the four yugas to be experienced by our solar system. The degree of access we have to these cosmic rays is what essentially determines the evolutionary cycles of man. When the many galaxies of the milky way have a cosmological arrangement in such a manner that we are not able to receive emissions from this grand central sun, perhaps through the blockages of certain debris or planets, etc., when the emission of spiritual radiations lessens, our spiritual awareness wanes. Human society living on the planet begins to decline in their capacities, and "The life force of man, kundalini, sleeps and instinctive desire manifests in abundance." Science has discovered that this galactic nucleus we orbit over cycles of 225+million years is emitting a bright radio source, infrared radiation, and x-rays. Vedic knowledge tells us that these are indications of the energy rays that shoot out to sustain and nurture all life and intelligence. Lemuria and Atlantis go hand in hand. Many occult societies have been obsessed with both of these topics for a very long time. 
 
 ![IMG_8685.jpg| 300](/img/user/images/IMG_8685.jpg)
 
@@ -611,7 +611,7 @@ Nanak later re-emerged, enlightened, unable to speak about what it is he saw, bu
 
 ![Pasted image 20251212184034.png](/img/user/images/Pasted%20image%2020251212184034.png)
 
-A tough origin story, St. Joseph's father died before his birth and their families home was seized to settle unresolved debts. His mother was forced to give birth in a stable. Joseph had ecstatic visions in early childhood, but they ultimately led him to being seen as troublesome, because, well, there we some outbursts of anger that came along with them as-well. He was considered a bit like the village idiot, a mouth breather who would gaze off into the distance staring blankly at who knows what. No mind. "His brain is fried from all the drugs."
+A tough origin story, St. Joseph's father died before his birth and their families home was seized to settle unresolved debts. His mother was forced to give birth in a stable. Joseph had ecstatic visions in early childhood, but they ultimately led him to being seen as troublesome, because, well, there we some outbursts of anger that came along with them as-well. He was considered a bit like the village idiot, a mouth breather who would gaze off into the distance staring blankly at who knows what.
 
 ![Pasted image 20260102005459.png](/img/user/images/Pasted%20image%2020260102005459.png)
 
@@ -1095,3 +1095,6 @@ This entity was positive. However, its journey was difficult due to the inabilit
 _Prometheus Being Chained Ƅy Vulcan_, 1623, Rijks Museum, Amsterdam
 
 ![Pasted image 20251215153554.png](/img/user/images/Pasted%20image%2020251215153554.png)
+
+Prometheus and Epimetheus had two more brothers, one name Menoetius, and another, 
+# Atlas
