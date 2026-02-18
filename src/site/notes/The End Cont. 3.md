@@ -811,19 +811,15 @@ Snakes hold reverence amongst the Eastern Orthodox Christians. There is a city, 
 
 ![Screenshot 2025-11-23 172039.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-11-23%20172039.png)
 
-
-
 Snakes of the Theotokos which appear every year on the feast of the Dormition of the Theotokos on the greek island Kephalonia
 
-So they pray upon this or that and then what they get in return is assistance from the lord in terms of bringing a bunch of snakes to their side to scare off and fend away their foes, or their foes themselves turn into a coiled creature. Not your ordinary reptile, they even have, from what one evangelist was claiming, crosses on the tops of their heads and cross forked tongues. There have been some years reported to have no appearances from the snakes, but a certain claim is that this is due to earthquakes/weather phenomenon during that period. For some, it almost seems to me that this is like a groundhog's day situation, where the absence of the snakes is sign of great doom to come. 
+The story goes, that they pray upon Mother Mary for protection, and then what they got in return was assistance in the terms of bringing a bunch of snakes to their side to scare off and fend away their foes, or their foes themselves turn into the coiled creature. Not your ordinary reptile, they even have, from what one evangelist was claiming, crosses on the tops of their heads and cross forked tongues. There have been some years reported to have no appearances from the snakes, but a certain claim is that this is due to earthquakes/weather phenomenon during that period. For some, it almost seems to me that this is like a groundhog's day situation, where the absence of the snakes is sign of great doom to come. 
 
 
 Theotokos (Θεοτόκος) is a Greek word that means "God-bearer" or "Birth-giver to God." 
 
 
-Holy Mother Mary is also an Ever-Virgin, according to Eastern Orthodox, a Aeiparthenos(_Aeiparthenos_)(ἀειπάρθενος), which means that before, during, and after the birth of Jesus - she retained her V-card. There are some debates about this in the different worlds of Christianity, whether or not she had further children afterwards, but for the most part - it seems there are atleast  group 
-
-Protestants 
+Holy Mother Mary is also an Ever-Virgin, according to Eastern Orthodox, a Aeiparthenos(_Aeiparthenos_)(ἀειπάρθενος), which means that before, during, and after the birth of Jesus - she retained her V-card. There are some debates about this in the different worlds of Christianity, whether or not she had further children afterwards
 
 The Second Apocalypse of James, a gnostic text found in the Nag Hammadi library, refers to James(the brother of Jesus) as simply a relative. The Infancy Gospel of James, as-well, states that Mary remained a life-long virgin, because Joseph was an old man who married her without physical desire, and the brothers of Jesus mentioned in the canonical gospels are explained as Joseph's sons by an earlier marriage.
 
@@ -865,7 +861,237 @@ Virgen del Carmen, oil painting by Isabel de Cisneros (1666 –1714)
 
 _Carmel_ or _Carmen_ derives from the Hebrew word _Karmel_ or _Al-Karem_ , which can be translated as 'garden of God'.
 
-
+In the Catholic Church, approval of a Marian apparition is relatively rare. The majority of investigated apparitions are rejected as fraudulent or otherwise false. Mother Mary was taken seriously. For example, there was situation that got dicey known as the "Jetzer Affair." On 31 May 1509, Johann Vatter, Franz Ueltschi, Stephan Boltzhurst, and Heinrich Steinegger were burned alive for claiming false sightings. 
 
 ![Pasted image 20251208195541.png](/img/user/images/Pasted%20image%2020251208195541.png)
 
+![Screenshot 2025-11-30 005631.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-11-30%20005631.png)
+
+![Pasted image 20251208200234.png](/img/user/images/Pasted%20image%2020251208200234.png)
+This man was saved by an apparition of Babaji that showed up as a young kid and helped him through a downpour, remaining clear from any water. Seems quite similar to the accounts of Mother Mary apparitions, in which she stood in the rain untouched for hours. 
+
+![Screenshot 2025-11-29 170135.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-11-29%20170135.png)
+
+![Screenshot 2025-12-08 061038.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-08%20061038.png)
+
+![Screenshot 2025-11-26 182646.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-11-26%20182646.png)
+
+
+![Pasted image 20260103161501.png](/img/user/images/Pasted%20image%2020260103161501.png)
+
+![Pasted image 20260103161625.png](/img/user/images/Pasted%20image%2020260103161625.png)
+
+![EFMV4gXWwAA9Z0y.jpg](/img/user/images/EFMV4gXWwAA9Z0y.jpg)
+
+VVesica Piscis translates directly into from Latin as "bladder of a fish," or "vessel of the fish." 
+It is derived by taking two circles of equal diameters and overlaying them in such a way that their circumferences touch each other's epicenters. The intersectional area is also called "mandorla" which is an Italian word for little almond. The Vesica Piscis is the womb of the universe and contains within itself quite literally the whole essence of existence. This is a bold claim for what may seem like a simple two circles overlapping one another, but it is the foundation of sacred geometry. Everything that exists can spring out of this womb- football like shape. Traditions across the globe, perhaps even science, agree that life springs from some sort of division. You have an original source which must create something from itself, dividing itself. This brings us to the original duality. That which creates, and that which is created. The observer and the observed. 
+
+![xswkiqa6axp91.png](/img/user/images/xswkiqa6axp91.png)
+
+"Imagine my overwhelming joy when I discovered that the ancient Qabalistic Tree of Life, with all its wonderful possibilities as a means of mental classification of every idea in the Universe −− Natural, Human, and Divine −− was in its entirety based upon the same fundamental principle of the Vesica Piscis , and was therefore not a fixed design but capable of indefinite progression towards the Infinitely Small or the Infinitely Great . For it can be so drawn that it appears with all its details and properties, repeating themselves indefinitely in every direction of Space to Infinity."
+	Anatomy of the Body of God, Frater Achad
+
+Frater Achad was the 20th person to join Aleister Crowley in his A.A. organization, after coming across his publication _The Equinox._ Crowley viewed Achad as his "magical son" and heir after Achad's 1918 discovery of the Qabalistic key to _Liber AL vel Legis_, the reason why "AL" was put in the title. Their bond soured in the 1920s over Achad's unconventional Tree of Life rearrangements and contact with another group, and he was expelled from the O.T.O. in 1936. Anatomy of the Body of God(1925) goes into a lot of depth on the Vesica Piscis, in ways Crowley would probably view quite heretical. If you were to point to him in a room, and knew him by his original name, you would say - hey, look over there, it's 
+
+![Pasted image 20260102195709.png](/img/user/images/Pasted%20image%2020260102195709.png)
+
+![Pasted image 20260103161407.png](/img/user/images/Pasted%20image%2020260103161407.png)
+
+![Pasted image 20260102194901.png](/img/user/images/Pasted%20image%2020260102194901.png)
+
+"The Vesica Piscis is intimately connected with the discovery by Augustus Caesar, as narrated by Baronius, of a prophecy in one of the Sybilline books foretelling 'a great event coming to pass in the birth of One who should prove to be the true "King of Kings," and that Augustus therefore dedicated an altar in his palace to the "unknown God." 
+	Anatomy of the Body of God, Frater Achad
+
+For as I walked around and looked carefully at your objects of worship, I even found an altar with this inscription: to an unknown god. So you are ignorant of the very thing you worship—and this is what I am going to proclaim to you.
+	Acts 17:23
+
+![Pasted image 20260106193121.png](/img/user/images/Pasted%20image%2020260106193121.png)
+
+Vesta is the virgin goddess of hearth, home, and family. Her origins have been argued to go all the way back to Vedic India(2,000BC-500BC), which is difficult to prove, but gives us an idea as to how this archetype may have spread over, not only a long time, but also a long distance. She was rarely depicted in human form and was more often represented by the fire of her temple. Entry into said temple was only permitted to her Priestesses, “the vessel virgins,” who guarded certain sacred objects held within. They also prepared flowers and a sacred salt for official sacrifices, which is alchemically linked to the concept of fire. (c)Ovid, the Roman writer, claimed that Vesta was the Earth itself, which brings the phrase “salt of the Earth” into a new light. Their virginity was thought so essential to Roman survival, that if they were found guilty of un-chastity, they were buried alive.  
+![Pasted image 20260107034615.png](/img/user/images/Pasted%20image%2020260107034615.png)
+
+![Pasted image 20260107034432.png](/img/user/images/Pasted%20image%2020260107034432.png)
+
+![Pasted image 20260107034245.png](/img/user/images/Pasted%20image%2020260107034245.png)
+
+Vestallius was one of the most important rituals in Roman Culture. Privileged matrons walked barefoot through the city to the temple, where they made food offerings. This was one of the cults still active before being cut out by Christian rule in AD391. They did not have many myths, but the most notable one they carried was of miraculous conception. Virgin priestesses would, according to tale, become impregnated by a phallus appearing in the flames of their sacred hearth. The manifestation of the goddess combined with a supernatural male, this was claimed to be the process through which Roman founders - Roman Romulus(check that) and King Servius Tullius, were conceived. Vesta was daughter of Saturn and Ops, and was among the “Dia Consentes,” the 12 most honored Gods in the Roman Pantheon.  
+  
+The festival took place during June from (6-7)-(6-15), in the time of Gemini, at-least according to our modern tropical zodiac. This represents the conjunction of opposites, and a new third being brought forth through the conjunction of those opposites(attainment).  
+  
+[[emergence\|emergence]]  
+[[the lovers card\|the lovers card]]  
+  
+Through the esoteric lens, when you bring the unconscious(feminine, negative) and conscious (masculine, positive) together, there is a transcendental function that occurs, leading to a new birth. The eclipse that is formed by the vesica piscis is this union of opposites, a yoni-like symbol giving rise to something new created by the combination of male and female (idea, energies, etc). This can be seen as the birth of a magical child in some ways, a virgin birth that happens within an individual that takes on the necessary steps to consciously individuate and grow this new transcendental aspect. You can see this in the idea of different magical practices, or the world of “manifestation,” for example, as-well as in dreams.  
+  
+Much of magical practice, in both ancient occult and modern approaches, utilize the combination of consciously willed intentional thought(masculine), with the energy of emotions and the subconscious(feminine). This process of conscious willing something “impregnates” one with the seed of its fruition, making possible the reception of different visions/synchronicities/insights, a Hansel and Gretel trail, the beginning of a “quantum jump” into the “timeline” of a desired outcome being brought to life(if followed). Our dreams themselves, as hypothesized by Freud and Jung, are a sort of way these things process and grow/relay the inklings of what is to come/how it is that things may come. Prophetic dreams, “Promethean foresight,” extrapolate contents of the subconscious into the conscious mind and birth a transcendental picture to be given consideration. Because time does not necessarily exist in this realm, the psyche utilizes past present and future all at once as we glean as much insight and wisdom as possible to help the process of individuation along. The masculine pole of the magnet in a sense pulls up relevant and important information from the subconscious into the awareness of the observer. The purely conscious mental logos(masculine) is given sensations in the body, and even things appearing in the physical material world(feminine), all as clues to the path laid out by seed of higher guidance.
+
+The Roman God Janus, Iānus, meaning in Latin 'arched passage, doorway',
+
+![Pasted image 20260218040501.png](/img/user/images/Pasted%20image%2020260218040501.png)
+
+![IMG_5175 (1).jpeg](/img/user/images/IMG_5175%20(1).jpeg)
+
+![isimud-and-ea-relief.jpg](/img/user/images/isimud-and-ea-relief.jpg)
+Sumerian Isimud
+
+![aker-amduat-1024x683.jpg](/img/user/images/aker-amduat-1024x683.jpg)
+
+Aker, a twin lion deity, could almost be seen like an Egyptian equivalent to Janus, holding aspects of the Vesica Piscis. Instead of two heads facing each direction, it was two lions seated back to back, carrying the Akhet cross in-between. One of the lions faces the East, where the sun rises and begins a new day, is known as Duau, meaning tomorrow. Their jungle juxtaposition, a fierce feline known as Sef, booked a seat (Trivago) facing the west - where the sun sets - placing their bets - on the moments - of yesterday. Aker was associated with the mast of Ra's solar boat, and "The Book of Aker" is a papyrus about the solar journey. In this text he imprisoned the demon Apophis to prevent him from harming Ra's boat, which, because of Aker's double face, was provided protection both forward and back. Since the Egyptians believed that the transitional gates for both morning and night were guarded by Aker, they would sometimes place twin statues of lions/sphinxes at the doors to palaces or tombs(to guard against evil spirits and malevolent beings.)  
+
+![Pasted image 20260218042748.png](/img/user/images/Pasted%20image%2020260218042748.png)
+
+In the "Book of the Dead," one of the more famous Egyptian texts, Aker gives birth to the god Khepri, whose name means "He who is coming into being." Khepri was associated with scarabs, which held religious significance in the early times of Egypt, acting as a symbol of rebirth, regeneration, and transformation. Since scarabs would fly around during the hottest part of the day, they were associated with the sun, and this God representing the rising morning sun. 
+
+![Pasted image 20260218043006.png](/img/user/images/Pasted%20image%2020260218043006.png)
+
+The Akhet hieroglyph, translated as horizon, represents a "mountain with the rising sun." You often see Aker paired with this Akhet symbol, like a parent guarding their child. You also see the word showing up in the official Egyptian name for the Great Pyramid of Gaza (Akhet Khufu), as-well as in the old Egyptian city Akhetaten(1346-1332BC), which was founded by Akhenaten, whom, was supposedly contacted by [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]] long ago, hence his historical attempt at being the first to formulate all into a system of monotheism(the one infinite creator). 
+
+Khepri was equated to eternal life and the concept of resurrection, as a sun god and universal protector that was constantly reborn. His pushing of the sun up into the sky each morning was derived from the scarab beetle who rolls their ball of dung. 
+
+ "To Khepera who is self-created, I offer my praise. Each day you rise anew, O god, again and yet again; each day you rise is as the first," 
+	 Hymn to Khepri
+
+![sculpture-of-god-khepri-lk925.webp](/img/user/images/sculpture-of-god-khepri-lk925.webp)
+
+When we relate this idea of the vesica piscis with synchronicity, the dream realm (where past, present and future combine), and the manifestational birthing process of the psyche, it should be noted the origin of "synchronicity" itself. Carl Jung was running into difficulties while treating "a young woman of high education and serious demeanor." His attempts to soften her hard rationalistic shell were the only hope for the journey of psychological change she was after. "She always knew better about everything. her excellent education had equipped her with a weapon ideally suited to this purpose." Jung tried his best, but failed to sweeten her "impeccably geometrical idea of reality" with "a somewhat more human understanding," and was thus forced into a space that something "unexpected and irrational" would make way, something that would "burst the intellectual retort into something which she had sealed herself."
+
+The woman Jung was working with went into relaying a dream she had the night before. Someone had given her a piece of jewelry, costly, in the shape of a golden-scarab. While she shared with the shrink, he began to hear a gentle tapping on the window behind himself. Turning around, Jung saw "a fairly large flying insect" that was making an effort to enter the dark room, repeatedly knocking itself into the glass(anybody in there?). Opening the window, Carl caught the creature as soon as it flew in. Holding a grand beetle, whose color reflected a gold-green, nearly the same as the golden piece of jewelry from his patients dream, he handed it over to her with the words "Here is your beetle." 
+
+Rest in peace to Dr. Robert J. Gilbert of the Vesica Institute. Lots of synchronicities led me to his work. Part of me thinks he faked his death and is living in a mountain.
+
+![condolence-main-graphic.jpg](/img/user/images/condolence-main-graphic.jpg)
+
+![Pasted image 20260202222246.png](/img/user/images/Pasted%20image%2020260202222246.png)
+![Pasted image 20260202222335.png| 300](/img/user/images/Pasted%20image%2020260202222335.png)
+
+![Pasted image 20260202222449.png](/img/user/images/Pasted%20image%2020260202222449.png)
+
+https://www.vesica.org/
+
+The Vesica Piscis shows up in the famous _Birth of Venus_ painting. You may recognize this from the popular Lil Peep song Kisses in the Wind 
+
+![Pasted image 20251230044947.png](/img/user/images/Pasted%20image%2020251230044947.png)
+
+![Pasted image 20260107050250.png](/img/user/images/Pasted%20image%2020260107050250.png)
+
+"Brother Klein then goes on to show how the Vesica Piscis was the true foundation of Gothic Architecture"
+
+![IMG_4149.png| 300](/img/user/images/IMG_4149.png)
+
+![Anthropophyteia Vol. 4 (1907)9.png](/img/user/images/Anthropophyteia%20Vol.%204%20(1907)9.png)
+
+![6154ac8a126678001d3abdf9.jpg](/img/user/images/6154ac8a126678001d3abdf9.jpg)
+
+![The-Birth-of-Venus-by-Botticelli (2) (1).jpg](/img/user/images/The-Birth-of-Venus-by-Botticelli%20(2)%20(1).jpg)
+
+The man who painted this masterpiece
+
+![Lorenzo_de_Medici.jpg](/img/user/images/Lorenzo_de_Medici.jpg)
+
+![Screenshot 2025-10-07 015930.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-10-07%20015930.png)
+
+![Screenshot 2026-02-09 174755.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-02-09%20174755.png)
+
+Aphrodite was so stunning that everyone in Olympus simply didn't know what to do with themselves. To ease quarrels, Zeus, who in some myths only performed this action after trying to 'get at her' himself(to put a potential rape nicely), married the beauty off to the ugliest guy in the city(to limit jealousy, in one version). The only problem here is that Aphrodite, the Goddess of love, she couldn't see past appearances, and was unable to fall for him. Heph's character wasn't exactly pretty though, in her defense. One of his main nicknames was Amphigyḗeis(Ἀμφιγυήεις), often translated as "the lame one," literally "lame on both sides." The Goddess had been escaping late at night with a more manly man, the god of war, Ares, whom captured her heart. She also had flings with Hermes, Dionysus, and Poseidon, as well as mortals like Anchises and Adonis. Aphrodite + Ares; love and war, it was a perfect union. She was so enthralled, that when he cheated on _her_, she cursed the woman it was with, Eos, to be infinitely hypnotized with an unquenchable desire for handsome young (mortal) men. Like other major deities, Eos was immortal, possessing eternal youth and immunity to disease. Keep your eyes open fellas, but be careful, she would abduct these mortal men like the male gods would to female mortals, and in the situation with one of her favorites, Tithonus, it wasn't pretty. A trojan prince with an onus for (redacted), Eos enjoyed his company so much that she bartered with Zeus for his immortal status. He granted this, but she forgot to ask for eternal youth, leading Tithonus to age without dying for an eternity. He became a withered, babbling, probably difficult to look at figure, which eventually led Eos to transform him into a grasshopper. That's what you get for sleeping with Aphrodite's man. Well, not her actual husband. When Hephaestus caught on to the fact that Ares and his wife were getting down, he placed a trap. "Helios, the all seeing sun, was high overhead while Ares and Aphrodite spent a frantic afternoon rolling around the grass playing “hide the war god’s sausage.”" (I stole that line from a  [2008 Wordpress blog](https://magisteria.wordpress.com/2008/05/01/hephaestus-net/)). With new intel, Heph anticipated that their next arrangement would dive into all sorts of fishy behavior, and so he forges an inescapable golden net to capture Ares doing the breaststroke. Off to the store to get groceries, he proclaimed(a trip to Lemnos), enticing Aphrodite to take advantage of the empty home. Brolic battlefield boy, like the watchtower he was, saw that main man was gone, and begins to make a b-line to her abode. The two begin their bad behavior, nakedly, and the unbreakable, nearly invisible net(expert craftsmanship), falls down ensnaring them to the mattress. Hephaestus then comes home, "Aha gotcha b!#$%", and then makes a cry to Zeus and all the Olympians.
+
+![Screenshot 2025-12-07 171849.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-07%20171849.png)
+
+"the clavicle (collarbone) sits horizontally across the top of the rib cage"
+
+![Pasted image 20260102033737.png](/img/user/images/Pasted%20image%2020260102033737.png)
+
+“Father Zeus and you other sacred gods who live forever, come here, so you can see something disgusting and ridiculous— Aphrodite, Zeus’s daughter, scorns me and lusts after Ares, the destroyer, because he’s beautiful, with healthy limbs, while I was born deformed. I’m not to blame. My parents are! I wish they’d never had me! See how these two have gone to my own bed and are lying there, having sex together, while I look on in pain. But I don’t think they wish to lie like this for very long, no matter how much they may be in love. They’ll both soon lose the urge to stay in bed. But this binding snare will confine them here, until her father gives back all those presents, courting gifts I gave him for that shameless bitch— a lovely daughter but a sex-crazed wife.” 
+
+The Goddesses were too modest to show up and witness what had been captured, live, but some of the male gods did, and they didn't seem to have much empathy for the poor guy. 
+
+“Uncontrollable laughter broke out among the blessed gods”  
+— _Odyssey_ § OD.8.326
+
+![Pasted image 20251203000440.png](/img/user/images/Pasted%20image%2020251203000440.png)
+
+"But lord Apollo, son of Zeus, questioned Hermes: “Hermes, son of Zeus, you messenger and giver of good things, how would you like to lie in bed by golden Aphrodite, even though a strong net tied you down?” The messenger god, killer of Argus, then said in his reply: ”Far-shooting lord Apollo, I wish there were three times as many nets, impossible to break, and all you gods were looking on, if I could like down there, alongside golden Aphrodite.
+At Hermes’s words, laughter arose from the immortal deities."
+
+You guys have to understand that Hephaestus had it really rough. There are two different tales which describe his origin. This abuse in the realm of relationship, both from Aphrodite, and his own carnality towards Athena, it all stems from childhood trauma. According to the popular Illiad of Homer, Hephaestus is the son of both Hera and Zeus. However, in the also popular Theogony of Hesiod, Hephaestus is a self-created product of Hera alone(sorta like the demiurge). In one myth, Hephaestus is born from Hera as a way for her to seek out revenge on Zeus for creating Athena without her(even though the ordeal was a total headache for him). However, in doing so, going forth to give birth out of self creation without her consort, the child came out misshapen and hideous. This adds another layer to the situation where he makes his move on Athena, as though it could have been the peak of a subtle aggression built from the fact that she was the reason he was born in the first place. Hephaestus was deformed and had numerous physical ailments, what the Greeks referred to as lameness. Disgusted with this child of hers, Hera threw it from the tops of Mount Olympus, where upon landing, in some myths, he gained these physical ailments, and in others, simply fell to the sea. From here, the baby was raised recued by sea goddesses Eurynome(perhaps a mermaid), and Thetis(the mother of Achilles), a sea nymph. It is a good thing they got ahold of Hephaestus when they did, because otherwise someone would have had a difficult time finding their fire.
+
+![Pasted image 20251215151913.png| 300](/img/user/images/Pasted%20image%2020251215151913.png)
+
+When the Olympians fought the Titans, Prometheus and his brother(Epithemius), both titans themselves, decided to fight for the opposing Olympic team. Assisting a victory against their own kind, the two brothers were gifted by Zeus with the responsibility of creating all living things. Epimethius was going to distribute the gifts of the gods amongst these creatures, and he did, providing the ability of flight to some, swimming to others, and dexterity on land to a few.
+
+![Pasted image 20251215173828.png| 600](/img/user/images/Pasted%20image%2020251215173828.png)
+
+While this was occurring, Prometheus was shaping the first human being .... out of mud. This sounds a lot like the Kabbalistic concept of the Golem, as-well as Genesis 2:4 "And the LORD God formed man of the dust of the ground, and breathed into his nostrils the breath of life; and man became a living soul." In the Quran man is fashioned from clay, as is the case with the Mesopotamian Epic of Gilgamesh, also the famous Sumerian Annunaki Enki story, and so too, the Egyptian creator god Khnum(known as the 'Divine Potter'). In Chinese mythology the goddess Nü-Wa created mankind from clay as-well. Fashioned after the gods, Zeus ordered that these mortal beings were to stay that way, to be subservient and dependent on them for protection, and provide worship toward the deities above(So God created man in his own image, in the image of God he created him - Genesis 1:27). 
+
+![Hero-4.webp](/img/user/images/Hero-4.webp)
+
+Prometheus didn't necessarily enjoy this limitation on his passion project, and he didn't seem to like Zeus's attitude towards humanity. In Hesiod's Theogony, we are given a story where Prometheus was tasked to help settle matters with some of the human's gifts in a tale called the "Trick at Mecone." Most perceive that humanity never had fire until the famous story where Prometheus stole it, but this tale seems to imply that humanity did indeed already have at-least some access to
+
+![Pasted image 20251215161027.png](/img/user/images/Pasted%20image%2020251215161027.png)
+
+Sacrificing and then splitting up an ox into two separate piles, Prometheus cleverly placed the worst of the animal's divisions, it's bones and whatnot, underneath a bunch of fat, what seemed to be concealing the best meat. In another pile, Prometheus places the succulent flesh and skin underneath what is the unappealing belly of the animal. When Zeus made his decision, selfishly picking the best pile for himself, of course, he fell right into the trap. This generated a tremendous amount of negative voltage in Zeus's thunderous thighs, and he decided to punish not only Prometheus, but also his creation. No more fire for the human beings, it was outlawed. They can't use it to cook food(like ox meat), keep warm at night, or see, etc. This was unacceptable to Pro- who fesses a denial of these orders. Scaling the walls of Olympus, he makes way towards the forge of Hephaestus(hasn't he had enough stolen from him </3). Do you have a light I can bum? Έχεις κάποιο φως που μπορώ να κάψω? Prometheus sparks his torch and then hid it in a stalk of fennel so that he could deliver these rays to his people in privacy. Acquiring conflagration gave them the power necessary to be able to dominate the natural order of things, being incredibly sufficient unto themselves. A warm night cozied up next to the fire was now possible, you could cook your food, but it also opened up avenues to other thing. Prometheus's fire spread like propane, acting as a major catalyst for rapid civilizational progression. Now was possible the forging of weapons for war. When Zeus looked down and saw what it was that had happened, he asked why the humans down in the town had fire?! Prometheus replied, "wouldn't you like to know weather boy," at which point, Zeus, he actually laughed a little bit, for just a second, but then he got back to feeling the sting of his pride and authority being undermined once again(by a Professional), deciding that he has had enough of this guy. Furiously, Zeus imposed a brutal punishment. From now on, for the rest of eternity, Pro (me) the us, was to be chained to a cliff. He had to commission the expert craftsman of the cosmos, Hephaestus, to bind him with not one, but _two chains_ to hold him there(or so I assume). 
+
+![jean-charles-frontier-vulcain-enchainant-promethee-painting.webp](/img/user/images/jean-charles-frontier-vulcain-enchainant-promethee-painting.webp)
+	_Vulcan Chaining Prometheus_, by Jean Charles Frontier, 1744, via the National School of Fine Arts, Paris
+
+![Pasted image 20260107065816.png](/img/user/images/Pasted%20image%2020260107065816.png)
+
+There are many who draw parallels between the story of Prometheus, and that of Azazel from the Book of Enoch. In the same way that the fire which Prometheus brought to man was able to give them the ability to craft weaponry and wage war..
+1. "And Azâzêl taught men to make swords, and knives, and shields, and breastplates, and made known to them the metals 〈of the earth〉 and the art of working them, and bracelets, and ornaments, and the use of antimony, and the beautifying of the eyelids, and all kinds of costly stones, and all colouring tinctures. 2. And there arose much godlessness, and they committed fornication, and they were led astray, and became corrupt in all their ways."
+
+And oh... don't forget, Azazel was also bound with (hand+foot), two chains... 
+
+from Enoch, Book 1, Chapter 10:4-7
+
+"And again the Lord said to Raphael: 'Bind Azâzêl hand and foot, and cast him into the darkness: and make an opening in the desert, which is in Dûdâêl, and cast him therein. And place upon him rough and jagged rocks, and cover him with darkness, and let him abide there for ever, and cover his face that he may not see light. And on the day of the great judgement he shall be cast into the fire. And heal the earth which the angels have corrupted, and proclaim the healing of the earth, that they may heal the plague, and that all the children of men may not perish through all the secret things that the Watchers have **disclosed** and have taught their sons."
+
+Now, yes, it is clear. I have purposefully selected this bible quote to fit my own narrative in a very specific way. The opening part of this chapter, 1-3 was just so dreary, I thought that maybe we could skip over it. 
+
+~~Then said the Most High, the Holy and Great One spake, and sent **Uriel** to the son of Lamech, and said to him: '〈Go to Noah〉 and tell him in my name "Hide thyself!" and reveal to him the end that is approaching: that the whole earth will be destroyed, and a deluge is about to come upon the whole earth, and will destroy all that is on it. And now instruct him that he may escape and his seed may be preserved for all the generations of the world.'~~
+
+![Pasted image 20251215164202.png](/img/user/images/Pasted%20image%2020251215164202.png)
+
+The mountain resort that Prometheus was given an all exclusive infinite stay at as part of his prize for choosing to be a decent a person, was, to put kindly, 1(morning) star. Every single day an eagle/roomcleaner, representative of Zeus, would come and bash their beak through his skin and tear apart their morning liver. The organ, able to self generate solutions to these intrusions quite quickly, was ripped to shreds on a routinely basis, in a manner akin to Frank Gallagher. For the Greeks, this was seen as the seat of the soul, of intelligence, and life itself. Due to the fact that his liver seems to heal itself every night, it becomes a learning example for the concept of immortality, a sick twist, an unlimited burden, where torment can become the only thing you know. 
+
+![Pasted image 20251215180253.png](/img/user/images/Pasted%20image%2020251215180253.png)
+
+The two brothers
+
+“Epimetheus”
+(Ἐπιμηθεύς, translit. _Epimētheús_)
+ἐπί- (_epí-_), meaning “after,”
+μηθ-/μαθ- (_mēth-_/_math-_)
+“afterthinking”
+
+“Prometheus” 
+προ- (_pro-_), meaning “before,”
+(Προμηθεύς, translit. _Promētheús_)
+μηθ-/μαθ- (_mēth-_/_math-_)
+“forethinking”
+
+![1280px-Thomas_Cole_-_Prometheus_Bound_-_Google_Art_Project.jpg](/img/user/images/1280px-Thomas_Cole_-_Prometheus_Bound_-_Google_Art_Project.jpg)
+_Prometheus Ьoᴜnd_, Ƅy Thomas Cole, 1847, ʋia the Fine Arts Museums of San Francisco
+
+![Pasted image 20251215231636.png](/img/user/images/Pasted%20image%2020251215231636.png)
+
+FROM [[The Inner Garden/Greenhouse/The Ra Contact & Harvest\|The Ra Contact & Harvest]]
+
+18.10
+Questioner
+I see. The entity Aleister Crowley wrote, “Do what thou wilt is the whole of the law.” He was obviously in understanding, to some extent, of the Law of One. Where is this entity now?
+
+Ra
+I am Ra. This entity is within your inner planes. This entity is in an healing process.
+
+18.11
+Questioner
+Did this entity, then, even though he intellectually understood the Law of One, misuse it and therefore have to go through this healing process?
+
+Ra
+I am Ra. This entity became, may we use the vibration sound complex, overstimulated with the true nature of things. This overstimulation resulted in behavior that was beyond the conscious control of the entity. The entity thus—in many attempts to go through the process of balancing, as we have described the various energy centers beginning with the red ray and moving upwards—became somewhat overly impressed, or caught up, in this process and became alienated from other-selves.
+
+This entity was positive. However, its journey was difficult due to the inability to use, synthesize, and harmonize the understandings of the desires of self so that it might have shared, in full compassion, with other-selves. This entity thus became very unhealthy, as you may call it, in a spiritual complex manner, and it is necessary for those with this type of distortion towards inner pain to be nurtured in the inner planes until such an entity is capable of viewing the experiences again with the lack of distortion towards pain.
+
+![dirck-van-baburen-prometheus-chained-vulcan-oil-painting.webp](/img/user/images/dirck-van-baburen-prometheus-chained-vulcan-oil-painting.webp)
+_Prometheus Being Chained Ƅy Vulcan_, 1623, Rijks Museum, Amsterdam
+
+![Pasted image 20251215153554.png](/img/user/images/Pasted%20image%2020251215153554.png)
