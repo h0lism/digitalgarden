@@ -1126,3 +1126,92 @@ _Prometheus Being Chained Ƅy Vulcan_, 1623, Rijks Museum, Amsterdam
 
 Prometheus and Epimetheus had two more brothers, one name Menoetius, and another, 
 # Atlas
+
+Just to clear the air, Atlas, the Titan who was tasked with holding up the heavens on his shoulders as punishment for a rebellion against the Olympians, has nothing to do with Atlantis. Plato still however chose to use this as name for the king of Waterworld in his _Critias_. The oldest of 5 pairs of twin brothers, who were all kings of different regions, born from Poseidon, "The eldest was Atlas, and him he made king of the centre island."
+
+I was however able to find a quote regarding a king that Plato never spoke of... 
+
+"When in 1873, I made the excavation of the ruins of Troy at Hissarlik and discovered in the Second City the famous 'Treasure of Priam,' I found among that treasure a peculiar bronze vase, of great size. Within it were several pieces of pottery, various small images of peculiar metal, coins of the same metal and objects made of fossilized bone. Some of these objects and the bronze vase were engraved with a sentence in Phoenician hieroglyphics. The sentence read 'From the King Chronos of Atlantis.'
+	HOW I FOUND THE LOST ATLANTIS, THE SOURCE OF ALL CIVILIZATION
+		by Dr. Paul Schliemann
+
+![Pasted image 20260218202321.png| 400](/img/user/images/Pasted%20image%2020260218202321.png)
+
+The 2023 vision which crept into the minds eye of the individual whom is typing this seemed to posture the location of their body onto a mountaintop region. Some sort of elevated position. From this spot, what was observed down below was a great fire, the burning and collapse of something. I had somehow found myself separate from the whole occasion. There was an immense feeling of guilt and shame, as though I had done something wrong. The fact that I was not in the chaos below was because there was some sort of insider information that had allowed for me to escape the fate that lied waiting for the rest in great turbulence. There was also consideration that maybe I just felt a lot of sadness for what was occurring and labelled these emotions as my own guilt, creating a narrative from there. I let go of the less than favorable emotions experienced surrounding the catastrophe of this evening. If something had happened, maybe it was a legitimate tragedy, and worst case scenario, maybe I had something to do with it, but it was in the past, and here we are I guess in the modern day making amends. 
+
+Didn't know what to think of it much back then. At one point in the meditation, after being guilted for crimes against humanity, it said something along the lines of "You were the Christ." My brain took that and ran with it, conjuring up these sensation like I literally had gaps in the center of my hands where the nails would be. Was I Jesus, or tapping into Jesus's memory and being given a first person hand hole replay? Part of me thinks it would make sense for Jesus's life to be a grand cosmic reparation for deleting Atlantis. You break it you fix it. The actual message was likely referring to how before we were all born, we came from that same home, that same 'source' of love that Christ stood as a symbol and embodiment of. We all were 'Christ,' but have forgotten. It is a higher dimensional field of unlimited understanding, compassion, love, etc. Even if I destroyed Atlantis... to touch this realm for just one moment... it is now forgiven. We got that quantumly resolved now, go be that Christ. If we view things from a non-dual frame - yes, I legitimately was Jesus, and so were you, if there was one, and... if all is one, then we all were, and we all are, still, today, right now. 
+
+I decided to go through the Akashic Records retrieval once again this October. Starting the meditation, one of the first things heard was "You are now going before the Angel of Death." It sounded, the way things were framed, that I was being given the opportunity to choose whether or not to die right now and ascend to higher realities, or to continue living and ascend here. Holy shit. What kind of suicide spirituality have I just walked into. Now I'm feeling like this is a battle for my life. On one hand, it was interesting, because by proclaiming that you don't want to disappear away in the ether, all the different parts of yourself that are maybe a little resistant to the day to day are suddenly revitalized with a piercing awareness - they ultimately wouldn't want things to actually end. It takes out some of the dramatics. Psychologically, I hypothesize it could operate as somewhat of a juxtaposition experience [[The Inner Garden/Greenhouse/TRP (Tilling the Soil)\|TRP (Tilling the Soil)]]. This was intense, an all or nothing meditation with 432hz shamanic flute tones in the background to narrate things. Am I being initiated into Heaven's Gate? (founded in 1974)
+
+![Pasted image 20251220033209.png](/img/user/images/Pasted%20image%2020251220033209.png)
+
+The masterclass progresses, and eventually we take a little journey into the past through the Akashic, venturing to Atlantis. I had a vision where I was in this room that was very powerful. It housed a generator of some sort, nuclear perhaps. It was glowing, and could have been the center of the city. There was this sense that I was somehow a 'higher up' here in this society, given the access to this room. Maybe an engineer. The next scene that came up for me was related to... what I believe to be my own wrongdoings. Maybe I was just observing some scenario that took place with others, but it was from the first person. Overwhelmed with temptation, it seemed that I had reached out and grabbed something that wasn't supposed to be messed with. Not sure what exactly it was that I did, perhaps this was all some metaphorical scenario, but someone reached in and touched the center of this thing. 
+
+![Pasted image 20251220043647.png](/img/user/images/Pasted%20image%2020251220043647.png)
+
+The feeling that came over me at this point was that this had something to do with the fall of Atlantis. It was a full circle back to the original vision from years prior that inspired the idea that maybe I could have contributed to its downfall. Even further, now I remember having gone through this masterclass a few other times. This wasn't just the second rodeo, but was maybe a third, fourth (or fifth). Without any recollection of what was experienced during these, I do remember joking with someone about one particular experience. "Yeah I was the guy that caused the fall of Atlantis, sort of a troublemaker." The stuff that was coming up was so profoundly ridiculous, that it felt egotistical, and to avoid entertaining delusions, I just didn't take it seriously. "You were the King of Atlantis but failed and ruined everything." But what if I was, maybe not THE person to cause the fall of Atlantis, but did something that contributed to it? You hear that they fell due to greed and whatnot, technology becoming too advanced, even perhaps something to do with Ai. The memory was a perfect example of that uncontrollable greed emotion mixed with some sort of advanced technology. 
+
+![IMG_4010.jpg| 500](/img/user/images/IMG_4010.jpg)
+
+So ultimately, what I came to... was that...
+My own moralistic failings helped in some way to contribute to the collapse of that prior civilization. 
+A burning catastrophe. 
+Can you believe that?
+All these lifetimes, 
+are they perhaps a reparation for my past ill-deeds? 
+Or was I simply observing the elements which contributed to the fall of that society, 
+nothing to do with me?
+
+So.... when it comes to the Atlas 3i thing ....
+Am I Atlas ... opening his third eye? 
+Probably not.
+Could I have been opening my 3rd eye... to Atlantis?
+That's a possibility. 
+
+Less than 24 hours proceeding, I went outside and found a double rainbow(the second one was a bit faint). Briefly looking out the window on a trip to the bathroom, there was a bright orange sky. Going out to observe the beauty in the air, I looked to the right, and boom... there it was. Going back outside just 3 minutes later, it was all gone, present for just a brief period - barely caught. 
+
+![IMG_8024.gif](/img/user/images/IMG_8024.gif)
+
+My mother, perhaps Cleopatra, had a past life memory that she shared with me a while back. She used to be a health nut, vegan, living out in the forest with my brother when they were younger. At some point in time she had what was claimed to be a 'past life memory.' This is interesting in comparison to my own experiences with the masterclass. It was extremely similar to the story of Noah's ark. She was leading a trail of animals away from some sort of burning area. There wasn't a perfect 2 of each animal, there weren't much details, but all she remembered was leading a pack away from the destruction.  
+
+![Screenshot 2025-11-06 144922.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-11-06%20144922.png)
+
+Looking through Manly P Hall's work titled "Atlantis and the Gods of Antiquity," I found an interesting quote that seemed to connect dots from both her memory and my own. Look, this is in no way some sort of scientific analysis of the past, I am not trying to claim any of this is true or not, but it's my own adventure down the storyline. I fully admit to being a pseudoscientific fraud with absolutely no base to my claims. First Manly P Hall quotes a bit from Helena Blavatsky, who summarizes the events of Atlantis as 
+
+"the Atlantis-race became a nation of _wicked_ magicians. In consequence of this, war was declared, the story of which would be too long to narrate; its substance may be found in the disfigured allegories of the race of Cain, the giants, and that of Noah and his righteous family."
+
+So essentially, she is claiming that this is where the story of Noah's Ark all came from. Interesting. 
+Manly then goes on to state
+
+"Before Atlantis sank, its spiritually illumined Initiates, who realized that their land was doomed because it had departed from the Path of Light, withdrew from the ill-fated continent. Carrying with them the sacred and secret doctrine, these Atlanteans established themselves in Egypt, where they became its first 'divine' rulers. Nearly all the great cosmologic myths forming the foundation of the various sacred books of the world are based upon the Atlantean Mystery rituals."
+
+So maybe being on a mountaintop looking over the destruction was actually because I could have been an old "spiritual initiate" and saw that this end was coming, along with a bunch of others. Perhaps my mother was in charge of escorting the animals. If we consider the idea that, the souls which lived through this period of Atlantis may still be alive today, all of us reincarnations from the past, could that not explain why we are, as a society, beginning to re-create a set of similar conditions to the past? Is that not how trauma works? Technology and being insane is what destroyed them.
+
+![Pasted image 20251225012459.png](/img/user/images/Pasted%20image%2020251225012459.png)
+
+"From the Atlanteans the world has received not only the heritage of arts and crafts, philosophies and sciences, ethics and religions, but also _the heritage of hate, strife, and perversion._ The Atlanteans instigated the first war; and it has been said that all subsequent wars were fought in a fruitless effort to justify the first one and right the wrong which it caused."
+	Atlantis and the Gods of Antiquity, Page 35
+
+![a16.webp](/img/user/images/a16.webp)
+
+![Pasted image 20260102030858.png](/img/user/images/Pasted%20image%2020260102030858.png)
+Ah fuck...
+1,198 deaths...
+
+Exactly 110 years later, 40,177 days from the sinking of the Lusitania, Atlas 3i enters the Solar System... 
+
+![Pasted image 20260218180109.png](/img/user/images/Pasted%20image%2020260218180109.png)
+
+![Pasted image 20260218235914.png](/img/user/images/Pasted%20image%2020260218235914.png)
+
+![Pasted image 20260102032618.png](/img/user/images/Pasted%20image%2020260102032618.png)
+
+As I unlocked this oceanic grief, becoming aware of how my actions in the past may have impacted, quite literally, through the impact of a powerful explosive, the lives of so many... it was difficult to look at the man in the mirror that night. How could I have done that? This emotional current continued to wade into the next evening, as I went and observed how, even just the awareness of this new part of myself, as a deep water terrorist, caused for a ripple effect of aquatic mischief to be sent out into the field.
+
+![IMG_8723.jpg| 300](/img/user/images/IMG_8723.jpg)
+
+![IMG_4992.jpg| 300](/img/user/images/IMG_4992.jpg)
+
+![IMG_4993 (1).jpg| 300](/img/user/images/IMG_4993%20(1).jpg)
+
+![Pasted image 20260219000532.png](/img/user/images/Pasted%20image%2020260219000532.png)
