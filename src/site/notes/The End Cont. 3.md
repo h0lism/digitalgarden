@@ -1210,8 +1210,16 @@ As I unlocked this oceanic grief, becoming aware of how my actions in the past m
 
 ![IMG_8723.jpg| 300](/img/user/images/IMG_8723.jpg)
 
+“DADZ LOVE” serves as the 13th track on Justin Bieber's seventh studio album, SWAG. 
+
+It features the artist Lil B, who is one of the individuals on this planet holding a very high level of swag. I wrote an extensive report on this for a class 9 years ago.
+https://tan-lilah-17.tiiny.site/
+
+
 ![IMG_4992.jpg| 300](/img/user/images/IMG_4992.jpg)
 
 ![IMG_4993 (1).jpg| 300](/img/user/images/IMG_4993%20(1).jpg)
 
 ![Pasted image 20260219000532.png](/img/user/images/Pasted%20image%2020260219000532.png)
+
+
