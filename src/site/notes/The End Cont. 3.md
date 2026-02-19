@@ -375,6 +375,38 @@ This secret thirteenth Zodiac is present in the Jewish religion, apparent in the
 
 ![Pasted image 20251225014818.png](/img/user/images/Pasted%20image%2020251225014818.png)
 
+Supposedly, Nostradamus used 13 signs in his astrology. If you didn't know who that was, he was a pretty impressive guy. Able to have visions and see into the future, Nostradamus began making prophecies in 1547, and he first published his visions in a book entitled Centuries on May 4th, 1555.
+
+2025-1555=470 years. 
+
+So exactly 470 years from the date that Nostradamus published his first book, is when [[𓋹 The End 𓆙\|𓋹 The End 𓆙]] started. 
+
+Thy late arrival, César Nostradamus my son, has made me bestow much time, through nightly vigils, to leave you in writing a memorial to refer to, after the corporal extinction of your progenitor, that might serve for the common profit of mankind, out of what the Divine Being has permitted me to learn from the revolution of the stars. 
+	"Letter to Cesar," opening preface to Michel de Nostredame's first publication 
+		'Les Propheties,' May 4, 1555
+
+Some notably apocalyptic selections 
+### II 62
+Mabus puis tost alors mourra viendra,  
+De gens & bestes vne horrible deffaite,  
+Puis tout à coup la vengeance on verra,  
+Cent, main, soif, faim, quand courra la comette.  
+	Mabus then will soon die, there will come  
+	Of people and beasts a horrible rout:  
+	Then suddenly one will see vengeance,  
+	Hundred, hand, thirst, hunger when the comet will run.
+### X 50
+La Meuse au iour terre de Luxembourg,  
+Descouurira Saturne & trois en lurne.  
+Montagne & plaine, ville, cité & bourg,  
+Lorrain deluge, trahison par grand hurne.  
+	The Meuse by day in the land of Luxembourg,  
+	It will find Saturn and three in the urn:  
+	Mountain and plain, town, city and borough,  
+	Flood in Lorraine, betrayed by the great urn.
+
+![Pasted image 20260107051302.png| 300](/img/user/images/Pasted%20image%2020260107051302.png)
+
 Over time our north axis will no longer be aimed towards Polaris, but instead, will leave us without a ‘North Star’ until Earth’s north axis makes its way over to Vega.
 
 ![Pasted image 20251230161151.png](/img/user/images/Pasted%20image%2020251230161151.png)
@@ -1202,6 +1234,8 @@ Exactly 110 years later, 40,177 days from the sinking of the Lusitania, Atlas 3i
 
 ![Pasted image 20260218180109.png](/img/user/images/Pasted%20image%2020260218180109.png)
 
+![Pasted image 20260219000532.png](/img/user/images/Pasted%20image%2020260219000532.png)
+
 ![Pasted image 20260218235914.png](/img/user/images/Pasted%20image%2020260218235914.png)
 
 ![Pasted image 20260102032618.png](/img/user/images/Pasted%20image%2020260102032618.png)
@@ -1220,6 +1254,146 @@ https://tan-lilah-17.tiiny.site/
 
 ![IMG_4993 (1).jpg| 300](/img/user/images/IMG_4993%20(1).jpg)
 
-![Pasted image 20260219000532.png](/img/user/images/Pasted%20image%2020260219000532.png)
+![Pasted image 20251124175215.png](/img/user/images/Pasted%20image%2020251124175215.png)
 
+![Pasted image 20251124175200.png](/img/user/images/Pasted%20image%2020251124175200.png)
+
+![-1549659056391718789.jpg](/img/user/images/-1549659056391718789.jpg)
+
+![Pasted image 20251125154515.png](/img/user/images/Pasted%20image%2020251125154515.png)
+
+There seems to be an inspiration from these works of Plato that showed up in the Yu-Gi-Oh series as-well. The characters from his work on Atlantis all have equivalents - Timaeus, Critias, and instead of Hermocrates, it is Hermos. They are dragon-knights that have two forms. Firstly, their human knightly form, and then, of course, they also hold the capacity to amp things up and turn into dragons. They originally were minding their own business in the Spirit world... that is.... until Atlantis became corrupted by the Orichalos. 
+
+![Pasted image 20251124174805.png](/img/user/images/Pasted%20image%2020251124174805.png)
+
+It starts out with a recapping of the previous seasons ending, Yugi Mutou emerging victorious in a tournament for the Battle City Championship Crown. Due to his successful endeavors, as prize, Yugi was given the rarest card from his opponents deck. This happened to be "The Winged Dragon of Ra," which gave him the full set of all 3 of the Egyptian God cards(in addition to Slifer the Sky Dragon and Obelisk the Tormentor). 
+
+![Pasted image 20251125154428.png](/img/user/images/Pasted%20image%2020251125154428.png)
+
+At first he is not sure what to do with these, wondering how to use them to unlock the hidden powers of the Phaoroh (he is possessed by the spirit of an ancient Egyptian Pharaoh named Atem, which happens after Yugi solves the Millennium Puzzle in the first episode, creating a dual personality. Yami Yugi (Dark Yugi) takes over when Yugi is in danger or needs help with duels). 
+
+Next we are given a brief cutscene of a man entering into the depths of the ocean, being strongly advised to 
+"Stop your descent,
+Repeat,
+Stop your descent."
+	"Absolutely not. We may be on the verge of the greatest discovery man has ever known. We must continue"
+He is informed that the water pressure at that depth is too dangerous, to which he replies
+	"This is my life's work, and I've come too far to turn back now. Over and out."
+What is seen down there throws him into disbelief...
+
+![IMG_8709.jpg| 400](/img/user/images/IMG_8709.jpg)
+
+Back to the civilized world, a man on the TV gives report that 
+"Renowned scientist Arthur Hawkins has uncovered evidence of a 10,000-year-old lost civilization in the North Atlantic Ocean. These ruins are the oldest and best preserved man-made structures ever discovered."
+
+Next we see two clumsy young duelists run into each other on the street, underneath the news reports flashing across billboards, recognizing one other immediately. Word must have gotten around town about Yugi's accomplishments. 
+"What brings you to town?" 
+"Uhhh the cheese festival." 
+In actuality
+they were both on their way to challenge Yugi for his Egyptian God cards,
+hiding true intentions. 
+"I'm just a fan of cheddar."
+
+The quirky pair start racing one another down the sidewalk to go and try their luck for these Egyptian cards. Suddenly a mysterious man in a black cape appears, and the two whimsical characters run into someone on the sidewalk, again, but this time... it was together.   
+
+![Pasted image 20260107050624.png| 300](/img/user/images/Pasted%20image%2020260107050624.png)
+
+![Pasted image 20260107051018.png| 300](/img/user/images/Pasted%20image%2020260107051018.png)
+
+![Pasted image 20260102020348.png](/img/user/images/Pasted%20image%2020260102020348.png)
+
+Rex Raptor: Ever hear of stepping aside?!
+Weevil Underwood: Yeah! What's your problem?
+Gurimo: The problem should be yours when I strip you two fools of your souls.
+Rex Raptor: Does the Grim Reaper know you've raided his wardrobe?
+Gurimo: [his eyes glow green, explaining the Orichalcos] 
+
+![Pasted image 20260102021331.png| 300](/img/user/images/Pasted%20image%2020260102021331.png)
+"I bid farewell to your soul"
+
+Next we see Yugi getting taken over by Atem while still in school, helping him to skip algebra class. He had come to a sudden insight. Wait! The museum... The deity begins to navigate his occupied vessel there, the completed trio calling him to the location. Atem believed it to hold the secret to unlocking his lost memories, and powers once possessed. Mysteries of the days as pharaoh will soon be clear. Before reaching the destination, there is a brief cutscene of a another magician casting some sort of black magic spell before the focus comes onto what YuGi was trekking towards.
+
+"Great deities of domination, I call upon thee. 
+Use the Pharoah's force to penetrate the dominion of the beasts..."
+
+![Dartz28Yu-Gi-Oh_Ep_178%29.webp](/img/user/images/Dartz28Yu-Gi-Oh_Ep_178%2529.webp)
+
+![Pasted image 20260102030303.png](/img/user/images/Pasted%20image%2020260102030303.png)
+
+![Stelae_of_Ankh-af-na-khonsu 1.jpg](/img/user/images/Stelae_of_Ankh-af-na-khonsu%201.jpg)
+The famous Stele of Ankh-ef-en-Khonsu associated with Aleister
+
+![Screenshot 2026-01-02 033101.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-01-02%20033101.png)
+
+Yugi proceeds to get electrocuted and monsters appear all over the city
+
+![Pasted image 20260102034503.png](/img/user/images/Pasted%20image%2020260102034503.png)
+
+Running out of the museum, the two who 'bid farewell' to their souls earlier were found by Yugi and his team
+
+![Pasted image 20260219043417.png| 500](/img/user/images/Pasted%20image%2020260219043417.png)
+
+![Pasted image 20260219043535.png| 500](/img/user/images/Pasted%20image%2020260219043535.png)
+
+Later Yugi's 3 Egyptian cards are stolen by the mysterious man in a black cape, along with two of his fellow henchman(one named Alister). After meeting one another on a rooftop, they enter into battle, where we see a unique card that is played, 
+
+![IMG_8713.jpg](/img/user/images/IMG_8713.jpg)
+	(you can steal your opponents soul)
+
+![Pasted image 20260219032129.png](/img/user/images/Pasted%20image%2020260219032129.png)
+	Aleister's Thelema hexagram
+
+![orichalos.jpg](/img/user/images/orichalos.jpg)
+	The Seal of Orichalcos, with Enochain runes surrounding it saying "Oreichalcos" twice.
+		In the Japanese anime, the text on all "Orichalcos" cards are written entirely in Enochian , except for "Orichalcos Sword of Sealing" 
+
+There is this guy named Dartz...
+He's a bit of a trouble maker. 
+Quite the villain. 
+Older than the Atem-Phaoroh that was locked away in Yugi's puzzle that grants him his abilities.
+This ancient god is dated to be 3,000 years old in the original, and 5,000 years in the English dub. 
+Dartz on the other hand...
+he's been roaming the Earth for 10,000 years.
+Name another villain that has had such of a head start. 
+Centuries to perfect an evil agenda...
+
+![Pasted image 20251125153702.png](/img/user/images/Pasted%20image%2020251125153702.png)
+
+![Pasted image 20251125153750.png](/img/user/images/Pasted%20image%2020251125153750.png)
+
+![Pasted image 20251126162223.png](/img/user/images/Pasted%20image%2020251126162223.png)
+
+![Pasted image 20251125153611.png](/img/user/images/Pasted%20image%2020251125153611.png)
+
+![Pasted image 20251125175828.png](/img/user/images/Pasted%20image%2020251125175828.png)
+
+Dartz comes from a dark background. When we look at his origin story, we can see why he had this motive for world domination. He inherited the throne of Atlantis, the great lost city, from his father Iron Heart. One day, Atlantis had a hailstorm of ‘Orichalcos’ stones, which corrupted the city as they fed on their own greed. Dartz even watches his own wife turn into a monster in front of his own eyes. In turmoil, he turned to the Orichalcos for answers, believing it held the power to cleanse the world of its growing sin. The stone’s dark will consumed him, convincing him that humanity was beyond redemption. From that moment, Dartz devoted himself to awakening the Great Leviathan, intending to purge the Earth and build a new, perfect world from its ashes.
+
+“The people of Atlantis were evil, and I have been chosen to wipe them out and start over again”
+
+![Pasted image 20251126162105.png](/img/user/images/Pasted%20image%2020251126162105.png)
+
+Being the chosen host for the Orichalcos, he was granted great power(and no responsibility). There were some powerful  perks to the position. Dartz was gifted an army by the Orichalcos, souls that could spawn and despawn at his will. He had the ability brainwash others and manipulate their bending to his will. Dartz could also alter the weather and conjure storms, having powers over the elements themselves. In addition, Dartz was able to communicate with people telepathically, even showing visions of the past. Conjure swords out of thin air? No problem. The list goes on and on, he pretty much had the world at his fingertips, it seemed he could do anything. All of these abilities were incredibly powerful, sourced by the Orichalcos. 
+
+In the "world of Atlantis" (from Plato's narrative), orichalcum is a precious reddish metal, second only to gold. It was found and mined in many parts of this forgotten civilization during ancient times. The name orichalucum derives from the Greek word oreikhalkos, meaning "mountain copper" or "copper mountain."
+
+In his accounts, Plato wrote that the three outer walls of the Temple to Poseidon and Cleito (in Atlantis) were encased, respectively, with brass, tin, and a third material, which encompassed the entirety of the citadel, "flashed with the red light of orichalcum." There is claim that the floors of this temple, its pillars and interior walls, were all completely covered by the material. The roof was a combination of gold, silver, and orichalcum. The center of the establishment hailed a pillar of orichalcum, on which, the laws of Poseidon, and the records of the first son-princes of Poseidon, were all inscribed. For centuries, still, today, experts have debated the metal’s composition and origin. Some scholars suggest that orichalcum is a brass-like alloy, but ultimately, nobody really knows. 
+
+The substance is mentioned briefly in just a few other places in history. From the works of Joseph Flavius, in _The Antiquities of the Jews_, section 8.88 states, referring to King Solomon and the construction of his temple... 
+
+"He also made a brazen altar, whose length was twenty cubits, and its breadth the same, and its height ten, for the burnt-offerings. He also made all its vessels of brass, the pots, and the shovels, and the basons; and besides these, the snuffers and the tongs, and all its other vessels, he made of brass, and such brass as was in splendor and beauty like gold." 
+	https://lexundria.com/j_aj/8.88/wst
+
+"in splendor and beauty like gold"
+(_en aiglē kai kallei chrysō_)
+
+![Pasted image 20251125075758.png](/img/user/images/Pasted%20image%2020251125075758.png)
+
+ It also believe that in Vergil's _Aeneid_, it was mentioned that "Turnus drew a breastplate, stiff with gold and pale bronze," which people consider to be a reference to orichalcum. 
+
+The area of Bulala is located on the East side of the ancient Greek town of Gela, in Sicily, Italy, on the left bank of the homonymous river(flowing along the wide fertile plain). This is the location where, in 2014, we finally struck orichalcum - found by a local diver Francesco Cassarino. His endeavors resulted in the discovery of 39 bars of ore, which, perceived to be the legendary material, were found under the sea. Oooooohhhhhhh.... are you ready kids? Who found 47 ingots of orichalcum during dives and further surveys in that same location just two years later? (Soprintendenza del Mare research team). Exactly 47 bars were found, supposedly just somewhere around 10 meters from the original location, of what is mostly a copper and zinc mixture, along with some other elements intertwined, a scattering of nickel, lead and iron. This was a doubling of the material available for them to research and analyze, to come to a conclusion about what it really was. The analytical results of the chemometrics obtained on both sets confirms their similarity and is reason they are considered to be of potentially the same naval load. It was all discovered around a ship that had sunk probably somewhere around 2,600 years ago, what they think to be perhaps resultant of a storm that caught sailors in southern Sicily sideways while they were sliding into the city, at-least, says Sebastiano Tusa, archaeologist from Sicily's Superintendency of the sea. Two more archaic shipwrecks have been found in the same area, but this was the biggest Orichalcum haul ever discovered, and final, definitive evidence to many...... that Orichalcum was real. Others however, claim there is zero evidence that these ingots would have been identified as orichalcum by their producers or consumers(no red glow, its just brass, bro).
+
+![Pasted image 20251124180046.png](/img/user/images/Pasted%20image%2020251124180046.png)
+
+![Pasted image 20260102020844.png](/img/user/images/Pasted%20image%2020260102020844.png)
 
