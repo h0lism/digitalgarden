@@ -767,3 +767,24 @@ When Xkeban died, nobody notices for a while until a sweet, delicious perfume fi
 
 
 ![Pasted image 20260107044231.png](/img/user/images/Pasted%20image%2020260107044231.png)
+
+
+
+![image-asset 1.webp](/img/user/images/image-asset%201.webp)
+	93 minutes 
+
+It all begins with a criminal named Mulch Diggums, a dwarf that is not so small...
+
+
+
+![51Eha76Zw9L._AC_UF1000,1000_QL80_ 1.jpg| 300](/img/user/images/51Eha76Zw9L._AC_UF1000,1000_QL80_%201.jpg)
+
+![Pasted image 20260316062118.png](/img/user/images/Pasted%20image%2020260316062118.png)
+
+![Pasted image 20260316054649.png| 700](/img/user/images/Pasted%20image%2020260316054649.png)
+
+"On Vatnajökull, a glacier in Iceland, Artemis unveils the Ice Cube, his invention to stop global warming (by shooting reflective nano wafers into the clouds, and having them rain down with the snow, and when they land, they reflect the sun's light and insulate the icebergs)"
+
+![Pasted image 20260316061250.png](/img/user/images/Pasted%20image%2020260316061250.png)
+
+![Pasted image 20260316063232.png](/img/user/images/Pasted%20image%2020260316063232.png)
