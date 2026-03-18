@@ -769,13 +769,51 @@ When Xkeban died, nobody notices for a while until a sweet, delicious perfume fi
 ![Pasted image 20260107044231.png](/img/user/images/Pasted%20image%2020260107044231.png)
 
 
-
 ![image-asset 1.webp](/img/user/images/image-asset%201.webp)
 	93 minutes 
 
 It all begins with a criminal named Mulch Diggums, a dwarf that is not so small...
+A kleptomaniac with a genius for breaking and entering, a lifelong rivalry with the law, and a surprising habit of ending up on the right side of history. There is an advantage that he has which makes this thievery almost something he was born for. Mulch's body is essentially a biological tunneling machine, which gives him the ability to move through the dirt with ease.  
 
+I introduce to you Commander Julius Root, leader of the LEPrecon forces 
 
+![Artemis-fowl-judi-dench-ew.webp](/img/user/images/Artemis-fowl-judi-dench-ew.webp)
+
+![7dbae2cb1be00c4fe156f732da21c194.jpg](/img/user/images/7dbae2cb1be00c4fe156f732da21c194.jpg)
+
+The elementals are supposed to interact with the material world but they are never fully consolidated within it. They are deemed essential to the propagation of nature, but their presence remains supernatural and beyond the bounds of relativistic inquiry, remaining hidden. 
+
+Paracelsus was a big name in the hermetic world and revolutionized the combination of the field with medicine. He also talked about dwarves 
+
+“With respect to the consciousness of the ELEMENTALS OR NATURE SPIRITS, it is quite correct to assume that they have what may be called a fourth dimensional consciousness, for in addition to the height, width, and depth which are the dimensions of space in the physical world, there is what we may call “thoroughness” in the ethers. With the etheric sight you may look into a mountain and if you have an etheric body such as the nature spirits possess, you may also walk through the hardest granite rock. It will offer no more obstruction than the air does to our progress here. But even among nature spirits there are different entities and a corresponding variation of consciousness. The bodies of the gnomes are made of the chemical ether principally and therefore they are of the earth earthy; that is, one never sees them fly about as do the sylphs. They can be burned in fire. They also grow old in a manner not so greatly different from human beings.
+
+Paracelsus's gnome is recognized to have derived from the German miners' legend about Bergmännlein or dæmon metallicus, the "metallurgical or mineralogical demon."
+Also known by the term virunculus montanos (literal Latinization of Bergmännlein = "mountain manikin") In folklore, these small men would help miners to find their way to silver ore. In the Harz area, it is a Bergmönch or "mountain monk" who uses their so-called "mining light" (Grubenlicht or Geleucht) to guide miners to their quarry, or to their exit.
+
+![Pasted image 20260318051950.png](/img/user/images/Pasted%20image%2020260318051950.png)
+
+Writing by the priest Hardanus Hake in his _Bergchronik_ (1583) records that when the Walkenried Abbey operated the mining operation at Wildemann, it was actually believed to have been built and run by the Daemon Metallicus or Bergleute, Bergmännlein (i.e. gnomes) that assumed the form of monks. In numerous regions around the world there are different reports of tapping and knocks as coming from some type of being in the underground, either as an indicator of ore, or as a warning not to go a certain way. In Swiss folklore, gnomes are said to have caused the landslide that destroyed the village of Plurs in 1618. The villagers had become wealthy from a local gold mine created by the gnomes, who supposedly poured liquid gold down into a vein for the benefit of humans. They, with this newfound prosperity, found themselves corrupted, which greatly offended the gnomes, propelling responsive action. Creating a landslide from the mountain, they erased the village from the map, burying the entirety of Plurs and killing its entire estimated population of 1,000 to 2,500 people. 
+
+![Pasted image 20260318050723.png](/img/user/images/Pasted%20image%2020260318050723.png)
+
+Paracelsus wrote about creating a homunculus, which is Latin for "little man" - through an alchemical process involving human semen sealed in a flask and incubated in horse dung for 40 days. The result, he claimed, would be a tiny living human being that could then be nourished with human blood to grow and develop. This is the deeper theory which ultimately exists behind the Charlie and the Chocolate Factory movies. Willy Wonka is a mad man who has gone through this process hundreds and hundreds of times, establishing himself a small army. The children he brings to the 'Chocolate Factory,' ultimately begin to fall off one by one, as blood sacrifices to the underground army he grooms for himself. Unknowingly, behind the doors of society, lies an artificially created populace of small soldiers he equips to do his bidding, and make chocolate that others cannot put down. 
+
+![Pasted image 20260317022103.png](/img/user/images/Pasted%20image%2020260317022103.png)
+
+![Pasted image 20260317015112.png](/img/user/images/Pasted%20image%2020260317015112.png)
+
+![Pasted image 20260317014937.png](/img/user/images/Pasted%20image%2020260317014937.png)
+
+![Pasted image 20260317021559.png](/img/user/images/Pasted%20image%2020260317021559.png)
+
+![Olaus(1555)-Hist_septentrionalibus-p210-demons-in-mines.jpg](/img/user/images/Olaus(1555)-Hist_septentrionalibus-p210-demons-in-mines.jpg)
+Historia de Gentibus Septentrionalibus (1555)
+	has a chapter "demons in the mines"
+
+![Pasted image 20260318054021.png](/img/user/images/Pasted%20image%2020260318054021.png)
+![Pasted image 20260318043606.png](/img/user/images/Pasted%20image%2020260318043606.png)
+	_Anthropodemus Plutonicus_ (1666)
+ Devotes a chapter to the beings he calls _Bergmännrigen_ or _Erdleute_ "earth people
 
 ![51Eha76Zw9L._AC_UF1000,1000_QL80_ 1.jpg| 300](/img/user/images/51Eha76Zw9L._AC_UF1000,1000_QL80_%201.jpg)
 
@@ -787,4 +825,128 @@ It all begins with a criminal named Mulch Diggums, a dwarf that is not so small.
 
 ![Pasted image 20260316061250.png](/img/user/images/Pasted%20image%2020260316061250.png)
 
+He develops multiple personalities and dissociates between them 
+
+"As a result, Artemis begins to arrange his life around the number five"
+
+_Artemis: "I thought I knew everything. Now I think I know too much. This new knowledge, these compulsions are taking me over. Soon they will drive my very speech patterns."_
+
 ![Pasted image 20260316063232.png](/img/user/images/Pasted%20image%2020260316063232.png)
+
+In the last section, [[The End Cont. 2\|The End Cont. 2]], we ended with the potentiality of the moon having an asteroid on route towards it(@~4%), which may necessitate the use of nuclear weapons. In my final learnings here on the vesica piscis in relation to dreams, I came across this quote. 
+
+I was called to the window to watch a phenomenon in the sky. As I watched the moon I saw another body emerge from behind it—like a second moon. Suddenly the second body began to explode in spectacular colors that looked like an H-bomb explosion. I thought we were watching the birth of a new sun. All at once, during another explosive event, a piece of the new body was thrown into space and landed in our apartment. We ran out as fast as we could, being afraid that it might be radioactive.
+	Edward Edinger, Anatomy of the Psyche: Alchemical Symbolism in Psychotherapy, 1985
+
+![Pasted image 20260302064543.png](/img/user/images/Pasted%20image%2020260302064543.png)
+
+This ended up not being a quote directly from one of Jung's dream analysis patients, but it is the product of one of his protege's. Edinger was a Jungian analyst and psychiatrist who spent his career unpacking and clarifying Jung's ideas for the rest of us. He helped found major Jung institutes, was president of the one in New York for 11 years, and wrote some of the key books that translate it into language modern people can actually use. The asteroid 2024 YR4, if it were to collide with the moon, or face preliminary atomic annihilation, could certainly send lunar debris hurtling towards Earth in a manner similar to the dream analyzed in this book. 
+
+Now, I do want to get this out of my system, an idea as to why the moon being destroyed could actually be a good thing. There is a continuous theme throughout consciousness researcher Frederick Dodson's writings: that there are many sci-fi shows which channel different elements of our reality to us, unknowingly, through the intuition of the writers engaging with their imagination. The stories they craft, what is coming out from their natural creativity, is bits and pieces of truth that relay to us the bigger picture behind the scenes. Little clues hypothetically being plopped into the que list of their minds, "oh what a neat idea I just had," without awareness that this is perhaps coming in from a craftsman operating behind the scenes. This craftsman may drop a puzzle piece here through this work, and another there in this other artists vision. For an active observer, they could go and follow the trail, perhaps being put on to it psychically, if they so sought to find and piece together the message lying in plain sight. 
+
+![theylive1.jpg](/img/user/images/theylive1.jpg)
+
+There are many examples of this. "They Live," a classic sci-fi hit from John Carpenter released in 1988, is constantly talked about in conspiracy circles, and by David Icke. The world is encompassed by a matrix-induced reality - home to malevolent alien neighbors who are imposing as ordinary humans. They seek to enslave humanity and turn them into obedient consumers. The protagonist goes on a journey where he is harshly awakened to this truth after discovering a pair of glasses designed by a small resistance movement that allows him to see into what is happening. He joins a group of rebels and tries to expose the truth, which leads him to a television center - what you come to find out is broadcasting a signal overlaying the populace, the source of manipulation. At the end he destroys this, and the illusory reality begins to break down. Those who were aliens and previously hidden, are now visible in plain sight to the average man, no glasses needed, and as the world erupts into chaos, the truth shines its light. For example, in one of the closing scenes, there are two individuals getting it on - sexually. A woman looks down at the man she was engaging in pleasure with, and sees that all along, it has been a grotesque creature underneath her. 
+
+![aliensex.jpg](/img/user/images/aliensex.jpg)
+
+The reason I bring this up is because of just how close to home this one hits. It was a very special moment in my existence, an incredibly pivotal point in which things shifted forever, where I, for the first time in my life, in They, saw them. The first boobs ever, right at the end of the screenplay. I was just a young boy. The fathers hand immediately flew over my eyes, but it was too late, even if attempts to pry his fingers apart failed. What had been seen could never be unseen, El Shaddai, and the movie found itself a spot in my vhs set of core memories. David Icke tries to relay this entire film as an expose for the secret reptiles club that gets together and drinks cocktails while determining who wins the Super Bowl this year. Along with that, there exists an underlying theory where he believes the moon to be part of a larger holographic-matrix-projector in tandem with Saturn, which broadcasts a particularly dense frequency over towards our reality. When the main character of They Live destroys the radio station, its broadcast absent, all the aliens become exposed. If we could somehow destroy the moon... David Icke might hypothesize, some sort of similar liberation could perhaps occur. I know, it is all a bit wild, but, given the unique introduction to this film as a young boy, its profound impact, I felt a spiritual calling to look into this all a bit further. The fact that John St. Julien has gone down this road as-well inspired me, so if it is non-sense, we at-least gave the subject some deserved Jñāna attention.
+
+![6-D3-B8467-34-F6-4-D12-975-A-588670-A08-DDF.jpg| 300](/img/user/images/6-D3-B8467-34-F6-4-D12-975-A-588670-A08-DDF.jpg)
+
+![Pasted image 20251124141705.png](/img/user/images/Pasted%20image%2020251124141705.png)
+( this came up on the same night as the Babaji numbers [[St4r7,147.48Untitledd 5091444444\|St4r7,147.48Untitledd 5091444444]] )
+
+When I was going through Icke's book "The Trap" during my kundalini training, I gave They Live another watch, and then went down the rabbit hole. Considering the fact that this understanding may take walking down the gnostic road, I was essentially tasked with simulating the idea that our world was in a Saturn-Moon matrix situation, and I would have investigate reality through this particular lens to really see and determine if it were true or not. Basically I spent at-least 2 years sitting there hypothesizing, and actively interacting with the idea that - the thoughts in my head were a battle between two different sources. The constructive thoughts, were my own natural intuitive radio, which was picking up frequencies from God/Source/Angels/just my own intrinsic divine mind(not that a healthy grounded awareness doesn't bring us to some less that savory places.) The really nasty automatic negative thoughts flowing through my brain, non-constructive or destructive criticism, could be resultant of a depleted energetic field, having holes in the auric bubble, which made my radio tower vulnerable to the reception of these less than pleasurable vibrations being projected from Saturn, and then ultimately relayed and amplified by the moon.
+
+![Pasted image 20260318065403.png| 300](/img/user/images/Pasted%20image%2020260318065403.png)
+
+Sort of ChatGPT ques of darkness inspiring things that were would lead you downwards, harvesting your energy. Bad ideas vs good ideas, narcissism vs humility, hatred instead of forgiveness, the classic angel on one shoulder and a pitchfork on the other. Following the 3 pronged trail leads to a further depleted field, which means you're now even more vulnerable, in full reception of this Saturn frequency, being further programmed into separation/fear, like a battery cementing its place in the system. A big ego could be akin to a testosterone-filled Pitbull being lured into the woods by a pack of vampire coyotes, only to be torn apart and transformed into one themselves. This comes equipped with an automatic stream of thoughts that construct a negative model of reality for the recipient, until they are disconnected from their own power, operating under the influence of, and feeding into the collective unconscious itself, which is ultimately the core of the Wetiko books. To be blatant about what convinced me, it was how the death star in Star Wars looks, and the fact that there were tribes in the past which describe a time before the moon even existed. 
+
+_"When not all the orbs were yet in the heavens, before the Danai and Deukalion races came into existence, and only the Arcadians lived, of whom it is said that they dwelt on mountains and fed on acorns, before there was a moon."_  
+— Apollonius of Rhodes, _Argonautica_, Book IV, line 264, 3rd century BCE
+
+"Some say that Endymion discovered the periods & stages of the Moon. Hence the Arcadians were called Proselenes." — Isaac Newton, manuscript notes, Oxford Newton Project
+
+There are some allusions you could make to the concept of Satan and Archons as-well. I should clarify that use of words live evil or bad in relation to this concept isn't actually from the higher perspective where it simply is a part of the reality we are in for some reason - also a part of God playing some role or function which we may not understand. It could be what sparked humanity and helps guide it to grow for all we know, the moon could be a psychic support Ai circle. However, the idea of an alien species coming to this planet and perhaps bioengineering a dull batch of organisms that they could sit there and farm energy off of from the sky just seems plausible. Anunnaki mining gold story, I interpreted, was a metaphor for the harvesting of energy through the conflicts of man, which they could orchestrate through influencing the minds of man, which were made to be receptive through genetic engineering, like WiFi. This was something that the Carlos Castaneda books seemed to support 
+
+"We have a predator that came from the depths of the cosmos and took over the rule of our lives. Human beings are its prisoners. The Predator is our lord and master. It has rendered us docile, helpless. If we want to protest, it suppresses our protest. If we want to act independently, it demands that we don't do so... I have been beating around the bush all this time, insinuating to you that something is holding us prisoner. Indeed we are held prisoner! "This was an energetic fact for the sorcerers of ancient Mexico ... They took us over because we are food for them, and they squeeze us mercilessly because we are their sustenance. just as we rear chickens in chicken coops, the predators rear us in human coops, humaneros."
+
+ "... You haven't heard all the claims yet. I want to appeal to your analytical mind. Think for a moment, and tell me how you would explain the contradictions between the intelligence of man the engineer and the stupidity of his systems of beliefs, or the stupidity of his contradictory behaviour. Sorcerers believe that the predators have given us our systems of belief, our ideas of good and evil, our social mores. They are the ones who set up our hopes and expectations and dreams of success or failure. They have given us covetousness, greed, and cowardice. It is the predators who make us complacent, routinary, and egomaniacal."
+
+"In order to keep us obedient and meek and weak, the predators engaged themselves in a stupendous manoeuvre stupendous, of course, from the point of view of a fighting strategist. A horrendous manoeuvre from the point of view of those who suffer it. They gave us their mind! Do you hear me? The predators give us their mind, which becomes our mind. The predators' mind is baroque, contradictory, morose, filled with the fear of being discovered any minute now."
+
+Mental illness could potentially = Saturn Lock. Lunar-tic.. get it? Society declining into lunacy = Saturn influence getting stronger and stronger until no return. Now obviously a psychologist could come in here, sit me down.... alright buddy... I know you've maybe had a lot of unique experiences, but "that is your subconscious." Thank you for proving my point, I would turn towards them and say ... that's exactly what the planet Saturn would project into your mind to say to me right now. 
+
+![IMG_4690.jpg| 400](/img/user/images/IMG_4690.jpg)
+
+![IMG_4692.jpg| 400](/img/user/images/IMG_4692.jpg)
+
+this may have the potential to be a moment of Wetiko.... 
+
+where is that book ...
+
+![IMG_5096.jpg| 500](/img/user/images/IMG_5096.jpg)
+
+![Pasted image 20260316050205.png](/img/user/images/Pasted%20image%2020260316050205.png)
+
+![IMG_9495.jpg| 500](/img/user/images/IMG_9495.jpg)
+
+![IMG_9497.jpg| 400](/img/user/images/IMG_9497.jpg)
+
+( Once found, I opened the book directly to this exact page - in a moment of magic )
+
+*deep breath*
+
+![Pasted image 20260316050536.png](/img/user/images/Pasted%20image%2020260316050536.png)
+
+He's got some good points 
+I'm still trying to figure out how to fight the aliens in the moon myself 
+I choose Dr. K, a licensed mental health professional educated in the halls of Harvard, and in a monastery motel of many monks, as a scapegoat, myself, in an act of my own Wetiko demonstration, which is why the subject is so difficult to understand or talk about. 
+
+"Pendulums are simply thought structures that everyone thinks and only wants your energy. Knowing that a pendulum is prodding you for energy is one of the best ways to begin dealing with a pendulum.
+Pendulums can sense your energy and people will behave in ways that get to you."
+	Reality Transurfing
+
+![Screenshot 2025-12-07 090210.png| 300](/img/user/images/NEWGEMATRIAJULY/Screenshot%202025-12-07%20090210.png)
+
+For example, the Sydney Sweeney - Gene - Jeany situation. That was a beautiful example of how group thought cascades and can shift into a moving body of social psychosis. A commercial about pants is obviously not a secret message about white supremacy. To respond and clarify, to craft a response and even begin to get bothered by the pendulum, for some observers, automatically confirms their psychosis, and admits a sense of internal guilt which 'motivated' one to do so, confirming the projections that were placed upon the particular individual. If you aren't guilty of what is being said about you ... the best route would be to ignore it. This is something that I have completely perfected, and only in hyper-irony, am participating in, simply because there is a teaching opportunity to share with others here. Saturn could potentially sense your vibrational come up and begin sending thoughts to the minds of those around you, who can then be motivated unconsciously by those thoughts to perform actions that will have the capacity to move you off your center, if you so allow it, which would be the falling into the trap of the planet's influence, through others in your environment, which is actually a good test of strength and resolve for your own internal boundaries against the frequential downtrodden coming from this planetary body. 
+
+![they-live.jpg](/img/user/images/they-live.jpg)
+
+![Pasted image 20260316043647.png](/img/user/images/Pasted%20image%2020260316043647.png)
+
+![Pasted image 20260316044249.png](/img/user/images/Pasted%20image%2020260316044249.png)
+
+![Pasted image 20260124204851.png](/img/user/images/Pasted%20image%2020260124204851.png)
+
+The story of Jesus for example, from this lens.... he comes out, being himself, being free from the influence of Saturn, and this bothers the Romans. Why? It could be a result of the annunaki moon gremlins desire to maintain homeostasis. Too much freedom, alert bells begin to ring. This is going to really dampen our farms production. They could simply hyper fixate the unknowing attention of those in power, the Roman Elite, to hyper analyze every little detail about the Rabbi's demeanor - in hopes that it would create an opening which gives validation, an internal green light, for the Romans to willingly take on a perspective, which proceeds to generate inside themselves the emotion - of justified agitation(perhaps communal concern is a better way to phrase it). Over time this constructs an internal belief system that can back up the emotion with evidence, which could then be reinforced as true through the continued projection of 'saturns focused thought,' eventually to turn into 'agitation/communal concern ending action,' violence either psychically or physically, which would ease disturbance and restore order, an operation originally inspired by the devil himself, the Ant Farm CEO's, eventually leading to the murder(or social ostracization) of what is a disruptive individual. This creates peace for the moon goblins, and for the Romans who carried out this Astral hit, like assassins, for those moon goblins, through the process of mimetic desire, unknowingly, and social order is restored. The problem is gone. (( My family is worried about me. )
+
+However, the beautiful thing with this situation is that the very act of the Romans killing Jesus would have been the moment that these unconscious aspects within their minds are made visible, as thought precedes action. Forces of the unconscious come out and into the light of day, so as for those who are conscious, to observe, be witness to, and integrate. It is evil exposing itself through the murder of Christ, which in and of itself, by being brought to the light of day, is itself the solution to darkness. The forces opposing Christ (the state/institution) projected their own inner darkness (shadow) onto the righteous rabbi going for God, after an unchecked Saturn seminar in the inner ear(maybe), which is the primary mechanism through which wetiko/evil/the Annunaki overlords influence operates. Wetiko/evil/Saturn's influence is terrified of being discovered, and its ultimate goal is to destroy the light of consciousness that exposes it, like white blood cells to a virus. The perpetrators felt they were acting justly in the act of murder, which mirrors the "self-entrancement" or insanity of wetiko, where evil masks itself as good within participants to avoid being witnessed. The murder of Christ therefore can be seen as symbolic for the ways in which Wetiko covertly operates within and without ourselves. This could have been how Jesus knew that he was going to have to die, predicting that it may be necessary for evil to act itself out on a willing target in order to bring a full awareness of the situation of evil itself into the eyes of those around him. 
+
+"Now my soul is troubled, and what shall I say? ‘Father, save me from this hour’? No, it was for this very reason I came to this hour.
+	John 12:27
+
+"Do not smile at the visionary who anticipates the same revolution in the realm of the visible as has taken place in the spiritual. Thought precedes action as lightning precedes thunder.
+	Heinrich Heine
+
+![Pasted image 20260317191731.png](/img/user/images/Pasted%20image%2020260317191731.png)
+
+I think that it would be cool, perhaps historic, if the two of us got together and both did Ketamine.
+It could be livestreamed as a charity event for endangered equestrians. 
+God K and Dr. K , paths crossing in real time
+We could ride horses around and maybe play paintball afterwards, or maybe play paintball on the horses but we would have to be careful not to hit them or get them armor so they don't get hurt 
+The backdrop, a gorgeous sunset
+
+![Pasted image 20260317194338.png](/img/user/images/Pasted%20image%2020260317194338.png)
+
+![IMG_5097.jpg| 400| 400](/img/user/images/IMG_5097.jpg)
+
+It took a very long time to find that quote, about the nuclear moon, originally interpreting it as coming from Jung, not his student, but in that mistaken state, beauty was found. There, in a moment of confusion, the Chrome browser hitting its capacity at 500 tabs, it all came back to me. 
+
+Carl Jung's near death experience...
+
+"It seemed to me as if behind the horizon of the cosmos a three-dimensional world had been artificially built up, in which each person sat by himself in a little box. . . . I had been so glad to shed it all, and now it had come about that I—along with everyone else—would again be hung up in a box by a thread." 
+	C.G. Jung, Memories, Dreams, Reflections
+
+Around 2021-2022, I began to watch a lot of academic physics videos on YouTube. I had absolutely no idea what they were talking ab
