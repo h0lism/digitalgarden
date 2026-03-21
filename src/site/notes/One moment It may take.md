@@ -940,13 +940,188 @@ The backdrop, a gorgeous sunset
 
 ![Pasted image 20260317194338.png](/img/user/images/Pasted%20image%2020260317194338.png)
 
+![Screenshot 2026-02-10 010010.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-02-10%20010010.png)
+
 ![IMG_5097.jpg| 400| 400](/img/user/images/IMG_5097.jpg)
 
 It took a very long time to find that quote, about the nuclear moon, originally interpreting it as coming from Jung, not his student, but in that mistaken state, beauty was found. There, in a moment of confusion, the Chrome browser hitting its capacity at 500 tabs, it all came back to me. 
 
 Carl Jung's near death experience...
 
-"It seemed to me as if behind the horizon of the cosmos a three-dimensional world had been artificially built up, in which each person sat by himself in a little box. . . . I had been so glad to shed it all, and now it had come about that I—along with everyone else—would again be hung up in a box by a thread." 
-	C.G. Jung, Memories, Dreams, Reflections
+![Pasted image 20260318173547.png](/img/user/images/Pasted%20image%2020260318173547.png)
 
-Around 2021-2022, I began to watch a lot of academic physics videos on YouTube. I had absolutely no idea what they were talking ab
+Around 2021-2022, I began to watch a lot of academic physics videos on YouTube. I had absolutely no idea what they were talking about. It was almost comical and inappropriate, watching stuff on astrophysics and quantum phenomenon, and perhaps that was the point. I was lucky to absorb maybe 1% of 1 idea from an hour long lecture, if that. Getting into a bunch of new age quantum physics spiritual stuff, I couldn't help but become interested in the actual stuff, because the claims that were being made were somewhat wild. For example, you could quite literally meditate your way into a parallel universe. If this subject was understood well enough, it could be a cheat code. There were many years that I, after discovering the law of attraction at 16, tried to think as large as I could. One day on LSD, I finally realized that my efforts had not been in vain, and began to cry tears of joy after coming to the realization that I was about to be the worlds first trillionaire. It all made sense, the whole time, it became clear, and we were going to wield this science to make it happen and prove to the world magic was real. All I had to do was follow a simple formula, and believe hard enough - to feel as though it already happened. Quantum physics found me as a way to fulfill that dream. Yung Lean, if you are reading this, I too had a moment with Elon Musk. Now I wasn't in a hospital as deep into psychosis as your encounter with the man, but it was still profound. I was only 17-18 or so, a time where I escaped into acid land by myself all the time, life unfolding in a manner that was unheard of to the senses prior. I had purchased the Elon Musk biography on recommendation of a youtuber that went by the name Patrick Bet David. He only had maybe 50,000 subscribers, but successfully led an impressively sized insurance company. Elon was some up and coming 'genius,' if you understood how his mind worked, maybe you could accomplish a third of what he has. I remember sitting for hours just staring at this cover in my hand, and it became a sort of stand off. So his path is looking like it will be successful. Just wait and see. I didn't know how it would happen, but I knew deep down in my heart that I was the one who was about to become the worlds first trillionaire, not him. And so it began, a little bit of friendly competition to get me out of bed in the morning. A race. 
+
+![Pasted image 20260311184415.png](/img/user/images/Pasted%20image%2020260311184415.png)
+
+You've probably heard it all before. 
+Parallel universe reality transurfing, quantum jump... 3 ... 2 ... 1....  
+Trying out different meditations, it seemed to work in some respect, or at least make you feel good for a little bit. Never knew if it was just self belief carrying one through a placebo effect, or a new "Meta" approach to the meta-physics of the internal world(spiritual), in combination with the frame of certain ideas in quantum theory(science). 
+Quantum Meta-Physics?
+
+This deepening interest began around the time of discovering Wetiko as-well, Paul Levy the author of that book intertwined these sorts of ideas into his concept of what evil may be(a quantum phenomenon).
+
+**QUANTUM PHYSICS AS SPIRITUAL PATH**
+	I wonder if I am becoming addicted; I can’t get enough of quantum physics, which has captured─and simultaneously liberated─my imagination beyond belief. My appetite for what it is revealing feels insatiable. The more I study it, the more I feel as if I am mutating, metamorphosizing, becoming quantum-physicized into a higher state of coherence in my very soul. Words fail me when I try to describe the realm of pure and utter magic that is quantum theory. Unlike a typical addiction─wherein energy gets drained─the more that I enter(tain) the world of quantum physics, the more creative energy makes itself available to me. I feel convinced that what it is revealing to us is of crucial importance for the future of humanity.
+		https://www.awakeninthedream.com/articles/quantum-meta-physics
+
+![Pasted image 20260121194856.png](/img/user/images/Pasted%20image%2020260121194856.png)
+
+![Pasted image 20260318174647.png](/img/user/images/Pasted%20image%2020260318174647.png)
+
+After doing a bunch of psychedelics and feeling like I had an actual direct experience with some other force, that I high fived an alien with my brain, this felt like the only domain where maybe it was possible to somehow figure out what it is that happened. It sounds cool in story, but is actually kind of terrifying and makes you question everything - which is a little bit cool. The pretense of a 'multidimensional' nature to these beings sorta nudged the compass in this scientific direction. From here, I would watch actual quantum physics lectures, listen to spiritual books, and then meditate, and try to figure out some way to initiate contact again. I was, like so many seem to be, even our government now, chasing the UFO. Whoever wins the race gets an all exclusive 7 day guided tour through the galaxy, answers to any questions they have ever had, and all the secrets of the universe. Steven Greer, hold my beer. Escapism designed as, not only productive, but evolutionarily necessary, for the species... of course. The whole joint my son, yes, you must inhale it all to understand what they are speaking of in terms of Quarks. I will now reflect on all the astrophysics lectures (which I spaced out during the majority of) and begin touching the other dimensions, scientifically connecting directly to the Anunnaki so that I can write the next bible and save humanity from nuclear annihilation on this gram of mushrooms. AMEN!
+
+![Pasted image 20260321035505.png](/img/user/images/Pasted%20image%2020260321035505.png)
+
+The weird thing about this situation, is that it seemed to actually work in some way. Synchronicities began to occur in an almost movie like manner, and numbers began to pop up all over the place, drawing me in deeper and deeper. Because of that, sorta like the scientific method, experiments continued as data was collected. I guess this is called "Mysticism." Never in my life was there any real belief in angels, but suddenly it just became a quantum idea that just made sense, and I could feel them if I was sensitive enough. Even if I was somehow deceiving myself, the deception was so powerful and realistic, seemingly bending reality itself, that it was almost like a live masterclass in understanding how the darker parts of the mind worked by letting go and following that along as-well. Coming home from whatever my schedule was occupied with, and then playing games in my head with imaginary friends, it legitimately seemed to change the orchestration of the map which I spawned into each morning. This book I may have looked into a little but found just confirming what was being experienced.
+
+![Pasted image 20260321025934.png](/img/user/images/Pasted%20image%2020260321025934.png)
+
+To simplify what my half-baked Quantum Doctorate dissertation was on, after going to college through renting "The Great Courses" DVD's from the library and playing them in my Xbox, I came to the perspective that the fifth dimension was where things become timeless. To be in the fifth dimensions would mean that you were in the space of infinity. This would be the spiritual equivalent of being in the state of enlightenment, or Nirvana, Samadhi, whatever you'd like to call it(although I am grossly generalizing). To explain the New Age perspective, holding yourself through mindful awareness and deconstructing the actions of the mind that prevent you from remaining in that space is what the challenge of modern 'ascension' would be. I had already been studying this unique intersection of topics for a few years, although some would say that this is filled with a lot of pseudoscience. 
+
+![Pasted image 20260302235302.png](/img/user/images/Pasted%20image%2020260302235302.png)
+	with a foreward from Deepak Chopra
+
+Interestingly, both Deepak Chopra, and Rupert Sheldrake were in the Epstein files
+
+![Pasted image 20260321032714.png](/img/user/images/Pasted%20image%2020260321032714.png)
+
+![Pasted image 20260321032656.png](/img/user/images/Pasted%20image%2020260321032656.png)
+
+![Pasted image 20260321032618.png](/img/user/images/Pasted%20image%2020260321032618.png)
+
+![Pasted image 20260321032355.png](/img/user/images/Pasted%20image%2020260321032355.png)
+
+![Pasted image 20260321031959.png](/img/user/images/Pasted%20image%2020260321031959.png)
+
+![Pasted image 20260321032150.png](/img/user/images/Pasted%20image%2020260321032150.png)
+
+![Pasted image 20260321040221.png](/img/user/images/Pasted%20image%2020260321040221.png)
+(Rupert seems innocent, and so does this guy he crossed paths with, but the framing is interesting)
+
+This physics side quest continued throughout my kundalini training. There is not much I could tell you about the subject today, but then, there was a subconscious repository built, resultant of hours and hours of going down trails deemed interesting enough to be navigated, for months and months on end. I developed this grandiose idea that profound jumps in bodies of knowledge came from perspectives that were way out in left field, something/someone completely unexpected which has some unique little new way of looking at a topic which allowed for a grand new unfoldment. And so, as someone with absolutely no formal education on the subject whatsoever, I was going to be the one to "manifest," through integrating all this advanced alien spiritual stuff, the solution to whatever was holding up the world of physics, and bring the domain into its next paradigm. Anything was possible if you truly believed, truly, seriously, believed.... and were willing to put in the work for the outcome you desire. They chose me, the aliens, because they knew I could figure it out. My whole life, we were built for this, to travel the road least taken, and go all in.
+
+![grFX5gP4Ixi-eN5_QsCyx1p2E-J-ZsDuXOhfwdykbwA.webp](/img/user/images/grFX5gP4Ixi-eN5_QsCyx1p2E-J-ZsDuXOhfwdykbwA.webp)
+
+However, in my defense, the world began reflecting the content that was within my psyche to me in various avenues...
+
+![Pasted image 20260121163319.png](/img/user/images/Pasted%20image%2020260121163319.png)
+
+The deeper theory behind this thinking was that moving physics along to a place where we can interact with higher dimensional forces would then crack open the cosmic egg, allowing for humanity to receive profound advancement, as opposed to us sitting here looking at cells underneath a microscope and moving like a snail. 
+
+[[snail mail segmentation\|snail mail segmentation]]
+
+In one of David Hawkins books on the scales of energy, he claims that, if even one single human being could raise their frequency to the level of 1,000, that the world would be changed forever. Gamifying life through this pseudoscientific frame, I thought profoundly about how someone could raise themselves that high, and how that 1,000 person could create such a change. 
+
+![Pasted image 20260214023501.png](/img/user/images/Pasted%20image%2020260214023501.png)
+
+The nutty physics professor situation ended up being my best attempt to try and maybe step into that role. The idea was that, once someone figures out how to advance physics and get the aliens involved, they could come in and instantly fix hunger, homelessness, illness.... all the pangs of the world. Completely, thoroughly, and perhaps instantaneously. I was thinking of myself like some sort of interspecies, interdimensional intermediary, entering private investigations with the annunaki, a plea to come and help us fleas. Enough was enough. I learned through the Mindvalley course _Awaken the Species_ by Donald Welsch that, believe it or not, we have enough resources to end world hunger right now. There are sufficient supplies to make sure everyone has a full belly, but the way our societies are all structured, over half a billion people go starving every year. Roughly 9 million people die, and nearly 1/3rd of those are children that are under 5. 
+
+![Pasted image 20260107031312.png](/img/user/images/Pasted%20image%2020260107031312.png)
+
+![Pasted image 20251230043019.png](/img/user/images/Pasted%20image%2020251230043019.png)
+
+Far after the training was over, I had begun to dial myself in on what would ultimately be the greatest problem of physics as it stood. If someone were to propel this body of science forward, it would likely be done through the unification of Einstein's concept of relativity, with the modern model of quantum field mechanics. This was the major sticking point, the work of the man who gave us gravity was not compatible with the revelations that quantum theory brings in. The two models work well on their own to an extent, but the quantizing of gravity is where wheels have spun in the mud for decades. To figure out how certain parts of the universe worked, we would need a new emergent framework that would allow for both models to be used in synthesis, a final theory of everything.... The answer will find me if I just keep sitting down, smoke enough weed, connect with Thoth, who eventually became Babaji, follow the voice in my head, and watch these videos. It took years, but I finally discovered the formula
+
+![generated-image (2).png](/img/user/images/generated-image%20(2).png)
+
+![IMG_9492 1.jpg](/img/user/images/IMG_9492%201.jpg)
+
+![IMG_9493 1.jpg| 300](/img/user/images/IMG_9493%201.jpg)
+# Bdjk;jk;jk;jk;jk;jk;afsfkjlfj
+
+![IMG_9483 2.jpg| 300](/img/user/images/IMG_9483%202.jpg)
+![Screenshot 2026-03-12 173757.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-03-12%20173757.png)
+
+![Screenshot 2026-03-12 173308.png](/img/user/images/NEWGEMATRIAJULY/Screenshot%202026-03-12%20173308.png)
+# jgj;adgasdgjlkgjggagjk;agj;ioaegjoi;egjieoaa;eoij;jiraooij;aaggoi;;ooijoijoiyoumovelikeajaguarag;agjlkj;epegpo[e;agjrohiaojhtoib;jabm]
+
+It was on the 11th of February, 1944, when the 68 year old man, Carl Gustav Jung – the world’s most renowned living psychologist – slipped on some ice... and broke his fibula. We don't fully know his motives, what inspired this action, whether it was an accident or not, but given the television series Better Call Saul, and the "slippin Jimmy" incident, are we truly certain there was not a deeper plan in motion? Perhaps it was just God's 
+
+![this-is-the-story-behind-the-painting-from-jimmys-office-in-v0-pnvquzri8gq91 (1).webp](/img/user/images/this-is-the-story-behind-the-painting-from-jimmys-office-in-v0-pnvquzri8gq91%20(1).webp)
+
+(the artist who painted this is married to my cousin, it was a recreation of the street art he was making in India)
+
+![this-is-the-story-behind-the-painting-from-jimmys-office-in-v0-v5vlybx1ggq91.webp](/img/user/images/this-is-the-story-behind-the-painting-from-jimmys-office-in-v0-v5vlybx1ggq91.webp)
+
+Ten days later, after scamming his way into the hospital — perhaps as a way to get out of therapy sessions with incredibly difficult patients — Jung suffered a myocardial infarction caused by embolisms in his immobilized leg. Doctors administered oxygen and camphor injections as he hovered near death, and it was during this critical period that a visionary journey began. Carl lost consciousness and had what seems to have been a near-death/out-of-body experience(like at a Weezer concert) – or, depending on your perspective, dabbled in delirium. He found himself floating 1,000 miles above the Earth, specifically above the island of Ceylon (now Sri Lanka), so that he was overlooking India. "The sight of the Earth from this height was the most glorious thing I had ever seen." Seas and continents shimmered in blue light, and Jung could make out the Arabian desert ... even the snow-tipped Himalayas. He described an overwhelming sensation of completeness, peace, and liberation from earthly identity. Ahhhhh, at last "It's like taking off a tight shoe" - Ram Dass. Turning southward, "something new entered my field of vision," and Jung encountered a vast, dark block of stone floating in space, which was roughly the size of his house, "like a meteorite," and had been hollowed like a temple. Walking inside the antechamber, sort of a lobby area before entering further, there sat thousands of little flames, wicks in coconut oil, and "to the right of the entrance, a black Hindu sat silently in lotus posture upon a stone bench. He wore a white gown, and I knew that he expected me." Looking left made visible entrance to the temple, a mystical doorway which resembled the Temple of the Holy Tooth at Kandy in Ceylon. The outside was framed with burning lamps, and approaching the structure, he was overcame by "the feeling that everything was being sloughed away; everything I aimed at or wished for or thought, the whole phantasmagoria of earthly existence, fell away or was stripped from me – an extremely painful process." All that remained afterward were the experiences that he had been through, the things he had done, "_it was with me, and I was it. I consisted of all that, so to speak. I consisted of my own history and I felt with great certainty: this is what I am. I am this bundle of what has been and what has been accomplished._" At first "annihilation predominated," but eventually, it was pleasant, there came a point where regret for the things that had fallen away were not an issue, as he came into the being that he already was. "_This experience gave me a feeling of extreme poverty, but at the same time of great fullness. There was no longer anything I wanted or desired. I existed in an objective form_." Getting closer to the doorway, he was potently aware that the illumined beings inside of this building would hold the answers to all of his questions. Within was the knowledge of what came before his life, and what it was that came next. All answers awaited. Inching his way to the promise land, as all these ponderances began to mull over in his mind, it was all interrupted by an arising image, floating straight out of Europe, his doctor, "_or rather, his likeness – framed by a golden chain or a golden laurel wreath. I knew at once: ’Aha, this is my doctor, of course, the one who has been treating me._" Standing before one another, a telepathic exchange began to commence, the two of them both being equipped within their primal forms and whatnot. Having been delegated by the Earth itself, one doctor was sent to the other doctor "_to tell me that there was a protest against my going away. I had no right to leave the Earth and must return. The moment I heard that, the vision ceased._" This was a bit of a buzzkill for Jung, "I was profoundly disappointed," as he felt that entire painful defoliation process was done in vain. He missed out on the temple of light where all of his really cool friends were waiting to hangout and catch up. It took Carl Jung at-least three weeks to make up his mind to live again. He couldn't eat because all food was repelling. "The view of city and mountains from my sickbed seemed to me like a painted curtain with black holes in it, or a tattered sheet of newspaper full of photographs that meant nothing.
+
+_I thought, “Now I must return to the “box system” again.”
+
+_For it seemed to me as if behind the horizon of the cosmos a three-dimensional world had been artificially built up, in which each person sat by himself in a little box. And now I should have to convince myself all over again that this was important! Life and the whole world struck me as a prison, and it bothered me beyond measure that I should again be finding all that quite in order. I had been so glad to shed it all, and now it had come about that I – along with everyone else – would again be hung up in a box by a thread._
+
+Once Jung came to his body again, he relished in a distaste for the doctors interruption of his death. Shortly afterwards he became incredibly worried, for if he had seen him up there in the primal form, that would mean that he was going to die soon, perhaps even in his place. Carl tried to reason with the doctor and plead with him a warning about what was soon to happen, but he did not understand, and Jung got frustrated. He turned out to be right, and was the final patient that doctor served. 
+
+"_On April 4, 1944 –(((((4-4-44))) I still remember the exact date I was allowed to sit up on the edge of my bed for the first time since the beginning of my illness, and on this same day the doctor took to his bed and did not leave it again._"
+
+What's interesting to note is that Carl Jung's NDE was not your typical, 'I was motivated to go back and enjoy life - it was a breath of fresh air,' story that you hear. He did not seem to be happy, and genuinely wished in some way to have been able to cross that threshold for good. Could it be that, given his study of certain traditions like Gnosticism, he was made aware of reality in a way that others are perhaps not? Would Jung's nihilism in this sense be deserved, even rational and appropriate for a short period - given just how acutely aware he became of the situation he may actually be in? Whoever wrote The Matrix screenplay surely had to have gleaned this story, and if not, it makes the whole situation more peculiar.  
+
+![Pasted image 20260320032245.png| 300](/img/user/images/Pasted%20image%2020260320032245.png)
+
+Hey Lil B!There is some really cool art to check out 
+
+![Pasted image 20260320035909.png](/img/user/images/Pasted%20image%2020260320035909.png)
+
+![Pasted image 20260320065427.png](/img/user/images/Pasted%20image%2020260320065427.png)
+
+![Pasted image 20260320032037.png](/img/user/images/Pasted%20image%2020260320032037.png)
+
+Interviewing the artist, he claimed that the word Telos was chosen from its Greek origin, which was related to purpose or goal... what something was for. This surprised me. Out of everyone out there, how could he not know about the Telos which existed underneath Mt Shasta? 
+
+Supposedly, this potentially active stratovolcano has underneath itself an entire civilization of super-advanced beings. These are rumored to be refugees from the lost continent of Lemuria, living life in tunnels or vast underground chambers. For the Winnemem Wintu tribe, they called the mountain Boyum Patuk, and claimed it as an energy center of the Earth which would communicate with other energy centers. The Klamath people, a local Native American tribe, has a story related to the mountain. There is a battle between spirit chief Skell, of the above worlds, who descended from heaven to the mountain's summit to fight against Llao, the spirit of the below world. He lived underneath Mount Mazama but was able to come up into the world through a hole which existed in the ground nearby. Skell and Llao fought one another by hurling hot rocks and lava between Mount Shasta and Mount Mazama, representing eruptions at both mountains. Eventually Skell defeated Llao, being inspired to fight harder after the sacrifice of a few brave medicine men who jumped into the pit of the underworld. Afterwards he collapsed the top of Mount Mazama to fill the hole, but wanted the dark pit to be a place of peace and tranquility. Skell filled it with beautiful blue water, and this is what came to be Crater Lake. The man who holds the title "Father of Crater Lake," after spending decades lobbying Congress to make it a national park, originally gave it the name Witches Cauldron. Inside lies a beautiful landmass, which he, at the same time, dubbed
+
+![Pasted image 20260320042822.png](/img/user/images/Pasted%20image%2020260320042822.png)
+
+![Pasted image 20260321015312.png](/img/user/images/Pasted%20image%2020260321015312.png)
+
+One of the main contributors to the development of the Mt Shasta philsophy came from a book titled
+
+_A Dweller on Two Planets_
+	by Phylos the Thibetan
+
+It presents a first‑person narrative of life in Atlantis, specifically in the Poseid capital, with advanced tech (antigravity aircraft, submarines, television‑like devices, wireless communication, air conditioners, “dark‑side” energy.) It is interesting that this is long before society/science had reached this level of development. After this point he begins to describe his last incarnation, where Atlantean karma plays out, as a gold miner and occult student of the Theo‑Christic Adepts. In this story he is brought to a temple which resides inside of Mt Shasta. Here he goes outside of the physical form, to travel in the subtle body to Hysperia (Venus). This is home to an advanced civilization of adepts that shows him even more wacky and wild stuff. 
+
+"her perfection of physical life, all breathed the fact of her objective being, and bore evidence to the truth that her rule of life was obedience to the law. And yet I doubt if your eyes, my friends, could have seen her at all. No telescope will ever reveal human life on Venus; not that it is not there, but its forms are of the One Substance effected by a range of force rendering them imperceptible to earthly eyes. You will not think the air any less material, or electricity any less real, because your eyes cannot perceive them."
+
+Phylos ties the Atlantean lifetime to our modern American incarnation, warning that a technological civilization can destroy itself again as “Poseid, queen of the waves” did. The book was not published until 6 years after his death, by his mother. 
+
+Hesperus is the personification of the "evening star" (the planet Venus) in Greek mythology
+
+![Pasted image 20260320050516.png](/img/user/images/Pasted%20image%2020260320050516.png)
+Ἕσπερος Hesperus, 'evening' 
+
+27 1 But we must not fail to mention what the myths relate about Atlas and about the race of the Hesperides. The account runs like this: In the country known as Hesperitis there were two brothers whose fame was known abroad, Hesperus and Atlas. These brothers possessed flocks of sheep which excelled in beauty and were in colour of a golden yellow, this being the reason why the poets, in speaking of these sheep as mela, called them golden mela. 2 Now Hesperus begat a daughter named Hesperis, whom he gave in marriage to his brother and after whom the land was given the name Hesperitis; and Atlas begat by her seven daughters, who were named after their father Atlantides, and after their mother, Hesperides."
+	Diodorus Siculus, Library of History, (Book IV)
+		(the Atlantides are associated with the nickname 7 Sisters for the Pleiades)
+
+![Pasted image 20260320050155.png](/img/user/images/Pasted%20image%2020260320050155.png)
+
+![Pasted image 20260320051558.png](/img/user/images/Pasted%20image%2020260320051558.png)
+
+"Daughters of the Evening" "Sunset Goddesses" 
+
+"In addition to their tending of the garden, they have taken great pleasure in singing."
+
+![Pasted image 20260320052909.png](/img/user/images/Pasted%20image%2020260320052909.png)
+
+One of the Hesperides was named Erytheia Ἐρύθεια) ("the red one") 
+This was the name of an island which we see in a tale of Heracles in Apollodorus Library
+As his tenth labour, he is ordered by Eurystheus to fetch the famous red cattle of the three‑bodied giant Geryon, who lives at this far‑western island. Heracles travels to the edge of the world, crosses the sea, kills the monster, takes the cows, and then drives them all the way back to Greece. He brings them to King Eurystheus, who sacrifices the entire herd to Hera.
+
+Strong's Lexicon G2063 ἐρυθρός, _erythros_ - Red
+
+Erythraean Sea is The Red Sea
+
+There are a few sources that claim the height of the mountain today as 14,179 ft (4,322 m), but the USGS.gov says "the towns of Weed, Mt. Shasta City, and McCloud lie in the shadow of its 4,317 m (14,163 ft) high snow- and ice-clad edifice."
+
+![Pasted image 20260320065556.png](/img/user/images/Pasted%20image%2020260320065556.png)
+
+The mountain was originally said to have been 14,444ft above the waters back before 1906
+
+![Pasted image 20260320033544.png](/img/user/images/Pasted%20image%2020260320033544.png)
+[2-16-06](https://cdnc.ucr.edu/?a=d&d=CWE19060216.2.10&e=-------en--20--1--txt-txIN--------)
+
+this document may be proof of a claim which was just a bit below that,  a typo. 
+
+![Pasted image 20260320033057.png](/img/user/images/Pasted%20image%2020260320033057.png)
+From the [Library of Congress](https://www.loc.gov/item/94505701/)
